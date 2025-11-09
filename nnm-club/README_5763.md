@@ -1,664 +1,661 @@
-###  Публикация: 1665814   (180905) от 02.10.2023
+###  Публикация: 1666544   (178794) от 05.10.2023
 
-Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
+WinTools.net Premium 23.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178794.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C051368AE611E5F143C0771FC5B18855093FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594300   (178797) от 30.11.2022
+
+Наталья Александрова | Колокольчики династии Минь (2022) [MP3, Лариса Луганская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорога в тысячу ли начинается с одного шага – гласит китайская пословица. Дорога к общей тайне и общей судьбе, связавшей Ию, Инну, Ирину и Илону, началась в одном вагоне метро, где они случайно – или по воле высших сил – оказались рядом. Теперь помимо первой буквы имени их объединяют колокольчики – средневековый талисман, способный защитить своего владельца от злых (   Читать дальше...   )Жанр: детективПродолжительность: 07:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690E57A176936752C3131EA34F9C8A8997F083C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666636   (178798) от 05.10.2023
+
+Герои Хогана / Hogan's Heroes (1967-1968) BDRemux [H.264/1080p] (сезон 3, серии 1-30 из 30) Дольский
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о группе американских военнопленных, заключенных в немецкий концлагерь во время Второй мировой войны. Товарищами по несчастью руководит изобретательный полковник Хоган, который даже будучи в плену, находит множество возможностей саботировать врага. Комендант лагеря полковник Клинк хочет только одного — чтобы у него не было проблем с начальством. (   Читать дальше...   )Производство: США / Bing Crosby Productions, Bob Crane EnterprisesЖанр: комедия, военныйРежиссер: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс БилсонАктеры: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс Билсон, Марк Дэниелс, Боб Суини, Ховард Моррис, Ричард Кинон, Джерри Лондон, Роберт Батлер, Джон Рич, Ирвинг Дж. МурПеревод: авторский (А.Дольский)Язык озвучки: русский, английскийСубтитры: английские, немецкиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFC67E45C9B14FE4A1B45E9FB3AD38C96F8CB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666454   (178801) от 05.10.2023
+
+VA - Fleetwood Mac & friends Compilation (2023) [MP3|320 Kbps] <Rock, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Need Your Love So Bad
+02. Peter Green - Slabo Day
+03. Rick Vito - I Loved Another Woman
+04. Rick Vito - I've Got a Secret(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADFC7A9C324408109039CED8932627058232502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594045   (178803) от 30.11.2022
+
+Maunra - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Between the Realms (06:30)
+02 - Monarch (06:06)
+03 - Wuthering Seas (04:44)
+04 - Embers (04:26)(   Читать дальше...   )Жанр: Melodic Death, Post-MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7A26B9EE66E538BA36D603C3A05F762543DA70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594223   (178806) от 30.11.2022
+
+Rob Rock - Garden Of Chaos (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden Of Chaos
+02. Satan's Playground
+03. Savior's Call
+04. This Time Is The Last Time(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427680543C1276570D397B2629FBB06AE2BE84C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666619   (178807) от 05.10.2023
+
+Windows Update Viewer 0.5.24.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средство просмотра обновлений Windows (WUView) — это приложение, которое отображает информацию об обновлениях Windows. WUView использует API Центра обновления Windows и журналы событий Windows для отображения сведений об установленных обновлениях. Записи журнала событий связаны с отдельными обновлениями с помощью номера «KB». Если обновление не использует номер базы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACEDEF16BBDB024EC819DCD22D16402A02A1C29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666712   (178809) от 05.10.2023
+
+Joe Bonamassa - Blues Deluxe (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 You Upset Me Baby (B.B. King cover) 03:35
+02 Burning Hell (John Lee Hooker cover) 06:50
+03 Blues Deluxe (The Jeff Beck Group cover) 07:20
+04 Man of Many Words (Buddy Guy cover) 04:11(   Читать дальше...   )Жанр: Blues rockПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF92ED26875062771B644BDC9BCE7D912A1A4FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594195   (178811) от 30.11.2022
+
+VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178811.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Bob Cooper & Bill Holman:
+01. The Way You Look Tonight [3:15]
+02. Polka Dots and Moonbeams [3:05]
+03. Solo Flight [3:20](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, BopПродолжительность: 04:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB39257E34F6E54AA8A9C4B456E356EB4811246E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594233   (178814) от 30.11.2022
+
+Rob Rock - Eyes Of Eternity (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridge To Infinity (Bonus Track)
+02. Rock The Earth
+03. Stranglehold
+04. Eyes Of Eternity(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD735273794C934187A3B070708809DD12DE0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666654   (178815) от 05.10.2023
+
+Проклятие монахини 2 / The Nun II (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, 1956 год. Сестра Ирэн сталкивается со злобным демоном, принявшим обличие монахини.Производство: США / Atomic Monster, New Line Cinema, Safran Company TheЖанр: ужасыРежиссер: Майкл ЧавесАктеры: Таисса Фармига, Йонас Блоке, Сторм Рид, Анна Попплуэлл, Бонни Ааронс, Katelyn Rose Downey, Сюзэнн Бертиш, Léontine d'Oncieu, Anouk Darwin Homewood, Питер ХадсонПеревод: ДублированныйЯзык озвучки: украинский, английскийСубтитры: украинские (forced), английские (full, SDH), испанские (forced, full)Продолжительность: 01:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2596EEC36C1C71DBB6308CACDFAEFC2BDDD8D2A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666675   (178817) от 05.10.2023
+
+Проект «Флорида» / The Florida Project (2017) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хейли – молодая одинокая мать, которая не смогла найти себя в современной Америке. Не имея постоянной работы и каких-то особенных умений или талантов, она влачит жалкое существование, подворовывая, обманывая туристов, приезжающих в Диснейленд, питаясь объедками из местной забегаловки и клянча у властей пособия. Единственное, что скрашивает унылую жизнь Хейли, – дочь (   Читать дальше...   )Производство: США, Cre Film, Freestyle Picture Company, June PicturesЖанр: драмаРежиссер: Шон БэйкерАктеры: Бруклин Принс, Брия Винайте, Уиллем Дефо, Валерия Котто, Мела Мёрдер, Кристофер Ривера, Сэнди Кейн, Эйден Малик, Калеб Лэндри Джонс, Мейкон Блэр, Карен КарагулянПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (Focs ненормативная лексика), английскиеПродолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D9F371554F89D2732D161022E5C5E0752730DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594279   (178819) от 30.11.2022
+
+Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC 2.0|48/24|tracks] <Doom metal, Sludge, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pod Krwawym Ksi​ę​ż​ycem [00:02:02]
+02. W tym domu wszystko było stare [00:04:27]
+03. Nekromanta [00:10:36]
+04. Alchemik [00:09:13](   Читать дальше...   )Жанр: Doom metal, Sludge, StonerПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF7E35BF7A7AF82473DABBA48BF2C09489B4208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666602   (178822) от 05.10.2023
+
+Джозеф Албахари, Бен Албахари | LINQ. Карманный справочник (2009) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник посвящен технологии LINQ (Language Integrated Query) — новой функциональной возможности языка C# и платформы .NET Framework, которая позволяет писать безопасные структурированные запросы к локальным коллекциям объектов и удаленным источникам данных. Рассмотрены базовые понятия LINQ, такие как отложенное выполнение, цепочки итераторов и распознавание типов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594249   (178823) от 30.11.2022
+
+In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom, Occult>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock Me To The Limits [00:03:44]
-02. Hey You Gin [00:04:15]
-03. Butterfly Rock [00:03:59]
-04. I Do My Best [00:05:10](   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:52:09
+01. Aeterna Reditus [00:03:45]
+02. Redemptor [00:04:58]
+03. Gloria y Loor [00:06:12]
+04. Flagranti Pythonissam [00:03:14](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Doom, OccultПродолжительность: 00:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:643385CAE7D07CA43834AA50D4D96E77D87C6820
+magnet:?xt=urn:btih:8FAA5D2824E5C87B7302BEDE3E868BEF4867430D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666069   (180907) от 02.10.2023
+###  Публикация: 1666695   (178825) от 05.10.2023
 
-Dark The Suns - Raven and the Nightsky (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adamantine [00:04:37]
-02. Phoenix [00:05:07]
-03. Kun Aallot Kallioihin Murtuu [00:04:37]
-04. Aurora [00:05:54](   Читать дальше...   )Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C357B25A6241A188B7CB2D0DB4E7F8A965590D31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665926   (180911) от 02.10.2023
-
-Сибирская Благозвонница | Богородичное правило и пяточисленные молитвы (2018) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богородичное правило – собрание молитв ко Пресвятой Богородице. Молитвы эти, как дыхание души, обладают благотворной жизненной силой, умиротворяющей и оздоровляющей молящихся, всех тех, кто искренно, от всего сердца, просит Небесную Заступницу о помощи. Кроме того, сборник содержит Пяточисленные молитвы, так любимые великим подвижником Божиим святителем Димитрием (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E294FC3D0DDA18E098E35D9DC541D525280BE92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665894   (180914) от 02.10.2023
-
-Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heatin' System [12:26]
-02. Elmo Tucker [6:11]
-03. The Boiler [10:51]
-04. The Prophet [4:15](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB5365242804849D5E95A5F8AF2C7C940F0B08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665535   (180917) от 02.10.2023
-
-Jason Ricci & The Bad Kind - Behind the Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casco Bay (4:36)
-02. 5-10-15 (5:21)
-03. Baked Potato (4:17)
-04. Cirque du Soleil (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B197CC5F701F6698625486B8352982C495F12DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665936   (180919) от 02.10.2023
-
-Святитель Феофан Затворник | Грехи и страсти и борьба с ними (2010) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Феофан Затворник (в миру Георгий Васильевич Говоров, 1815-1894) – не только высокий подвижник Церкви, но и один из тех, о ком святой апостол Павел говорил, что они являются «светильниками в мире». Советы этого богомудрого наставника, несомненно, будут полезны каждому христианину на пути ко спасению.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EE1EC78DDBDBD90911FE8A51F55DB7D1DA4378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665530   (180922) от 02.10.2023
-
-Al Basile - B's Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Showed Me Something (4:49)
-02. I Really Miss You (5:35)
-03. Lie Down in Darkness (Raise Up in Light) (5:10)
-04. Tickle My Mule (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1E528549AEEB933189072F41142839DA0D7397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593435   (180924) от 26.11.2022
-
-AutoHideDesktopIcons 5.88 Portable [Multi/Ru]
+PDF24 Creator 11.14.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AutoHideDesktopIcons - небольшая и простая в использовании утилита, позволяющая скрывать и отображать иконки на рабочем столе с помощью жестов мыши - клика одной из кнопок по любому свободному месту рабочего стола. AutoHideDesktopIcons имеется возможность автоматического скрытия/показа панели задач и иконок, находящихся на рабочем столе, по таймеру.Язык интерфейса: Русский, Английский, и другие
+PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
+Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21614B8531B3B4DF11DB3B48D4C3A8748A2F9482
+magnet:?xt=urn:btih:FF75507A2ED91227D1AB766300285606ECB5F68F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593423   (180925) от 26.11.2022
+###  Публикация: 1594057   (178826) от 30.11.2022
 
-CherryTree 0.99.52 (x64) + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180925.jpg" />
-</div>
-
-
-###  Подробнее
-
-CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0073368B5F41C58F9B1AB804B5A1F5EF2D8E2B56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665918   (180928) от 02.10.2023
-
-Сибирская Благозвонница | От чего грехи? По трудам святого праведного Иоанна Кронштадтского (2018) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180928.jpg" />
-</div>
-
-
-###  Подробнее
-
-«О, как я грешен, противен по грехам моим – очам Божиим, людям и даже самому себе! Кто же для меня может быть более противен – кроме меня самого?..» Если уж так говорит о себе святой Иоанн Кронштадтский, то что можем сказать мы? В своем труде Батюшка не предлагает нам какое-то особое борение или подвижничество. В центре его размышлений, как и всей его жизни, молитва (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957DE03107FEF715E29BDBF01202833F08FDA557
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593186   (180931) от 26.11.2022
-
-Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ghosts (How Can I Move On)Жанр: AlternativeПродолжительность: 00:07:14
+01. The Ascension [00:01:20]
+02. God Awakening [00:02:46]
+03. Skyfall [00:04:18]
+04. Bad Omens [00:03:56](   Читать дальше...   )Жанр: MetalCoreПродолжительность: 00:32:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0D9F32734D79185EAB83AEBCAA96D1D95EE2876
+magnet:?xt=urn:btih:37A36148B1E14B784CF513379F9B768A90409D45
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665932   (180932) от 02.10.2023
+###  Публикация: 1594228   (178829) от 30.11.2022
 
-Протоиерей Валентин Мордасов | Афонский цветник (2013) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге мы имеем возможность научиться от самих афонских подвижников тому, как надлежит проводить жизнь благочестиво. Святые насельники, преподобные и святители, имена которых перечислены в Афонском Патерике, от времени становления Афона как центра православного монашества, от эпохи исихазма – деятельности прп. Никифора Уединенника, прп. Григория Синаита, свт (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7DE909431B4D488396876DF2BA64715B1CBDD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593418   (180935) от 26.11.2022
-
-Vivaldi 5.5.2805.48 + Автономная версия (standalone) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D091093E9EA21151A3031097459BA3514F582B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665533   (180936) от 02.10.2023
-
-Barbara Morrison And The Legacy - Blues Mama! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why I Sing The Blues (4:49)
-02. Lucky Diaz - They Call Me Sundown (6:59)
-03. Somebody Else Is Steppin' In (3:46)
-04. Interlude: Blues Mama! (0:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0A16227B9077D94A6CF0C8D0824FEAF7C49319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666036   (180940) от 02.10.2023
-
-Warwolf - The Apocalyptic Waltz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Rob Rock - Holy Hell (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Apocalyptic Waltz
-02 - Silver Bullets
-03 - Spawn of Hell
-04 - Flying Dutchman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:38
+01. Slayer Of Souls
+02. First Winds Of The End Of Time
+03. Calling Angels
+04. Holy Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:431A8531FDEB4C57A63202FBF44FE3AE25A70DFE
+magnet:?xt=urn:btih:3530919B3373395CC4EDF41516A267E9FC0A1246
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593319   (180942) от 26.11.2022
+###  Публикация: 1666727   (178831) от 05.10.2023
 
-Abelssoft Win10PrivacyFix 2022 5.0.42337 Portable by FC Portables [Multi/Ru]
+Imagine 1.3.0 + Portable + Plugins  [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abelssoft Win10PrivacyFix - утилита позволяющая отключить сервисы сбора персональных данных пользователей в операционной системе Windows 10. Программа поможет решить все проблемы Windows 10, которые нарушают право конфиденциальности пользователя при работе c ПК.Язык интерфейса: Русский, Английский, другие
+Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC8CA6FDC5B019AD826DAF141013F8999D531F8D
+magnet:?xt=urn:btih:A92E66BFA6AE40954600A61FAD76E4683A08C9C9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665890   (180943) от 02.10.2023
+###  Публикация: 1666524   (178833) от 05.10.2023
 
-Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
+Подшивка журналов | 2600 - The Hacker Quarterly (1984-2005) [PDF] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chorinho pra voce [4:08]
-02. Song for Maura [6:22]
-03. Di menor [4:09]
-04. Sonoroso [6:04](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 00:57:44
+2600: The Hacker Quarterly - американский журнал, специализирующийся на публикации технической информации о компьютерных и телефонных сетях, АТС, сетевых протоколах и сервисах, а также новостей «компьютерного подполья» и статей анархистского толка.Жанр: ИБЯзык: АнглийскийИздательство: 2600 Enterprises, Inc.Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B19304545F52A3A78A93214E4B5193BACCEC99A
+magnet:?xt=urn:btih:071E24582EAF20BC18F0431B3866B587125581DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593258   (180947) от 26.11.2022
+###  Публикация: 1594281   (178835) от 30.11.2022
 
-Мойдодыр (1954) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация известной одноименной сказки К. Чуковского о мальчике-грязнуле, который не любил умываться. Поэтому от него убежали все вещи. Мойдодыр заставил Мочалку и Мыло насильно вымыть неряху.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Иван Иванов-ВаноСубтитры: ОтсутствуютПродолжительность: 00:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9DDAEF89996E717D3BB6E101962C61553F43F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665822   (180948) от 02.10.2023
-
-Façade (Facade) & Locus Amoenus - (2018) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Mag - Mag (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge, Stoner>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Façade:
-01. Listen (6:19)
-02. To My Beloved One (9:58)
-Locus Amoenus:(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:35:36
+01. Kambion [00:06:27]
+02. Pragnienie [00:09:26]
+03. Czarci chwost [00:08:20]
+04. Samotnik z Providence [00:11:53](   Читать дальше...   )Жанр: Doom metal, Sludge, StonerПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B3497507E0488AED23411CCB72AA97196E04F70
+magnet:?xt=urn:btih:41D88A2AF8E3254A99C10F4C7C9ACD6FD51D4654
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665891   (180950) от 02.10.2023
+###  Публикация: 1666708   (178837) от 05.10.2023
 
-Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+Юлия Шолох | Чёрный сектор (Книга 4). Вор (2022) [MP3, Мария Куликова]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bounce [4:07]
-02. Chill [3:56]
-03. Caribbean Rain Dance [6:10]
-04. Long Lost [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:12
+Роман «Вор» – четвёртая книга цикла «Чёрный сектор».
+На необитаемую планету случайно попадают военные курсанты и студенты элитной академии – как юноши, так и девушки. Велика надежда, что их найдут и спасут, да и страшиться вроде бы нечего: на планете нет опасных хищников, а еды и воды достаточно. Но порой опасаться стоит друг друга, ведь неизвестно, кто на что окажется (   Читать дальше...   )Жанр: Космическая фантастика, Любовно-фантастические романыИздательство: 1С-ПаблишингПродолжительность: 10:50:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
+magnet:?xt=urn:btih:6A9BDD4984FE368309C46444E5797FF76DB11A22
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593313   (180952) от 26.11.2022
+###  Публикация: 1594275   (178838) от 30.11.2022
 
-Инкогнито - Наружу (2022) [MP3|320 Kbps] <Rap, Hip-hop>
+Хоккей. НХЛ 2022-2023. Каролина Харрикейнз - Питтсбург Пингвинз (29.11.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Там где [00:03:13]
-02 - Хапай [00:02:55]
-03 - Внутреnний голос [00:02:52]
-04 - Ремиссия [00:03:09](   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:30:28
+30 ноября 2022, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 942 зрителя (85% при вместимости 18 673)
+Главный судья: Тревор Хансон (Ричмонд, Канада); Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45AA4E4B6CB335ED51ECF872CE832C88D44DB5A2
+magnet:?xt=urn:btih:6805FFB43394523E925984194A662C96C02A413D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593267   (180955) от 26.11.2022
+###  Публикация: 1594232   (178841) от 30.11.2022
 
-Английский русский словарь - E v12.11.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Erudite - это приложение для изучения английского, в котором сочетаются англо-русский словарь, переводчик , дидактические карточки, разговорник и упражнения. Если хотите изучать английский наиболее эффективным способом, нет лучшего выбора, чем Erudite!Тип издания: PremiumРелиз состоялся: 11.11.2022Разработчик: EruditeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADDEEE678BEDA5F2D08ABCE8789FB265DE8F994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665746   (180956) от 02.10.2023
-
-October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Marras I
-A2 Marras II
-A3 Marras III
-A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593368   (180960) от 26.11.2022
-
-David Knopfler - Skating On The Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock>
+Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge, Stoner>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sewing on the Buttons
-02. Righteous Songs
-03. Long Time Coming Home
-04. God's Purpose(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:08:24
+01. Pod Krwawym Ksi​ę​ż​ycem [00:02:02]
+02. W tym domu wszystko było stare [00:04:27]
+03. Nekromanta [00:10:36]
+04. Alchemik [00:09:13](   Читать дальше...   )Жанр: Doom metal, Sludge, StonerПродолжительность: 00:39:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67AE5F36C7E1774888B17B046C392491F4B0E17C
+magnet:?xt=urn:btih:46335FAD80C23DAEC2F12E17234008263710DD77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592787   (180961) от 26.11.2022
+###  Публикация: 1666698   (178842) от 05.10.2023
 
-J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossless|image + .cue] <Classical, violin>
+KStars 3.6.7 [Multi/Ru]
 
->>Классика
->>Оркестровая (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sonata No. 2 BWV 1003 In A Minor (21:17)
-01. Grave
-02. Fuga
-03. Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:02:36
+KStars - бесплатное, с открытым исходным кодом, кроссплатформенное программное обеспечение для астрономии. Она обеспечивает точную графическую симуляцию ночного неба, с любой точки Земли, в любую дату и время. Экспозиция включает до 100 миллионов звезд, 13 000 объектов глубокого космоса, все 8 планет, Солнце и Луну, а также тысячи комет, астероидов, сверхновых и (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30BA3BEF78651FFC44393AD7A44A1F8754331143
+magnet:?xt=urn:btih:0DF6E2955B7EC29A6781609C59EF2A6F6BD59517
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593384   (180962) от 26.11.2022
+###  Публикация: 1666568   (178845) от 05.10.2023
 
-Исповедь / Mass (2021) BDRip [H.264/720p]
+Роуз Энн Кенни | Источник молодости (2023) [MP3, Роуз Энн]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Через несколько лет после того, как ужасная трагедия перевернула жизни двух супружеских пар, они соглашаются встретиться и поговорить. Поговорить, чтобы вновь пережить случившееся и найти силы и возможность жить дальше.Производство: США / 7 Eccles Street, Circa 1888, 5B ProductionsЖанр: драмаРежиссер: Фрэн КранцАктеры: Рид Бирни, Энн Дауд, Джейсон Айзекс, Марта Плимптон, Брида Вул, Кэген Олбрайт, Мишель Н. Картер, Майкл Уайт, Кэмпбелл СпурПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русский, Английский (Full, SDH)Продолжительность: 01:51:21
+Мысли о старении часто неприятны, и многие стараются не поднимать вопросы физического и психического благополучия в пожилом возрасте. Но старение можно отсрочить! А «золотые годы» способны стать самым ценным и приятным периодом вашей жизни, особенно если к нему готовиться. В какой-то мере в эту подготовку входит понимание, что влияет на старение и какие шаги вы можете (   Читать дальше...   )Жанр: Здоровье, ПсихологияИздательство: БОМБОРАПродолжительность: 08:16:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AEA2C4C101124744347A24022D66E467433D0A1
+magnet:?xt=urn:btih:F583181546265C55DBA44332BF02F4FC089A841D
 ```
 
 

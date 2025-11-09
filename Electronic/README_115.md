@@ -1,3 +1,243 @@
+###  Публикация: 1593942   (179279) от 29.11.2022
+
+Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal, Symphonic Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Gates Ov R'lyeh [00:04:29]
+02. Voodoo Shub-Niggurath [00:04:36]
+03. Eldritch Horror Machine [00:04:17]
+04. A Cosmic Sacrifice to Dagon [00:03:44](   Читать дальше...   )Жанр: Darksynth, Industrial Metal, Symphonic MetalПродолжительность: 2 CD, 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5DF4D052E1314DD33E008734E663C95F0B6F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594098   (179311) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy B - Ain't No Need to Hide (Rob Made Pop Mix)
+02. My Elephant Ride - Map of Stars (The Bt Project Dub Remix)
+03. Kuyano - All over Me
+04. Stev Dive - Roses in Rain(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:56:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC6785D119FA1A7081F81B2CD8811C4BE690FFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594096   (179367) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faul & Wad - Changes (Robin Schulz Remix - Radio Edit)
+02. Calmani & Grey - Winter Ocean (LIZOT Radio Edit)
+03. Viva La Panda - Get Lost
+04. Selda - Set It Off(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:58:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5E3700AA497C80FF481A4C36359AC22AFCA942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594092   (179371) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faul - Something New (Original Mix)
+02. Flip Capella - Going Crazy (Ron Starz Remix)
+03. AMIICCA - Hanging On (Original Mix)
+04. Harps & Chords - I'm Fine (Original Mix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:02:36 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A07BE593A4A753B7C8009A6C213551B33149599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594083   (179379) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flip Capella, AXXIK - Fools
+02. Deepierro, Farukki, ZHIKO - Wild Wolves
+03. Devolve - Run This Town
+04. Wildvibes, Lasso The Sun - Reunite (Axiis Remix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:06:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8377ACB2EC0199D09D5E0ACA7110D50CC79484C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593903   (179394) от 29.11.2022
+
+Dav Dralleon - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Industrial Metal, Symphonic Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Gates Ov R'lyeh [00:04:29]
+02. Voodoo Shub-Niggurath [00:04:36]
+03. Eldritch Horror Machine [00:04:17]
+04. A Cosmic Sacrifice to Dagon [00:03:44](   Читать дальше...   )Жанр: Darksynth, Industrial Metal, Symphonic MetalПродолжительность: 2 CD, 01:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1494C22FFCC4734985916DEF6B9954DA964A2B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594088   (179398) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #3 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robaer - Topmodel (Original Mix)
+02. NDEE - Millions (As One)
+03. Aribo - Goodbye (Original Mix)
+04. Roads We Walk - All Around the World (Lalala) (Radio Edit)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:59:10 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7065E4B6E191035336123FF3F6D17D08D1309F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665761   (179566) от 04.10.2023
+
+VA - Lost Language Exhibition (Mixed By Solar Stone And Ben Lost) (2003) [FLAC|Lossless|WEB|tracks + .cue] <Progressive House, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 02:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF5254F1C725D0E19DE9D9969F7C8AE52978163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666071   (179584) от 04.10.2023
+
+New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe [00:02:53]
+02. Severed [00:04:47]
+03. Brighter Days [00:03:37]
+04. Tell Me It's Over [00:04:06](   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D68549052021A44D8874ADFC2E7B40FE336730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666212   (179615) от 04.10.2023
 
 Dimi Kaye - The Neon Shredder (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthmetal>
@@ -450,249 +690,6 @@ VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592883   (181777) от 25.11.2022
-
-VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disco Boys - Promised Land
-02. Klaas - Take Me Back
-03. Lo - Angel Eyes
-04. Sam Collins - Hard Feelings(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593163   (181789) от 25.11.2022
-
-Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Finger Snap Version
-02. Watermelon Man Version
-03. Driftin' Version
-04. Hang Up Your Hang Ups Version(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A4998E8D6ABE9DC8EF37D7D55DA4186F64BBA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593055   (181804) от 25.11.2022
-
-VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
-02. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
-03. Richard Durand - Evolution (Extended Mix)
-04. Bryan Kearney - Kaia (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664872   (182150) от 30.09.2023
-
-VA - Best Of Hands Up & Hardstyle (Die Megashow) (2023) [MP3|320 Kbps] <Hardstyle, Hands Up, Hard Trance>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Withard & TreBle Dance - Guardians Of Bass (Groove-T Remix Extended) (5:51)
-02. Dual Playaz - Lost Without You (Empyre One Remix) (5:51)
-03. Addicted Craze feat. The Circus - Path To Paradise (Ti-Mo Remix) (4:47)
-04. Intusgate & Nika - Fliegen (Cc.k Remix) (5:30)(   Читать дальше...   )Жанр: Hardstyle, Hands Up, Hard TranceПродолжительность: 03:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D7073CD547CB7BFB44813135DA18FFE0ED7EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665569   (182152) от 30.09.2023
-
-Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monster in Paradise (feat. Milkie Way, Dave Lombardo, Tyler Bates) [00:05:30]
-02 - Taste like Venom [00:03:26]
-03 - Empress of the Damned (feat. Lights) [00:03:50]
-04 - Tech Noir 2 (feat. John Carpenter, Charlie Simpson) [00:05:25](   Читать дальше...   )Жанр: Synthwave, Darksynth, New WaveПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8F377161D9EEBE1F29C3EEB274DF709B00D9CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665074   (182334) от 30.09.2023
-
-Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mainstage, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)
-02. Achilles & DJ Fluke & Steeper vs. David Guetta & Bebe Rexha - Tomorrow vs. I'm Good (Achilles Mashup)
-03. Armin van Buuren ft. Anne Gudrun - Love Is A Drug
-04. Armin van Buuren - Motive (Armin van Buuren Club Mix)(   Читать дальше...   )Жанр: Mainstage, TranceПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301C5363F1F075C873517D40FC519924FB279489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665364   (182371) от 30.09.2023
-
-VA - Balearic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillson - Till the Sun Goes Down (6:15)
-02. The Soul Crusaders - The Awakening (5:40)
-03. Lennart Richter - Sunset Drift (Original Mix) (3:30)
-04. Digby Jones - Kind of Blue (Original Mix) (2:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6946B89D96E918FF4A37BE690FD28C748FE81F34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664839   (182376) от 30.09.2023
-
-Lane 8 - Fall 2023 Mixtape (2023-09-20) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Otherwish - ID
-02. Rinzen - ID
-03. Fever Ray - Shiver (Ivory Remix)
-04. Notre Dame - Yumi (Johannes Brecht Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B8B961D2A62DB74014928C9FDCB06E74E4BE85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665439   (182396) от 30.09.2023
-
-VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eligos - Feel Your Body Closer [02:54]
-02. Sam Collins - Pancake [03:29]
-03. Chris Simmons - My Heart [04:15]
-04. Dualhï - Say That You Love Me (Lalala) [02:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
 ```
 
 

@@ -1,692 +1,639 @@
-###  Публикация: 1650121   (227673) от 30.07.2023
+###  Публикация: 1830002   (202454) от 26.10.2025
 
-Арктика. Огонь (2010) SATRip
+Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Северный полюс всегда манил к себе, но из-за сурового климата Арктики во все времена покорить его было крайне тяжело.
-В XXI веке это решили сделать… дети. Группа талантливых российских ребят получила уникальную возможность совершить переход от полярной станции до Северного полюса. Экспедицией руководил знаменитый исследователь Арктики Матвей Шпаро.
-30 лет назад именно (   Читать дальше...   )Производство: Россия, НТВЖанр: документальный, история, путешествияРежиссер: Алексей ЕгоровЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:30:21
+В этом расширенном и дополненном издании полюбившейся игрокам классики Stronghold Crusader вы сможете отправиться во времена крестовых походов на Святую землю. Участвуйте в исторических боях в пустыне, оцените новый геймплей и улучшенную графику, тщательно переработанные с большим вниманием к исходным деталям, музыку и озвучку. Над игрой трудились актеры, композитор (   Читать дальше...   )Тип издания: SceneРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:141351E97CF13B38B63E0DC524E7B9AC81FBAE7E
+magnet:?xt=urn:btih:9B7CCCB58E97F0F9970A34E9BBDE6A477A2D2018
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650034   (227679) от 30.07.2023
+###  Публикация: 1830008   (202455) от 26.10.2025
 
-Art Nation - Inception (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Win Игры
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brutal & Beautiful (4:12)
-02. Last Of The Burned (4:02)
-03. 1001 (3:18)
-04. Fight Fire With Fire (3:36)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:16
+Niche, генетическая игра на выживание, свежая смесь пошаговой стратегии и симуляции, смешанная с элементами рогалика. Создайте свой собственный вид похожими на котов, лис, медведей, собак, основанный на реальной генетике. Сохраните ваших животных в живых против всех опасностей, таких как голодные хищники, изменения климата и распространяющиеся болезни. Если ваш вид (   Читать дальше...   )Тип издания: LicenseРазработчик: Stray Fawn StudioЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E1AE5F1EE62EBF92145C35DA6A1718E98D8DA87
+magnet:?xt=urn:btih:9A66EE066122ABB7DA2C19AD90AD33F9FCF74582
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650114   (227687) от 30.07.2023
+###  Публикация: 1830017   (202456) от 26.10.2025
 
-ГхЛхДхМхР - 7 Albums (2020-2023) [MP3|320 Kbps] <Hardcore, Crust Punk>
+Lords of Ravage (2025) [Ru/Multi] (1.0-1-26) Repack FitGirl
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-ГхЛхДхМхР - 2020 - Infernum
-ГхЛхДхМхР - 2020 - Карцер
-ГхЛхДхМхР - 2021 - Agonia(   Читать дальше...   )Жанр: Hardcore, Crust PunkПродолжительность: 7CD, 02:22:32
+Lords of Ravage - это тактическая ролевая с элементами рогалика в мире мрачного фэнтези. Возглавьте армию последователей, взяв на себя роль одного из Владык Разорения. Играйте в своем стиле, комбинируя приспешников из разных фракций и сокрушая целые королевства. Расправляйтесь со вставшими на пути героями в зрелищных пошаговых сражениях и захватывайте земли в поисках (   Читать дальше...   )Тип издания: RepackРазработчик: Synthetic DomainЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4338E4AA4F590A44EFFBE775A5C1558F93BDFC82
+magnet:?xt=urn:btih:13815FF536598CA07F92E6EFD46FF7248D01FB12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646669   (227694) от 30.07.2023
+###  Публикация: 1830022   (202457) от 26.10.2025
 
-АК-47 - Третий (2015) [FLAC|44.1/16,24|tracks|WEB-DL] <Rap, Hip-Hop>
+Пресеты - Pat Kay - The Complete Collection - Adobe Lightroom Preset Pack [XMP, DNG]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Большая дама [00:03:29] 16/44.1
-02. Дай 5 [00:04:48]
-03. No Pasaran!!! [00:04:14]
-04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
+56 профессиональных пресетов Adobe Lightroom для любого стиля фотографии.
+
+Бонусом к пресетам к комплекту также идет набор мобильных обоев из авторских снимков.Формат: XMP, DNG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
+magnet:?xt=urn:btih:A857FC094308C7507A0F70F07D17E66A179F01D1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649883   (227702) от 30.07.2023
+###  Публикация: 1830018   (202458) от 26.10.2025
 
-The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly>
+BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack seleZen
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. New Obsession [00:02:10]
-02. Ifs Buts & Maybes [00:02:59]
-03. Whatcha Gonna Do [00:02:38]
-04. Hey Little Girl [00:03:00](   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:47:44
+BALL x PIT - динамичный фэнтезийный рогалик, где герои ищут шары, чтобы спуститься глубже в яму, полную монстров. Создавайте мистические орудия, добывайте ресурсы и нанимайте помощников для поисков сокровищ. Шарвилон пал. Все, что осталось от великого города после падения метеорита, - это зловещая зияющая яма. Искатели со всего мира устремляются в её глубины в поисках (   Читать дальше...   )Тип издания: RepackРазработчик: Kenny SunЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70E0ADF5B64FD5087C744A5323845A11EE3696D3
+magnet:?xt=urn:btih:AA8607045BFC4B889762510621961CAFD1E1394F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649928   (227708) от 30.07.2023
+###  Публикация: 1830020   (202459) от 26.10.2025
 
-Red Baron Band - Last Chance (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Prog Rock, Female Vocals>
+Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Victoria [00:03:33]
-02. Working Hard [00:04:15]
-03. Strange Spider [00:03:18]
-04. Have You Ever Been [00:05:25](   Читать дальше...   )Жанр: Hard Prog Rock / Female VocalsПродолжительность: 00:42:56
+Total War: Three Kingdoms - эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: RepackРазработчик: Creative AssemblyЖанр: Экшены, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E08D403717FAD30B22F1A08C0DBD0C7425F3404
+magnet:?xt=urn:btih:1D718FF4E6FF762DFDCE46FB175AB80F98A135E6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649943   (227716) от 30.07.2023
+###  Публикация: 1830023   (202460) от 26.10.2025
 
-Arch Blade - Kill The Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Win Игры
+>>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abduction [00:03:34]
-02. Nightbreed [00:02:58]
-03. Tyrant Rhapsody [00:04:31]
-04. Kill The Witch [00:04:28](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:53
+Покорите мир моторного спорта США, полюбуйтесь головокружительными пейзажами и выберите любимый транспорт из сотен моделей. Участвуйте в захватывающих состязаниях по всей территории Америки и проявите себя в самых разных дисциплинах. Сохраняйте напряженные моменты и делитесь ими одним нажатием кнопки Слава ждет вас!Тип издания: RepackРазработчик: Ivory TowerЖанр: Экшены, ГонкиЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C76D808548F7FFAE9FEACEA07A4AEF5C4C92030
+magnet:?xt=urn:btih:1401B2B6A1F208B1A62F36120AFA687CF2ECEBF0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650032   (227722) от 30.07.2023
+###  Публикация: 1830043   (202461) от 26.10.2025
 
-Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
+Flud v1.12.0 Mod by youarefinished [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rivers Run Dry (4:49)
-02. Nullarbor Plain (3:31)
-03. State Of My Emotion (3:48)
-04. Bury Me (Backing Vocals – Kasey Chambers) (4:14)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:25
+Flud - простой и элегантный BitTorrent клиент для операционной системы Android. Все возможности протокола BitTorrent на Вашем мобильном устройстве. Скачивайте и раздавайте файлы непосредственно со своего смартфона или планшета.Тип издания: AdFreeРелиз состоялся: 25.10.2025Разработчик: Delphi SoftwaresПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0199343F9311E46939BA2100550EE71E11A34063
+magnet:?xt=urn:btih:321B489B4D6670AEA8D975DF39946C655DEDA9C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649770   (227729) от 30.07.2023
+###  Публикация: 1830169   (202462) от 26.10.2025
 
-Flight - Echoes Of Journeys Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+FacePic - AI Face App v3.1.0 Pro Mod by Mixroot [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hypatia [00:06:09]
-02. Valley of the Moon [00:05:20]
-03. Comet of Gold [00:05:08]
-04. Echoes of Journeys Past [00:04:17](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:26
+FacePic — приложение AI Face, приложение для легкого редактирования лиц с помощью ИИ, которое позволит вам вывести свои селфи на новый уровень. Благодаря широкому выбору фильтров для лица, эффектов Facetune и замены лиц вы будете поражены тем, как быстро вы сможете добиться фотореалистичных результатов. Попрощайтесь с обычными фотографиями — хотите ли вы изменить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.10.2025Разработчик: Photo Collage & Grid - Foto GridПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:729D326D7C2EF33F8BBC78435DBD60E25BF125A9
+magnet:?xt=urn:btih:C4BAB17E804B459BB1D2C49424A601D22DB74E09
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649977   (227738) от 30.07.2023
+###  Публикация: 1830267   (202463) от 26.10.2025
 
-Redhaze - Time 2 Ride (2023) 2 x CD [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1 - The Album :
-01. Angel of Mine (6:00)
-02. Everything (4:37)
-03. I Depend (4:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:56:44
+Проверьте свой экран и выясните, есть ли у него неприятности. С помощью этого инструмента тестирования вы можете проверить LCD/OLED-экран вашего устройства. Он предназначен для полноэкранного тестирования в устройствах ICS/Honeycomb путем скрытия программных клавиш.Тип издания: ProРелиз состоялся: 26.10.2025Разработчик: BraintrappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35A1178247871C48D33789447816CD8308127F1E
+magnet:?xt=urn:btih:7D8EE7A9FDA4752C80742C928FBE038961061E08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649781   (227752) от 30.07.2023
+###  Публикация: 1830312   (202464) от 26.10.2025
 
-Gator, The Alligator - Laminar Flow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock, Psychedelic Rock>
+Юлия Жижерина | Персональные данные. Как учесть всё (2025) PCRec [AD] [RU]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A New Way [00:02:18]
-02. Can't You See? [00:05:11]
-03. Life You Dreamed [00:04:05]
-04. Morning Light [00:05:06](   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Psychedelic RockПродолжительность: 00:35:42
+Тема важная, нужная и сложная. Мы регулярно проводим этот вебинар, а интерес к нему не утихает. И вот, мы опять проводим этот вебинар, обновляем все материалы, добавляем материалы по трансграничной передаче и обезличиванию.Жанр: вебинар, делопроизводствоЯзык озвучки: русскийПродолжительность: 03:15:35Реклама: наложение на видео (плашка спонсора)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB1F8DB66C6B22B352A792CEB72B629C9434FAF
+magnet:?xt=urn:btih:37BA73866B30714D06BB7B1060A88FE8BBAA86E3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649831   (227762) от 30.07.2023
+###  Публикация: 1830421   (202465) от 26.10.2025
 
-Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Dark Jazz>
+Алексей Филатов | Заметки профайлера (2019) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meeny Moe [00:08:28]
-02. The Moist Trail [00:05:17]
-03. Quickcest [00:07:45]
-04. My Seeds Gone Sprout [00:06:24](   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Dark JazzПродолжительность: 00:41:04
+Эта книга – сборник наиболее интересных статей моего канала в телеграм ProProfiling. Канал посвящен небанальным новостям из области профайлинга, нейротехнологий и детекции лжи. Канал объединяет большое количество не только профессионалов в этих областях, но и начинающих, которые ищут качественный контент. Он существует уже почти 3 года и каждый день там появляется (   Читать дальше...   )Жанр: Криминальная психология, Личный опыт, О психологии популярноИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3D501F38671882B0EA8FADDE1A0F97777DB67FC
+magnet:?xt=urn:btih:F15E68BCC7FC994BC14D0E0C01C49FF5F9189F93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650060   (227806) от 30.07.2023
+###  Публикация: 1830303   (202466) от 26.10.2025
 
-Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, Indie Pop>
+Валерий Лейбин | Психоаналитическая традиция и современность (2012) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. PRBLMS [00:02:06]
-02. grown folk problems [00:02:47]
-03. Nervous [00:02:08]
-04. BAD MOOD [00:02:09](   Читать дальше...   )Жанр: Alternative Pop Punk, Indie PopПродолжительность: 00:29:30
+В книге представлены исследования и материалы, отражающие авторские размышления об актуальных проблемах психоанализа. Предметом осмысления являются вопросы, касающиеся перипетий развития психоанализа в России, эволюции психоаналитических идей о сексуальности, любви и нарциссизме, дискуссий, нашедших отражение в зарубежной и отечественной литературе, а также тех новых (   Читать дальше...   )Жанр: Практическая психологияИздательство: Когито-ЦентрФормат: DJVUКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5EB169FD730082EA3D8626B31B07ECD89E459E0
+magnet:?xt=urn:btih:50D1123E16EB2660C0D7BB322359FF1F53550506
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650002   (227814) от 30.07.2023
+###  Публикация: 1830279   (202467) от 26.10.2025
 
-Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Rock>
+Борис Пасхавер | Pandas в действии (2023) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Деад принцесс [00:03:05]
-02 - Не кури [00:03:33]
-03 - Никто [00:04:34]
-04 - Мантра [00:04:03](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:16
+Язык Python помогает упростить анализ данных. Если вы научились пользоваться электронными таблицами, то сможете освоить и pandas! Несмотря на сходство с табличной компоновкой Excel, pandas обладает большей гибкостью и более широкими возможностями. Эта библиотека для Python быстро выполняет операции с миллионами строк и способна взаимодействовать с другими инструментами. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3512B4FF40FE4FAAE8259B939458B681CD4583FE
+magnet:?xt=urn:btih:4AADD968AE87679FD6D7B28BE2A4C396237B3D68
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650028   (227823) от 30.07.2023
+###  Публикация: 1830261   (202468) от 26.10.2025
 
-Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Никита Ткаченко | Основы анализа данных на языке R. Пошаговый разбор методов (2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No One Knows Your Name (4:22)
-02. Come On (4:09)
-03. Destiny (4:46)
-04. I Am Ready (5:05)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:45
+Эта книга обеспечит читателя жизненно важными инструментами и знаниями, необходимыми для успешной работы с данными. Вы освоите полный процесс сбора, обработки, валидации и восполнения пропущенных данных с помощью кода на языке R. Для работы с примерами достаточно лишь базового понимания языка, а некоторые главы вообще не требуют навыков программирования.Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFB0239B6B88434903059A81202A400091548EEB
+magnet:?xt=urn:btih:78312A669759B01B40BD6797997D1BC7F03D9D33
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649901   (227831) от 30.07.2023
+###  Публикация: 1830229   (202469) от 26.10.2025
 
-Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Мариус Бансила | Решение задач на современном С++ (2019) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Entrance [00:03:00]
-02. On Lamp [00:03:47]
-03. Tape [00:06:48]
-04. Venus [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:38
+Эта книга – сборник практических задач по языку С++17: от математических и вычислительных до архитектурных, построенных на базе шаблонов проектирования. Здесь собрано 100 задач, которые помогут вам применить на практике разнообразные возможности C++ и его стандартной библиотеки, а также опробовать множество сторонних, кроссплатформенных библиотек. Решения представлены (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Александрa КиселевaИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7835601A5279195EA050FA82CC0908597C6BF056
+magnet:?xt=urn:btih:F3B0579A94221FC39668F872B7CABA8CA7BBE2EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649986   (227840) от 30.07.2023
+###  Публикация: 1830184   (202470) от 26.10.2025
 
-Omni Downloader 1.4.4 [En]
+Авторский коллектив | Искусственный интеллект глазами хакера (2025) [PDF]
 
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Omni Downloader — простое и интеллектуальное приложение под macOS для TikTok Downloader, YouTube Downloader, YouTube to MP3 Converter, iPhone Ringtone Maker и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+Эта книга — сборник лучших, тщательно отобранных статей из легендарного журнала «Хакер». Рассмотрены современные подходы к использованию искусственного интеллекта в области информационной безопасности. Описаны методы обхода ограничений ChatGPT, рассмотрено применение нейросетей для написания эксплойтов и поиска уязвимостей в коде. Представлены практические кейсы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACAF6C056360D64C3C830921D5E7694E2FC0B086
+magnet:?xt=urn:btih:F5342D90D3BBC9F695F14E3A6D00CE756E6E1927
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649692   (227846) от 30.07.2023
+###  Публикация: 1830483   (202471) от 26.10.2025
 
-Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Slainth Mhath (Nearfest Live) [00:05:38]
-02. Circle Line (Nearfest Live) [00:06:36]
-03. Square Go (Nearfest Live) [00:05:10]
-04. Open Water (Nearfest Live) [00:09:46](   Читать дальше...   )Жанр: RockПродолжительность: 02:51:36
+Начало нулевых. Вы, сияя от гордости, плюхаетесь на сиденье своей первой тачки. Лето впереди - длинное, как шоссе, и такое же манящее. И тут внезапно ветром доносит весть о фестивале на краю света. Недолго думая, вы крутите ключ зажигания, сверяетесь с картой и пускаетесь в путь навстречу неизведанному. С Keep Driving вы перенесётесь в атмосферу неспешного роуд-трипа, (   Читать дальше...   )Тип издания: RepackРазработчик: YCJY GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F5B0C419B15A080BD7805A9C9F81E22EC496EF7
+magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649988   (227854) от 30.07.2023
+###  Публикация: 1830484   (202472) от 26.10.2025
 
-Omni Remover 4.0.6 [Multi]
+Tempra Rose - Blues Of The Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Omni Remover - это универсальный пакет для поддержания вашего Mac в хорошей форме. Он может очистить остатки удаленных приложений, очистить оставшиеся 32-разрядные и потерянные приложения и выполнить оптимизацию хранилища по требованию в macOS Catalina.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+01.  Tempra Rose - Back to St. Louis (4:29)
+02.  Tempra Rose - Thighs and Prayers (4:35)
+03.  Tempra Rose - Blues of The Soul (5:03)
+04.  Tempra Rose - The Old Time Religion (3:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB0DB68407C0B5EF5BDAEC1836A7AABA038C0A3B
+magnet:?xt=urn:btih:409A08FD22F34C5C076A1F4F54C7B7182A6A4B1C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649870   (227861) от 30.07.2023
+###  Публикация: 1830482   (202473) от 26.10.2025
 
-Uncle Acid and the Deadbeats - Slaughter On First Avenue (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Doom Metal>
+Lindsey Buck - The Laundry and the Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I See Through You (Live) [00:07:41]
-02. Waiting for Blood (Live) [00:04:52]
-03. Death's Door (Live) [00:08:18]
-04. Shockwave City (Live) [00:04:28](   Читать дальше...   )Жанр: Psychedelic Rock, Doom MetalПродолжительность: 01:25:30
+01.  Breathe (5:00)
+02.  Devil Inside Me (3:16)
+03.  Quiet Town (4:44)
+04.  Walk Lightly (6:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC9E04F5D4C5E84604F342AB0A9C7BEA03FEF0D9
+magnet:?xt=urn:btih:434FE44E240AC5D6A35169E7AF60174D45156FA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649935   (227868) от 30.07.2023
+###  Публикация: 1830481   (202474) от 26.10.2025
 
-Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Hard Rock, Modern Rock>
+Jay Hooks - Tequila & Bullets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Im Changing [00:04:06]
-02. Molotov Cocktail [00:04:39]
-03. First Sin [00:01:04]
-04. Falling Down [00:03:17](   Читать дальше...   )Жанр: Progressive, Hard Rock, Modern RockПродолжительность: 00:45:51
+01.  Evinrude Boat Motor (2:06)
+02.  Tequila & Bullets (4:19)
+03.  A Woman Like You (4:16)
+04.  Lonesome (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F77B7811D750C4D02DA76B2571938FBEC6A4FFAE
+magnet:?xt=urn:btih:C7CBCB0E3A92055940F2A228D87C4A2E53022E11
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650093   (227875) от 30.07.2023
+###  Публикация: 1830475   (202475) от 26.10.2025
 
-Dogs Of Neptune - Zero (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy, Power Metal>
+The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Odds Against Us
-02. Filthy Lies
-03. Sound of a Ghost
-04. Start of It All(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 00:43:43
+01.  A Fading Gleam (4:22)
+02.  The Love Of My Life (2:52)
+03.  Love That Never Began (1:57)
+04.  On This Lonely Road (2:36)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:35:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA82D2F8F808450B25B7BA4E39F9E369D9E06E88
+magnet:?xt=urn:btih:E5B11E3202F70A226F4EF3948650AA7C30453E0E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649807   (227882) от 30.07.2023
+###  Публикация: 1830199   (202476) от 26.10.2025
 
-Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - Warner Records [MP3|320 Kbps] <Southern Rock, Blues Rock>
+WPS Office + PDF v18.21.2 Mod by Balatan [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Disc 1: Sailin’ Shoes (2023 Remaster)
-Disc 2: Hotcakes, Outtakes, Rarities & Thank You! I’ll Eat It Here: Live at the Palladium, Los Angeles, CA 8/28/71Жанр: Southern Rock, Blues RockПродолжительность: 2CD, 01:56:19
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.10.2025Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A50BD4BF2F648AB0D1FA6BA608F5901E15D4194
+magnet:?xt=urn:btih:A03F33A7D9F39C70F1A1522567DC22810770E9A1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649932   (227889) от 30.07.2023
+###  Публикация: 1830459   (202477) от 26.10.2025
 
-SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Voices) [00:02:28]
-02. Only the children knows [00:04:08]
-03. The old singer of humanity [00:03:58]
-04. Living by the spirits [00:04:57](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:15:38
+01.  Me and My Piano (3:08)
+02.  Feel Good (3:05)
+03.  Dance To My Own Beat (2:40)
+04.  Runaway Love (2:49)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8C21B4671E165C5D9DA69920B0BAA4FF170E2EA
+magnet:?xt=urn:btih:D6488E3B0EBACD83E58B13C56705CE723A2D5825
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649778   (227896) от 30.07.2023
+###  Публикация: 1830168   (202478) от 26.10.2025
 
-William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock, Indie rock>
+Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Puppet And The Puppeteer [00:06:01]
-02. The Bruises [00:04:04]
-03. Sheepskin Sleeve [00:04:47]
-04. L.W.Y. [00:03:59](   Читать дальше...   )Жанр: Alt Rock, Indie rockПродолжительность: 00:45:39
+Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 26.10.2025Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4203894F8DAB550259FB8403AF878271F72E310E
+magnet:?xt=urn:btih:5FC895E98823BD138DB2A5F6622032BC50DFF4B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649693   (227907) от 30.07.2023
+###  Публикация: 1830301   (202479) от 26.10.2025
 
-Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+CCleaner Pro: ПО для очистки 25.21.0 Mod by Balatan [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amongst the Low & Empty [00:04:00]
-02. Tower of Torsos [00:03:29]
-03. Pray for Death [00:03:38]
-04. Borrowed Time [00:02:57](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:42:10
+CCleaner - один из самых известных и популярных инструментов для очистки пространства мобильного устройства. С его помощью можно удалять ненужные файлы, освобождать место, анализировать состояние системы и с высокой степенью безопасности находиться в интернете, а так же многие другое. С данной программой пользователи получат практически полный контроль над гаджетом (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.10.2025Разработчик: PiriformПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80A9CB33557A36744911756ECD6C47B76DF41B8E
+magnet:?xt=urn:btih:D3652267B906FB747A3982554FF674B76D63D0AA
 ```
 
 

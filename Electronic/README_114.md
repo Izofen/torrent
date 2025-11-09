@@ -1,3 +1,219 @@
+###  Публикация: 1335363   (175081) от 08.12.2020
+
+Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydub, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Strange Attractor (Radioactive Sandwich Remix) 06:49
+02. For the Time Being (Geoglyph Remix) 06:42
+03. One Step Beyond (Pangani Remix) 07:57
+04. Kaleidoscope Tribe (Kuba Remix) 05:23(   Читать дальше...   )Жанр: Downtempo, Psydub, PsychillПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F386695DA9C285DD3C915734903734DA0CA283FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595669   (175103) от 06.12.2022
+
+Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:57]
+02. Violence (No End In Sight) [00:05:04]
+03. Emptiness [00:04:21]
+04. Hurt [00:04:58](   Читать дальше...   )Жанр: Dark Electro, EBM, FuturepopПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468C8B3B915F08960BC8F125020F24028B6A07AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667859   (175307) от 10.10.2023
+
+Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Due Sono Uno A Roma
+02 – Sin Retorno
+03 – Pensar No Es Sentir
+04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667864   (175323) от 10.10.2023
+
+MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MEDUZA - Friends
+02. Adapter - No No!
+03. Mau P & Kevin de Vries - Metro
+04. MEDUZA - Slowdown w/MEDUZA ft. Dermot Kennedy - Paradise (Acappella)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 02:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667854   (175376) от 10.10.2023
+
+Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Brazil (2023-04-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Rateuke - Oudara (Club Mix)
+02. ID - ID
+03. Shiba San & Nautik - Drop That Shhh
+04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 04:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595523   (175515) от 05.12.2022
+
+2DCAT - Fantastic Voyage (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star (Vinyl Version) [00:03:48]
+02. Come Back To Me (Vinyl Version) [00:03:34]
+03. Give Up (Vinyl Version) [00:03:18]
+04. Stay With Me (Vinyl Version) [00:03:12](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C362F1F4363E236CBEF873E0D9ECD08DB5D368C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429710   (175991) от 07.12.2020
+
+Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <Ambient, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Arrival (02:49)
+2. Gone For A Wander (03:13)
+3. Sunshine In 1929 (03:45)
+4. Water Theme (03:17)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700A9BDA811124BD74EEE9B2E327D8F748C06C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429719   (176025) от 07.12.2020
+
+Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + .cue] <IDM, Experimental, Deconstructed Club>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hypnic Jerks (03:52)
+2. Vacuum Angle (03:17)
+3. Mirror Instant (03:57)
+4. Metrogazer (05:13)(   Читать дальше...   )Жанр: IDM, Experimental, Deconstructed ClubПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2770F566B7275F33172227F5E16180EF989F5D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595260   (176162) от 04.12.2022
 
 Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
@@ -20,6 +236,33 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B692C29D66FB7628C6B010C7D0C73AF3FBCF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100474   (176172) от 06.12.2020
+
+Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Post Rock, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North (07:59)
+ 02. West (04:07)
+ 03. East (07:44)
+ 04. South (06:47)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 42:01:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1B4B00C32B1137A76B6479413F6C7969A753EC
 ```
 
 
@@ -452,246 +695,6 @@ Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF4C868280CF2DFC4A3CDA6F397F3B824734113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593942   (179279) от 29.11.2022
-
-Dav Dralleon - 2 Albums (2021-2022) [MP3|320 Kbps] <Darksynth, Industrial Metal, Symphonic Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Gates Ov R'lyeh [00:04:29]
-02. Voodoo Shub-Niggurath [00:04:36]
-03. Eldritch Horror Machine [00:04:17]
-04. A Cosmic Sacrifice to Dagon [00:03:44](   Читать дальше...   )Жанр: Darksynth, Industrial Metal, Symphonic MetalПродолжительность: 2 CD, 01:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5DF4D052E1314DD33E008734E663C95F0B6F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594098   (179311) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection #7 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandy B - Ain't No Need to Hide (Rob Made Pop Mix)
-02. My Elephant Ride - Map of Stars (The Bt Project Dub Remix)
-03. Kuyano - All over Me
-04. Stev Dive - Roses in Rain(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:56:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC6785D119FA1A7081F81B2CD8811C4BE690FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594096   (179367) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faul & Wad - Changes (Robin Schulz Remix - Radio Edit)
-02. Calmani & Grey - Winter Ocean (LIZOT Radio Edit)
-03. Viva La Panda - Get Lost
-04. Selda - Set It Off(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:58:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5E3700AA497C80FF481A4C36359AC22AFCA942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594092   (179371) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faul - Something New (Original Mix)
-02. Flip Capella - Going Crazy (Ron Starz Remix)
-03. AMIICCA - Hanging On (Original Mix)
-04. Harps & Chords - I'm Fine (Original Mix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:02:36 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A07BE593A4A753B7C8009A6C213551B33149599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594083   (179379) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flip Capella, AXXIK - Fools
-02. Deepierro, Farukki, ZHIKO - Wild Wolves
-03. Devolve - Run This Town
-04. Wildvibes, Lasso The Sun - Reunite (Axiis Remix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:06:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8377ACB2EC0199D09D5E0ACA7110D50CC79484C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593903   (179394) от 29.11.2022
-
-Dav Dralleon - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Industrial Metal, Symphonic Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Gates Ov R'lyeh [00:04:29]
-02. Voodoo Shub-Niggurath [00:04:36]
-03. Eldritch Horror Machine [00:04:17]
-04. A Cosmic Sacrifice to Dagon [00:03:44](   Читать дальше...   )Жанр: Darksynth, Industrial Metal, Symphonic MetalПродолжительность: 2 CD, 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1494C22FFCC4734985916DEF6B9954DA964A2B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594088   (179398) от 29.11.2022
-
-VA - House Radio 2022 - The Ultimate Collection #3 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robaer - Topmodel (Original Mix)
-02. NDEE - Millions (As One)
-03. Aribo - Goodbye (Original Mix)
-04. Roads We Walk - All Around the World (Lalala) (Radio Edit)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:59:10 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7065E4B6E191035336123FF3F6D17D08D1309F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665761   (179566) от 04.10.2023
-
-VA - Lost Language Exhibition (Mixed By Solar Stone And Ben Lost) (2003) [FLAC|Lossless|WEB|tracks + .cue] <Progressive House, Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 02:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF5254F1C725D0E19DE9D9969F7C8AE52978163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666071   (179584) от 04.10.2023
-
-New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe [00:02:53]
-02. Severed [00:04:47]
-03. Brighter Days [00:03:37]
-04. Tell Me It's Over [00:04:06](   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D68549052021A44D8874ADFC2E7B40FE336730
 ```
 
 
