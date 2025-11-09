@@ -6,7 +6,7 @@ Exposure X6 v6.0.6.211  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241099.jpgsave_picture_241099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241099.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IDM UltraCompare Pro 22.20.0.26 / UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241100.jpgsave_picture_241100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241100.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Summer Dance Vibes, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241101.jpgsave_picture_241101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241101.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A61B496680421D1EE3B83525DEC40E1C0DC7B3AB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241102.jpgsave_picture_241102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241102.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1A29558453BD62A2DF90724EE7D829928665E012
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241103.jpgsave_picture_241103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241103.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The William Loveday Intention - Early Demos, Vol. 2 (The Devil and God Entwined)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241104.jpgsave_picture_241104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241104.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Весенний хит русского шансона. Сборник №
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241105.jpgsave_picture_241105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241105.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ MacX DVD Ripper Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241106.jpgsave_picture_241106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241106.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:DDC0A0B959652661078E2A97F8E9CC42C7352BD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241107.jpgsave_picture_241107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241107.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:425417276A28DA6774DFF7A01FB015CF6E4942FC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241108.jpgsave_picture_241108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241108.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Hasleo Windows ISO Downloader 1.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241109.jpgsave_picture_241109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241109.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Terry Donaghue - Shades of Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241110.jpgsave_picture_241110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241110.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:88922F1424BA24D4B1D6CE25135A19D9ACA88E71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241111.jpgsave_picture_241111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241111.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241112.jpgsave_picture_241112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241112.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241113.jpgsave_picture_241113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241113.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:773C85FF8D475808F3E187DDC835120B9FE10D98
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241114.jpgsave_picture_241114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241114.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ RTG. Музей-усадьба Льва Толстого "Ясная Полян�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241115.jpgsave_picture_241115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241115.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:974584F0E701AAA85F06F4943F4DEF77F1BA5958
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241116.jpgsave_picture_241116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241116.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mozilla Thunderbird 102.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241117.jpgsave_picture_241117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241117.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hulkoff - Pansarfolk (2020) 2xCD [FLAC|Lossless|image + .cue] <Folk Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241118.jpgsave_picture_241118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241118.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:50BF3254F7FDAEDD39A229F193B1AF7F28693CE7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241119.jpgsave_picture_241119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241119.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6918FD5B44EFE3E74D1F0E6DD89274FF17B7F6F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241120.jpgsave_picture_241120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241120.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Pure Trance: 50 Trance Classics, Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241121.jpgsave_picture_241121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241121.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Darkthrone - Goatlord (Original) (2023) [FLAC|Lossless|WEB-DL|tracks] <Death met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241122.jpgsave_picture_241122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241122.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Adobe Audition 2022 22.3.0.60 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241123.jpgsave_picture_241123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241123.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ GPU Shark 0.29.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241124.jpgsave_picture_241124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241124.jpg" />
 </div>
 
 

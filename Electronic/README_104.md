@@ -6,7 +6,7 @@ Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157962.jpgsave_picture_157962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157962.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157995.jpgsave_picture_157995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157995.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158245.jpgsave_picture_158245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158245.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158248.jpgsave_picture_158248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158248.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Ornament - Bleu (2004) [FLAC|Lossless|tracks] <Downtempo, Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158260.jpgsave_picture_158260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158260.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158268.jpgsave_picture_158268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158268.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158380.jpgsave_picture_158380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158380.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158491.jpgsave_picture_158491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158491.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Private Beach (Chillout Edition) (2015) [MP3|320 кб/с] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158504.jpgsave_picture_158504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158504.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158646.jpgsave_picture_158646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158646.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158678.jpgsave_picture_158678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158678.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158914.jpgsave_picture_158914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158914.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Technimatic - For All Of Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, L
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158921.jpgsave_picture_158921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158921.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pythius - Turmoil (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Neurofunk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158941.jpgsave_picture_158941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158941.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158942.jpgsave_picture_158942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158942.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - The Best Of House 2023 Part 1 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158970.jpgsave_picture_158970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158970.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Space Holidays Vol. 14 (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158974.jpgsave_picture_158974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158974.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158987.jpgsave_picture_158987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158987.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Space Holidays Vol. 11 (2019) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159005.jpgsave_picture_159005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159005.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Miseria Ultima - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159011.jpgsave_picture_159011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159011.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NEONIC - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159022.jpgsave_picture_159022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159022.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159041.jpgsave_picture_159041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159041.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Easy Listening Chill Affairs, Vol. 3 (2023) [MP3|320 Kbps] <Electronic, Eas
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159227.jpgsave_picture_159227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159227.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159235.jpgsave_picture_159235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159235.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Easy Listening Chill Affairs, Vol. 2 (2023) [MP3|320 Kbps] <Electronic, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159253.jpgsave_picture_159253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159253.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpgsave_picture_159566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpg" />
 </div>
 
 

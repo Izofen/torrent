@@ -6,7 +6,7 @@ Calibre 7.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpgsave_picture_110347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpgsave_picture_110348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MAGIX Samplitude Pro X8 Suite 19.1.3.23431 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpgsave_picture_110349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Icecream Photo Editor Pro 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpgsave_picture_110350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:AF36058CEA2F28BD72E41868ECBDC4DA550C1181
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110351.jpgsave_picture_110351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110351.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Bathym - Into Darkness (1990) Demo, Reissue, 2023, Doomed to Obscurity Records [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpgsave_picture_110352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpgsave_picture_110353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Privacy Eraser Free 6.6.3 Build 4909 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110354.jpgsave_picture_110354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110354.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:FCA29BD60D01DC15235DFB3281A67FAB43032F64
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110355.jpgsave_picture_110355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110355.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Most Relaxing Music Academy, Jazz Lounge Zone - Jazz Affinity: Connecting Throug
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpgsave_picture_110356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpgsave_picture_110357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Jazz Chillout - Jazz in Eden (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpgsave_picture_110358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Opera Trance featuring Emma Shapplin - Spente Le Steele (Part 2 - The Remixes) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpgsave_picture_110359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Written on Water - Like dewdrops, like diamonds (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpgsave_picture_110360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:36044414FA11D076C61F4FB1BD946A356E6B7307
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110361.jpgsave_picture_110361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110361.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpgsave_picture_110362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sergio (Sérgio) Pereira - Bossa+ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpgsave_picture_110363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpgsave_picture_110364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpgsave_picture_110365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7B6B6D7616788F573EEDF172C51B81C49C07B17B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110366.jpgsave_picture_110366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110366.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Jola Recchioni - Wrongtime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpgsave_picture_110367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Jeff Pitchell - Brown Eyed Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpgsave_picture_110368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110369.jpgsave_picture_110369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110369.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpgsave_picture_110370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpgsave_picture_110371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpgsave_picture_110372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpg" />
 </div>
 
 

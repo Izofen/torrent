@@ -6,7 +6,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116190.jpgsave_picture_116190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116195.jpgsave_picture_116195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116195.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116203.jpgsave_picture_116203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116203.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Temperance - 9 Releases (2014-2023) [MP3|320 Kbps] <Modern Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116240.jpgsave_picture_116240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116240.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Boystown - Angels with Dirty Faces (2005) [FLAC|Lossless|WEB-DL|tracks] <AOR, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116320.jpgsave_picture_116320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116320.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ataraxy - Curse of the Requiem Mass (2010) EP [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116324.jpgsave_picture_116324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116324.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Grin - Hush (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, Stoner, Oc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116327.jpgsave_picture_116327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116327.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ My Darkest Time - The Last (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116331.jpgsave_picture_116331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116331.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ataraxy - Where All Hope Fades (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116333.jpgsave_picture_116333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116333.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ataraxy - Revelations of the Ethereal (2012) Reissue, 2020, Dark Descent Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116334.jpgsave_picture_116334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116334.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B9BF3AA7C8AC2FD5E696128C31594F7F312907F0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116341.jpgsave_picture_116341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116341.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:94FDA8DE642E963BE78A3D1CC0A51C4C26E23D07
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116346.jpgsave_picture_116346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116346.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116481.jpgsave_picture_116481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116481.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Belinda Metz - Electric Splash (1985) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116489.jpgsave_picture_116489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116489.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eynomia - Break Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116497.jpgsave_picture_116497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116497.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bokassa - All Out of Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116498.jpgsave_picture_116498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116498.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Motorowl - This House Has No Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116501.jpgsave_picture_116501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116501.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Romuvos - Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116508.jpgsave_picture_116508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116508.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Black Sabbath - Live 1983 (2020) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116544.jpgsave_picture_116544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116544.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Eisenkult - Vulgare, deutsche Hassmusik (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116648.jpgsave_picture_116648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116648.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Suicide Of Society - War Investment (2020) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116658.jpgsave_picture_116658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116658.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mr.Bison - Echoes From The Universe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116663.jpgsave_picture_116663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116663.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116665.jpgsave_picture_116665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116665.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:830CE24B608A6D8489E25FA3D44349A62F61399B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpgsave_picture_116685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpgsave_picture_116726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpgsave_picture_116822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpg" />
 </div>
 
 

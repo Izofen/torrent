@@ -6,7 +6,7 @@ Therion - Studio Albums (21 releases) (1991-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33693.jpgsave_picture_33693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33693.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Canblaster - Liberosis (Director'S Cut) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33758.jpgsave_picture_33758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33758.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33969.jpgsave_picture_33969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33969.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33972.jpgsave_picture_33972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33972.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpgsave_picture_33973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33973.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kai Strauss - Wailin' In Vienna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33974.jpgsave_picture_33974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33974.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Nico Wayne Toussaint - With Love From Clarksdale (2024) [FLAC 24/88.2|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33975.jpgsave_picture_33975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33975.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wehmut - Flüstern der Freiheit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33979.jpgsave_picture_33979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33979.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34061.jpgsave_picture_34061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34061.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Laibach - 1 Albums, 5 Singles (2023-2024) [FLAC 16, 24/44.1, 48, 96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34121.jpgsave_picture_34121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34121.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34393.jpgsave_picture_34393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34393.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34394.jpgsave_picture_34394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34394.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34396.jpgsave_picture_34396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34396.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34399.jpgsave_picture_34399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34399.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Love Music Zone, Marco Rinaldo, Sensual Lounge Music Universe, Sexual Piano Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34406.jpgsave_picture_34406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34406.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34488.jpgsave_picture_34488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34488.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Babbba - Virtual Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34503.jpgsave_picture_34503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34503.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ DelaDap - King of the Swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34504.jpgsave_picture_34504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34504.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Babbba - Midnight walk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34586.jpgsave_picture_34586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34586.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Babbba - Skat Academy III (part 2 by Babbba) (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34587.jpgsave_picture_34587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34587.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Inte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34590.jpgsave_picture_34590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34590.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nancy Sinatra - Sugar (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34607.jpgsave_picture_34607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34607.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Babbba - Smooth as silk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34610.jpgsave_picture_34610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34610.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Vanessa Paradis - Live (1994) Remaster - 30th Anniversary Deluxe Edition, 2024, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34611.jpgsave_picture_34611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34611.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Babbba - Two to Tango (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34612.jpgsave_picture_34612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34612.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Karfagen - Constellations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progresive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34613.jpgsave_picture_34613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34613.jpg" />
 </div>
 
 

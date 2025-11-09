@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38133.jpgsave_picture_38133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38133.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:73C47EBAF0F03F8F8FBF9C77182E09E255BEF64F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38134.jpgsave_picture_38134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38134.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:91A1C295F6A7DE382A37643224A39362F84D9533
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38135.jpgsave_picture_38135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38135.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft  Visual C++ Runtimes AIO v0.85.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38136.jpgsave_picture_38136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38136.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38137.jpgsave_picture_38137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38137.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38138.jpgsave_picture_38138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38138.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B0EA5D0DFEE50F1B57EDFD606BFBE311BD9B92D2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38139.jpgsave_picture_38139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38139.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BB2F1A11A858A1D17B86BFD18E92211572B8A90D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38140.jpgsave_picture_38140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38140.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:ABFE16F1D1DFD5A15D44140EE844B83F89BA83C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38141.jpgsave_picture_38141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38141.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38142.jpgsave_picture_38142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38142.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38143.jpgsave_picture_38143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38143.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IPTV Pro v8.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38144.jpgsave_picture_38144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38144.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DriverStore Explorer 0.11.92 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38145.jpgsave_picture_38145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38145.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Steinberg - Cubase Pro 14 14.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38146.jpgsave_picture_38146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38146.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38147.jpgsave_picture_38147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38147.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ DogLinux Debian 12 Bookworm 2024.11.05 [x86, amd64] LiveUSB
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38148.jpgsave_picture_38148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38148.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:DE22D50E65D2FCB8274B65FE79D9466AE347526E
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38149.jpgsave_picture_38149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38149.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kaspersky Rescue Disk 2024 Beta [03.11.2024] [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38150.jpgsave_picture_38150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38150.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Blood: Plasma Pak (1997) [Ru/En] (1.11/1.21/dlc) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38151.jpgsave_picture_38151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38151.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:536964DB99CAED0A641F606789A73B2673D80CCE
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38152.jpgsave_picture_38152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38152.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blood II (1998) [Ru/En] (1.21/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38153.jpgsave_picture_38153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38153.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Driver Easy Pro 6.1.1.29776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38154.jpgsave_picture_38154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38154.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:870B7DFB75183E310A6D8B0F94FCA92CB41A025B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38155.jpgsave_picture_38155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38155.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Descent (1995) [Ru/En] (1.5) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38156.jpgsave_picture_38156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38156.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38157.jpgsave_picture_38157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38157.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38158.jpgsave_picture_38158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38158.jpg" />
 </div>
 
 

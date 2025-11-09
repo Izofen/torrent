@@ -6,7 +6,7 @@ Taumel - Две сестры (2025) [MP3|320 Kbps] <Dark Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65509.jpgsave_picture_65509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65509.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65510.jpgsave_picture_65510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65510.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Witchrot - Soul Cellar (2025) [MP3|320 Kbps] <Stoner, Sludge, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65512.jpgsave_picture_65512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65512.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4E1AFADF46FD1AEDA698F73ED1EC0F28AC7563E5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpgsave_picture_65514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpgsave_picture_65515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ganesa - Пробуждение силы (2025) [MP3|320 Kbps] <Гранж>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65517.jpgsave_picture_65517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65517.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Seyminhol - Northern Recital (2002) Reissue, 2004, CD-Maximum [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65519.jpgsave_picture_65519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65519.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wrath Of Belial - Embers Of Dead Empires (2025) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65526.jpgsave_picture_65526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65526.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Heathen's Eye - Port Inspiro (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65535.jpgsave_picture_65535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65535.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:71FFD170ABB15561D1890D831732292D3AAF9519
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65538.jpgsave_picture_65538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65538.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpgsave_picture_65540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpgsave_picture_65545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobill
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65546.jpgsave_picture_65546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65546.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65549.jpgsave_picture_65549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65549.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65552.jpgsave_picture_65552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65552.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65563.jpgsave_picture_65563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65563.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65565.jpgsave_picture_65565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65565.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Doro - Fear No Evil (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65575.jpgsave_picture_65575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65575.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Passengers In Panic - Amnesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65581.jpgsave_picture_65581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65581.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Trick or Treat - Ghosted (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65582.jpgsave_picture_65582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65582.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ DII Minores - March Of The Fallen (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65603.jpgsave_picture_65603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65603.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65604.jpgsave_picture_65604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65604.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wanted - Cutting Edge (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65608.jpgsave_picture_65608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65608.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65609.jpgsave_picture_65609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65609.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Heaven Shall Burn - Heimat (2025) [MP3|320 Kbps] <Melodic Death Metal, Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65610.jpgsave_picture_65610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65610.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Biscuit Merchant - Tempora (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65611.jpgsave_picture_65611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65611.jpg" />
 </div>
 
 

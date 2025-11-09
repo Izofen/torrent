@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15001.jpgsave_picture_15001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15001.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:D7B0C397017D199125E06366C573ED7BBC0571F2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15002.jpgsave_picture_15002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15002.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15003.jpgsave_picture_15003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15003.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Balun.Courses, Олег Козырев | Микросервисы, как в Big
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15004.jpgsave_picture_15004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15004.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15005.jpgsave_picture_15005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15005.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3B0A68991DC156E5AEAA5DF45A2CC7A7D2DF22EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15006.jpgsave_picture_15006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15006.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:450941405CE6E6CF3BD65947BF82FFBF1DB8B4FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15007.jpgsave_picture_15007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15007.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4349 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15008.jpgsave_picture_15008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15008.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D38D0ED3A9F9E1F8E719295B957ED60FCBC20E7D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15009.jpgsave_picture_15009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15009.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:F881B2096DE14CCFAD082CB1C37E266B8439A24A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15010.jpgsave_picture_15010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15010.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15011.jpgsave_picture_15011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15011.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15012.jpgsave_picture_15012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15012.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:D27FF4770DA364DAF5BCEEFA0AEEA3880E11C233
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15013.jpgsave_picture_15013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15013.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Windows 7 SP1 7601.27769 x64 3in1 by OneSmiLe [11.06.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15014.jpgsave_picture_15014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15014.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:5D2DE0F30DBB11ED9B6A42A8CBC0697511B54A40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15015.jpgsave_picture_15015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15015.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15016.jpgsave_picture_15016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15016.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15017.jpgsave_picture_15017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15017.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:20744A1F64C3B0C4D932C1DA09C24E1D764491E9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15018.jpgsave_picture_15018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15018.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:57C187B940068B2C7D8438E5E9EC481AA98D414D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15019.jpgsave_picture_15019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15019.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15020.jpgsave_picture_15020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15020.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15021.jpgsave_picture_15021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15021.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15022.jpgsave_picture_15022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15022.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:883DBC2AD04A8F12AA239BEA1A4E8542CE069AD3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15023.jpgsave_picture_15023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15023.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:404251DB8171026B479016BCE97B85CED9EFFAB2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15024.jpgsave_picture_15024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15024.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AA4FFA8A6E57C753F65E5EDAC123774F358C3FF4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15025.jpgsave_picture_15025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15025.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15026.jpgsave_picture_15026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15026.jpg" />
 </div>
 
 

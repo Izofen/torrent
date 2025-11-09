@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59595.jpgsave_picture_59595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DF78B26A8009A3630960D87F56B1E80F977232D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59596.jpgsave_picture_59596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59596.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FF23DB0B2D101BC5A89204DE7528B2EF7C316B9B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59597.jpgsave_picture_59597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59597.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:57C1BDE6209F244A55F93E746CBCA94F48D86121
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59598.jpgsave_picture_59598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59598.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:13C89CDDBFC53B93D204DE6FCF29B7199C1A03DA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59599.jpgsave_picture_59599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59599.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E59AE34F6E85DA52E10FB3209E30C41E6122EFC8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59600.jpgsave_picture_59600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59600.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Гонка (14.04.2024) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59601.jpgsave_picture_59601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59601.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Trance 2024 Legends (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59602.jpgsave_picture_59602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59602.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ EarthView 7.9.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59603.jpgsave_picture_59603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59603.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pearl Jam - Live Rarities (2024) Compilation [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59604.jpgsave_picture_59604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59604.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:4685658FCA2A40DAD74357C6D2F8A31472808838
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59605.jpgsave_picture_59605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59605.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:AE6E50762890E58BFB7302D6B8961C2923496E78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59606.jpgsave_picture_59606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59606.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - 20's Rock Bangers (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59607.jpgsave_picture_59607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59607.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A42E8338FB5651B3C30D386A39DEA51667A631DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59608.jpgsave_picture_59608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59608.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D3C3E255509001E1A24B9C4F4765EBB24D6BCDA1
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59609.jpgsave_picture_59609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59609.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Lounge Delicious, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59610.jpgsave_picture_59610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59610.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpgsave_picture_59611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Rock This Wedding (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59612.jpgsave_picture_59612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59612.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ John Haydock - Straight Line On A Curved Road (2024) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59613.jpgsave_picture_59613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59613.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59614.jpgsave_picture_59614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59614.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Topaz Photo AI 3.0.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59615.jpgsave_picture_59615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59615.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:E6B7006868A8FA04B1BD77D6A408EA7204BB1B7D
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59616.jpgsave_picture_59616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59616.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Advanced Renamer 3.95 release 4 + Portable (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59617.jpgsave_picture_59617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59617.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:3B2D109303716CFA9C6081720CFCEA376C142EC7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59618.jpgsave_picture_59618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59618.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Aiseesoft Video Converter Ultimate 10.8.30 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59619.jpgsave_picture_59619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59619.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ TweakPower 2.053 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59620.jpgsave_picture_59620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59620.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152191.jpgsave_picture_152191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152191.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:78C8DC03E8FBAE6562253569741CDD1DBC0791AA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152192.jpgsave_picture_152192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152192.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Glary Utilities Pro 5.134.0.160 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152193.jpgsave_picture_152193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152193.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:98D05E1309F9994BE81B03555083470BBCAE12C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152194.jpgsave_picture_152194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152194.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152195.jpgsave_picture_152195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152195.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0E119F8641653A21090041FBB53C074A218CD376
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152196.jpgsave_picture_152196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152196.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Wolfram Mathematica 13.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152197.jpgsave_picture_152197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152197.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C071C2A2755893224B56671E984D1BF2B77BB460
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152200.jpgsave_picture_152200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152200.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ News Explorer 1.9.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152201.jpgsave_picture_152201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152201.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9E6703912DB2CB2DE84A7C483CF4F3BD41B576F5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152202.jpgsave_picture_152202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152202.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:30A55A09B75994ACB4A06851CBB45C3C1FEEDF31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152203.jpgsave_picture_152203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152203.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:E80BFE90193069E49EFAF2EB11D059FD29F56FB6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152204.jpgsave_picture_152204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152204.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rob Papen - BLUE II 1.0.3b VSTi, AAX (x86/x64) Repack by VR (Rev.2) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152206.jpgsave_picture_152206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152206.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:6FBE5E131CE63819696F5D1A103FABD9FC03985E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152207.jpgsave_picture_152207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152207.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:113B739A4E6CF9303BBD90FC746C4021D83807E6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152208.jpgsave_picture_152208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152208.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpgsave_picture_152209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Tenebrous Music - Label 3 Releases (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152211.jpgsave_picture_152211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152211.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:206901CB8B90D64C385DD1648DD605671E5785F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152213.jpgsave_picture_152213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152213.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:0EEFB652BCDB6C3F77C8BFF9D0BB6DA17A0A9C4E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152214.jpgsave_picture_152214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152214.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Queen - A Kind Of Magic (1986) Japanese Edition [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152215.jpgsave_picture_152215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152215.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:B18AD7C20E8467CE9F7A046663E067934C729508
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152217.jpgsave_picture_152217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152217.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152218.jpgsave_picture_152218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152218.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:2024014A776B4CA20DED7FAD73940D97483B4FA3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152220.jpgsave_picture_152220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152220.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sonible Plugins 12.2022 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152221.jpgsave_picture_152221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152221.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:0C39396E133798E59C062F5950CFEC75556A1FA5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152222.jpgsave_picture_152222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152222.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:3971506B5CDD8750E1EF050272C92EFE16D7EFE0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152224.jpgsave_picture_152224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152224.jpg" />
 </div>
 
 

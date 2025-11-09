@@ -6,7 +6,7 @@ Sound Momentum - Blue Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107513.jpgsave_picture_107513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107513.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ My Diligence - 5 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <heavy psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107514.jpgsave_picture_107514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107514.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Max Esquivel - Formas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107515.jpgsave_picture_107515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107515.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sheppard - Zora (Zopa) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Australian 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107516.jpgsave_picture_107516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107516.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antropofagus - No Waste of Flesh (1999) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107517.jpgsave_picture_107517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107517.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rondelle55 - Qualitative Dissertation Methodology (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107518.jpgsave_picture_107518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107518.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ V.A. - Split Torso Trauma (2011) Split [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107519.jpgsave_picture_107519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107519.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kinkfolk - Kinkfolk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107520.jpgsave_picture_107520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107520.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107521.jpgsave_picture_107521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107521.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Snowy White - Unfinished Business (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107522.jpgsave_picture_107522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107522.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mountainroad DSP - Lumina Delay 2.0.0.289 VST 3, AAX (x64) RePack by MOCHA [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107523.jpgsave_picture_107523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107523.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Within Temptation - Worlds Collide Tour (2024) Live in Amsterdam [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107524.jpgsave_picture_107524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107524.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107525.jpgsave_picture_107525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107525.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Cavalera Conspiracy - Schizophrenia (1987) Re-Recorded, 2024, Nuclear Blast[FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107526.jpgsave_picture_107526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107526.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:9283189B28E4CF39EB4A4684CDB591A040C70A7C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107527.jpgsave_picture_107527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107527.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-199
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpgsave_picture_107528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107529.jpgsave_picture_107529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107529.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kat Hawley - X•IX•VIII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107530.jpgsave_picture_107530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107530.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NeoSwing - The Groovy Gatsby (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107531.jpgsave_picture_107531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107531.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Aires - Останусь собой (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107532.jpgsave_picture_107532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107532.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2F0E18E87BE5F03063B4AAECB8BC473850840993
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107533.jpgsave_picture_107533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107533.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Omolewa Osain - Belcugazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107534.jpgsave_picture_107534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107534.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cafe Rex Paris - Summer in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107535.jpgsave_picture_107535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107535.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2C06D31C7D0EA52EE52DB27AAB0EE96C9EEB13EF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107536.jpgsave_picture_107536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107536.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Hoot & Annie - Inspector Penny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107537.jpgsave_picture_107537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107537.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Thomas Greenberg - Quirky Retro & Vintage (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107538.jpgsave_picture_107538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107538.jpg" />
 </div>
 
 

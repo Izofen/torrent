@@ -6,7 +6,7 @@ Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219730.jpgsave_picture_219730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219730.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coffin Hag - Prairie Tyrant (2023) [MP3|320 Kbps] <Psych Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219751.jpgsave_picture_219751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219751.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219758.jpgsave_picture_219758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219758.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dato 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219769.jpgsave_picture_219769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219769.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MetaVideo for Mac 1.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219784.jpgsave_picture_219784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219784.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Boxy SVG 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219791.jpgsave_picture_219791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219791.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ GlueMotion Unlimited  for Mac 2.1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219798.jpgsave_picture_219798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219798.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Hypnos - Oniros (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219802.jpgsave_picture_219802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219802.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ SnapMotion Unlimited for Mac 5.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219809.jpgsave_picture_219809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219809.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Revealing Chaos - Materia (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219817.jpgsave_picture_219817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219817.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219825.jpgsave_picture_219825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219825.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MetaRename for Mac 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219837.jpgsave_picture_219837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219837.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MetaImage for Mac 2.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219878.jpgsave_picture_219878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219878.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:41515B68AA98005410B4812A37EE919E28C69417
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220004.jpgsave_picture_220004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220004.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:41515B68AA98005410B4812A37EE919E28C69417
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220053.jpgsave_picture_220053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220053.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:50A5C5D6428CFD6CCFA263DF2608A76217E8C721
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220071.jpgsave_picture_220071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220071.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:5CC51680F046A370AE82311778D47B6A9D2CA818
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220152.jpgsave_picture_220152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220152.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, E
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220165.jpgsave_picture_220165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220165.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220172.jpgsave_picture_220172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220172.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Scrutiny 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220180.jpgsave_picture_220180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220180.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Magic Battery 7.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220186.jpgsave_picture_220186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220186.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:FF92E6388CA945194BBD8E87CFF245636FEC6635
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220195.jpgsave_picture_220195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220195.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CC6E3490DBFF4DAB3FDE3339D452060AD60B7562
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220196.jpgsave_picture_220196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220196.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:F3FCB8412CB936D9C2A2CD79E1E7BC0DC2E874FB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220203.jpgsave_picture_220203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220203.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220209.jpgsave_picture_220209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220209.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ FonePaw iOS Transfer for Mac 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220217.jpgsave_picture_220217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220217.jpg" />
 </div>
 
 

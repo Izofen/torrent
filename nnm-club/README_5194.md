@@ -6,7 +6,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161795.jpgsave_picture_161795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Solod: Коллекция Чистых Голосов / Solod: Clearvoices colle
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161796.jpgsave_picture_161796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161796.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:95ED100CFBF241375285ABE7E8D72C14BC1B01EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161797.jpgsave_picture_161797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161797.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161798.jpgsave_picture_161798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161798.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161799.jpgsave_picture_161799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161799.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161800.jpgsave_picture_161800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161800.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161801.jpgsave_picture_161801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161801.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2E1726537AE88902B08B49DBB9D351A193E11996
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161802.jpgsave_picture_161802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161802.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B2B9586211D2179E65866298904363C397C0347B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161803.jpgsave_picture_161803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161803.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161804.jpgsave_picture_161804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161804.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpgsave_picture_161805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161805.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ OpenVPN 2.5.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161806.jpgsave_picture_161806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161806.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 17.12 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161807.jpgsave_picture_161807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161807.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Adobe InCopy 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161808.jpgsave_picture_161808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161808.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161809.jpgsave_picture_161809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161809.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Reason Studios Reason 12.5.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161810.jpgsave_picture_161810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161810.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:928881D30B485862EE611D16B57B778C04AC5226
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161811.jpgsave_picture_161811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161811.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 10 21H2 (19044.1415) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161812.jpgsave_picture_161812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161812.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bootstrap Studio 5.5.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161813.jpgsave_picture_161813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161813.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161814.jpgsave_picture_161814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161814.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:79937F58670B5CC947E85A4CC2573A419925A921
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161815.jpgsave_picture_161815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161815.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F5A3DE57FFA332AD88139A439990D2A93DDD9311
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161816.jpgsave_picture_161816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161816.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:43407DB595162E9BE59C730B0C38C93A8E7E727D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161817.jpgsave_picture_161817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161817.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161818.jpgsave_picture_161818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161818.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ HitPaw Video Enhancer 1.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161819.jpgsave_picture_161819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161819.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B9FDBEDEC645AC59ED4A2F34F4D30AB3542740BD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161820.jpgsave_picture_161820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161820.jpg" />
 </div>
 
 

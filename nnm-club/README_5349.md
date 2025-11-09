@@ -6,7 +6,7 @@ Whale Browser 2.8.108.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165921.jpgsave_picture_165921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAD7D4862486799F636D53CFF6F9B5A61095B4BB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165922.jpgsave_picture_165922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165922.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Macrorit Data Wiper 6.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165923.jpgsave_picture_165923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165923.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CF4E4C1352F8F5CFB2D88106C6A8F0EA95EBFFDA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165924.jpgsave_picture_165924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165924.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A555B13619DAB577692B57DFBCB6D19966556FC6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165925.jpgsave_picture_165925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165925.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3AED0C525396ADF729159C1FA9947B68EB0712BF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165926.jpgsave_picture_165926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165926.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (1412) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165927.jpgsave_picture_165927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165927.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E35AFF6AA8653ABE35233D6B9E4486CE31117ACC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165928.jpgsave_picture_165928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165928.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A66DC4FEF9C33CF4C78163619C81803DC303019E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165929.jpgsave_picture_165929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165929.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:7375266138787F6B8F579DF102FA069603AB6465
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165930.jpgsave_picture_165930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165930.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Axure RP 9 v9.0.0.3723 Pro / Team / Enterprise Edition macOS [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165931.jpgsave_picture_165931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165931.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:FA379A2F380D3E8D4A5ABD08BD01D8E0C8F59FAA
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165932.jpgsave_picture_165932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165932.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2AED111348AF00B593E33A2CE6448D0A21DEDD76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165934.jpgsave_picture_165934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165934.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9027F6DAEBA99B6864BDF74271027B9DDD303437
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165935.jpgsave_picture_165935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165935.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Icons of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165936.jpgsave_picture_165936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165936.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CFB86BFE582DBFDB3852A064C2AEBC51B3A4CEF1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165937.jpgsave_picture_165937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165937.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:CF0FC7E43B50BD2CF2B06607F132761CAD3CA975
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165938.jpgsave_picture_165938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165938.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6C054A198530722ADC7FF646BF15322915D4ED15
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165939.jpgsave_picture_165939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165939.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ XnConvert 1.90.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165940.jpgsave_picture_165940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165940.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Windows 10 Pro x64 lite 1909 build 18363.535 by Zosma[Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165941.jpgsave_picture_165941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165941.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Thermal Noise - 7 Albums (2018-2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165942.jpgsave_picture_165942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165942.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Compressor 4.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165943.jpgsave_picture_165943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165943.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:9677A8A5C0E0B3D128B06306B51C9E701303F10B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165944.jpgsave_picture_165944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165944.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4B8C7437494D19385A2EECC601902B67D86D4A52
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165945.jpgsave_picture_165945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165945.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:21BB5F619BFA819B6CF033646E9188DE60BA7492
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165946.jpgsave_picture_165946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165946.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Drekhund - Men of Salem (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165947.jpgsave_picture_165947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165947.jpg" />
 </div>
 
 

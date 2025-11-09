@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124004.jpgsave_picture_124004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124004.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ozi Explorer for Android OS v1.37 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124005.jpgsave_picture_124005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124005.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C48A37C301C0033731D848810A886CE6010D22C8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124006.jpgsave_picture_124006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124006.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E8758F1780899F942A5E683B95B558A88E0F91C6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124007.jpgsave_picture_124007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124007.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B63DCC3CE5D98A3583C6937B89FF57420637E1D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124008.jpgsave_picture_124008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124008.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C679760CB9F1CCA64E9D451E63D6252900FBA3FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124009.jpgsave_picture_124009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124009.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DAEB1EF8666B9F820C91B02B578EF421F30351C2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124010.jpgsave_picture_124010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124010.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:87F9D8976E24492B952DE946E8BAC0A20EC8250B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124011.jpgsave_picture_124011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124011.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.5 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124012.jpgsave_picture_124012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124012.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124013.jpgsave_picture_124013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C79E9D7C71C4D687026D4B7A52932F084D8A575B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124014.jpgsave_picture_124014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124014.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4C669929EFC254EA6DD8AC13BA6D52C0721E2FC4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124015.jpgsave_picture_124015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124015.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5EFF1E1765D270AFDF139EA915C83C35C15CA8F7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124016.jpgsave_picture_124016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124016.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124017.jpgsave_picture_124017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124017.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Lucifer's Friend - 13 Albums (1970 - 2019) 18 CD [FLAC|Lossless|image + .cue|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124018.jpgsave_picture_124018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124018.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Лучшие песни Наше радио за 2023 год (2024) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124019.jpgsave_picture_124019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124019.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:E8DC2F2F9C9A53801BFF4B984F8052EE1804DA91
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124020.jpgsave_picture_124020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124020.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8D921D0A340D48332AB8ABBB2535BBE1F8E44C39
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124021.jpgsave_picture_124021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124021.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124023.jpgsave_picture_124023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124023.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124024.jpgsave_picture_124024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124024.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:657525096F9DA97358D0B50DF7D2E0BA4E0B4AF6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124026.jpgsave_picture_124026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124026.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:12BB9BFCEBEF87554B595FBFE238F1A4953D0AAC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124027.jpgsave_picture_124027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124027.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Krabathor - Lies & The Rise of Brutality (2014) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpgsave_picture_124028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Krabathor - Orthodox (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpgsave_picture_124029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Krabathor - Unfortunately Dead (2000) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpgsave_picture_124030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Krabathor - Dissuade Truth (2003) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpgsave_picture_124031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpg" />
 </div>
 
 

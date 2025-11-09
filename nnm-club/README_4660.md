@@ -6,7 +6,7 @@ Stanley Turrentine - Don't Mess With Mister T. (1973) 1987, EPC [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145871.jpgsave_picture_145871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145871.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3AC6727C3D5EB2F7527BA29FEB8DD217E8A52534
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145872.jpgsave_picture_145872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145872.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145873.jpgsave_picture_145873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145873.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F802A718A392BE223ECAF6901839E715B634ACC0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145875.jpgsave_picture_145875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145875.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Asterix & Obelix XXL 3: The Crystal Menhir v1.56 (2019) [Multi/Ru] [macOS Native
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145876.jpgsave_picture_145876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145876.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Fu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145877.jpgsave_picture_145877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145877.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145878.jpgsave_picture_145878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145878.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:6F30C7C4CEF7F67ACE6E7F4B560D1167B79B91BD
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145879.jpgsave_picture_145879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145879.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Real Steel Boxing Champion v2.5.118 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145880.jpgsave_picture_145880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145880.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145883.jpgsave_picture_145883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145883.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145884.jpgsave_picture_145884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Best Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145886.jpgsave_picture_145886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145886.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:37835717940CC55639F2CB6390498B38FA364FB1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145887.jpgsave_picture_145887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145887.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Xentry OpenShell 12.2020 28.9.2.3 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145888.jpgsave_picture_145888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145888.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Mastercastle - Last Desire (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145890.jpgsave_picture_145890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145890.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:309C34D90CD952E85F7BC9DC5358F069F8688DE0
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145891.jpgsave_picture_145891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145891.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:40CC5D09A6A88820BCD4630F0C96612F53FD35BD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145892.jpgsave_picture_145892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145892.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Nye Bash Downtempo 2021 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145893.jpgsave_picture_145893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145893.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:4D95C6CEC6367EE3AA0AFF96004FA42CD47F2F69
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145895.jpgsave_picture_145895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145895.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145897.jpgsave_picture_145897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145897.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Sunset Aperitive Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145898.jpgsave_picture_145898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145898.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:94B1CC9D06FFA217816AD408D1BB7B9FF8EF5D28
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145900.jpgsave_picture_145900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145900.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F06AB5117E0FCD2EAD64044EC0CD52B13C4838D8
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145902.jpgsave_picture_145902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145902.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D0C5A1AC505E6AFC577F9E004DBFEEC3A261E429
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145903.jpgsave_picture_145903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145903.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:32A58D737D8A98F1AEAB42274003BF3769FDBDC0
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145904.jpgsave_picture_145904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145904.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145905.jpgsave_picture_145905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145905.jpg" />
 </div>
 
 

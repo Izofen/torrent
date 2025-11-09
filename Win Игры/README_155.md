@@ -6,7 +6,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45626.jpgsave_picture_45626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45626.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45644.jpgsave_picture_45644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phantom Spark (2024) [Multi] (1.0.0:3004) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45653.jpgsave_picture_45653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.1.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45656.jpgsave_picture_45656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45656.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45666.jpgsave_picture_45666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45666.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45667.jpgsave_picture_45667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45667.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ LightRay (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45675.jpgsave_picture_45675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45675.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpgsave_picture_45683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpgsave_picture_45695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45695.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45703.jpgsave_picture_45703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45703.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5779841EE1404F51ECF57DE116CB500F9B002840
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45706.jpgsave_picture_45706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45706.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45719.jpgsave_picture_45719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45719.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45720.jpgsave_picture_45720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45720.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45725.jpgsave_picture_45725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45725.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45729.jpgsave_picture_45729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45729.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45730.jpgsave_picture_45730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45730.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpgsave_picture_45733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hellcard (2024) [Ru/Multi] (1.1.240821/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpgsave_picture_45746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpgsave_picture_45747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Super Antonio (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45780.jpgsave_picture_45780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45780.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Frontiers Reach (2020) [En] (Chapter 3) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45788.jpgsave_picture_45788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45788.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dicefolk (2024) [Ru/Multi] (20240819) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45789.jpgsave_picture_45789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45789.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Combat Mission: Battle for Normandy (2023) [En] (Battle Pack 2/dlc) Scene Skidro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45811.jpgsave_picture_45811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45811.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Homeless (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpgsave_picture_45832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Outlanders (2023) [Ru/Multi] (20240822/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45833.jpgsave_picture_45833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45833.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warriors of the Nile 2 (2022) [Multi] (1.2030) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45860.jpgsave_picture_45860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45860.jpg" />
 </div>
 
 

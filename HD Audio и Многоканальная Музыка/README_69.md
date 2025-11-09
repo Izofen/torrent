@@ -6,7 +6,7 @@ Ryoji Shinomoto - Children of Bushido (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67887.jpgsave_picture_67887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67887.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67888.jpgsave_picture_67888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67888.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Epica - Aspiral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic-Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67898.jpgsave_picture_67898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67898.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67920.jpgsave_picture_67920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67920.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chvrches - The Bones Of What You Believe (2013) 10th Anniversary Edition, 2023, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67947.jpgsave_picture_67947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67947.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67955.jpgsave_picture_67955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67955.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67957.jpgsave_picture_67957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67957.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67970.jpgsave_picture_67970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67970.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sym
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67975.jpgsave_picture_67975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67975.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67978.jpgsave_picture_67978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67978.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Empire Of The Sun - Ask That God (2024) Remixes, 2025, EMI Recorded[FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67994.jpgsave_picture_67994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67994.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67998.jpgsave_picture_67998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67998.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vincent Ryder - Way Too Quiet (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67999.jpgsave_picture_67999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67999.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blue Stalk - Roller Coaster (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68000.jpgsave_picture_68000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68000.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sewing Jar - Classic Hoots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68002.jpgsave_picture_68002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68002.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Daniel Meade - Hip Hip Hooray!! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68003.jpgsave_picture_68003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68003.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Zephyr Pilots - Zephyr Pilots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68004.jpgsave_picture_68004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68004.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Donatas Petreikis - Northern Dream (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68006.jpgsave_picture_68006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68006.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Liam Harter Leao - Settle in Chaos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68007.jpgsave_picture_68007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68007.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Marvin J. Galaxy - Mild Revelation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68008.jpgsave_picture_68008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68008.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68009.jpgsave_picture_68009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68009.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68016.jpgsave_picture_68016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68016.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68021.jpgsave_picture_68021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68021.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68023.jpgsave_picture_68023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68023.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68025.jpgsave_picture_68025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68025.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Voice Of The Beehive - Honey Lingers (1991) Remastered and Expanded, 2025, Becau
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68026.jpgsave_picture_68026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68026.jpg" />
 </div>
 
 

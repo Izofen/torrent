@@ -6,7 +6,7 @@ River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239611.jpgsave_picture_239611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239611.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Connie Han - Iron Starlet (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239612.jpgsave_picture_239612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239612.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alghazanth - The Three-Faced Pilgrim (2014) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239613.jpgsave_picture_239613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239613.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6C6C475E0A17C3EFDC05B299EECC0D915D633826
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239614.jpgsave_picture_239614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239614.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:24399534FD5AE27A1EC9D24D9AC15B0EA954679D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239615.jpgsave_picture_239615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239615.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Balabolka 2.15.0.844 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239616.jpgsave_picture_239616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239616.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ PowerPhotos 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239617.jpgsave_picture_239617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239617.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Robert Hokum - Personal Experience and Downright Lies (2023) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239618.jpgsave_picture_239618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239618.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:6F54F8C9B4B98536314B747AC8ED399B57D42099
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239619.jpgsave_picture_239619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239619.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:4F787E3DD40E7C86DD1E8CC45E661BE26813798A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239620.jpgsave_picture_239620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239620.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9829E22317F73111B4252A159660E4E07E6BE970
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239621.jpgsave_picture_239621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239621.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:04CF5536DED99E009325B4000A594D4D8287D8E0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239622.jpgsave_picture_239622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239622.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Wicked Maraya - Cycles (1994) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239623.jpgsave_picture_239623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239623.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Calvin Duncan Jr - Come Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239624.jpgsave_picture_239624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239624.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ CamSam PLUS v3.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpgsave_picture_239625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:BA15C4C07452774F622D0A24F3F16AA4DF550FCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239626.jpgsave_picture_239626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239626.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:42B334C8DC2ACA7B9A174F8A3CC1ADAFD0EC5F30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239627.jpgsave_picture_239627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239627.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ William Control - Sex Cult (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239628.jpgsave_picture_239628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239628.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Aethernaeum - Naturmystik (2015) [FLAC|Lossless|image + .cue] <Black Metal, Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239629.jpgsave_picture_239629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239629.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Martial Solal Trio - Triangle (1995) JMS [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239630.jpgsave_picture_239630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239630.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mysterium - The Glowering Facades Of Night (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239631.jpgsave_picture_239631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239631.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B16FAA2BF296B38E9023DA7D80E4C2E079F9987B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239632.jpgsave_picture_239632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239632.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ IObit Uninstaller Pro 12.4.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239633.jpgsave_picture_239633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239633.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ JW-Jones - Everything Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239634.jpgsave_picture_239634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239634.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:9C26155FCF747902873D1B28E6512D2B0FB0ED79
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239635.jpgsave_picture_239635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239635.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Blocs 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239636.jpgsave_picture_239636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239636.jpg" />
 </div>
 
 

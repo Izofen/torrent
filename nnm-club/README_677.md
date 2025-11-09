@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17924.jpgsave_picture_17924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17924.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4502E7143B2E41AD1936A5D064397BCA0E792D97
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17925.jpgsave_picture_17925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17925.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:820A6F99C937088086E74F1B2A06FA65A25844F4
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17926.jpgsave_picture_17926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17926.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C4F81BECC6EFEDA681B0369EC6C37152BDA1E1A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17927.jpgsave_picture_17927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17927.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BE5DA7EEC37B1B32D25B574665C5D5321BF9976F
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17928.jpgsave_picture_17928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17928.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2E8CA60485F1429192F67E8FBD27CAC20D50EC65
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17929.jpgsave_picture_17929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17929.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.3/dlc) Scene Rune [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17930.jpgsave_picture_17930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17930.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:56ED86C02C0E4E5392603D4FBDFBC2082CD3762A
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17931.jpgsave_picture_17931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17931.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:157D5CF4BD7B05E424BA1CD73C6C74E4F42BC80D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17932.jpgsave_picture_17932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17932.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Digital Juice - Compositor's Toolkit Visual FX Library III [MOV]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17933.jpgsave_picture_17933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17933.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Samsung и Xiaomi тоже начали цензурировать VPN-прил�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17935.jpgsave_picture_17935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17935.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Samsung и Xiaomi тоже начали цензурировать VPN-прил�
 >>Грань / Fringe
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17936.jpgsave_picture_17936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17936.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Video AI 7.0.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17937.jpgsave_picture_17937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17937.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:F16B95B2F9B1057E283C8B007165AADDB03F4CE3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17938.jpgsave_picture_17938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17938.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:31827DB308EDAD4FFE2DA1904A3A72E0ACBE33F1
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17939.jpgsave_picture_17939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17939.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A5F47BE8C539404BB39578A484C680992B2FFB49
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17940.jpgsave_picture_17940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17940.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Topaz Video AI Pro 7.0.0 (x64) Portable by 7997 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17941.jpgsave_picture_17941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17941.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17942.jpgsave_picture_17942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17942.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Topaz Video AI Pro 7.0.0 (x64) [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17943.jpgsave_picture_17943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17943.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:5661FD068655641D741595281DC312952CD171DF
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17944.jpgsave_picture_17944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17944.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:500C2C0E59B294DC3EB55DAC023F5129BFCE3CDA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17945.jpgsave_picture_17945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17945.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5FA0018400ADE192A50F4C4E82C5883C458547B0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17946.jpgsave_picture_17946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17946.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17947.jpgsave_picture_17947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17947.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) License GOG [E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17948.jpgsave_picture_17948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17948.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:20C289BF601E0C67E3052557E45EDED9F3FE12E7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17949.jpgsave_picture_17949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17949.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:620CA8F7D9518D379B22FC1D2261D8A791F2DFF1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17950.jpgsave_picture_17950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17950.jpg" />
 </div>
 
 

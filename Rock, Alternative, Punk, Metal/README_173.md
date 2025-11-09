@@ -6,7 +6,7 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118741.jpgsave_picture_118741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Florence Black - Bed Of Nails (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118748.jpgsave_picture_118748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118748.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Echo Splinter - The Last Stand (2024) [FLAC|Lossless|WEB-DL|tracks] <post-hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118762.jpgsave_picture_118762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118762.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stray - 14 Albums (1970 - 2017) 20 CD [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118870.jpgsave_picture_118870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118870.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpgsave_picture_118904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpgsave_picture_118907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpgsave_picture_118912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hammerhead - Lords Of The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118920.jpgsave_picture_118920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118920.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118922.jpgsave_picture_118922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118922.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118926.jpgsave_picture_118926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118926.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118927.jpgsave_picture_118927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118927.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118930.jpgsave_picture_118930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118930.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tesla - 22 Albums (1986 - 2023) 30 CD [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119056.jpgsave_picture_119056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119056.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Running Wild - Port Royal (1988) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119070.jpgsave_picture_119070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119070.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Seventh Crystal - Wonderland (2023) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119072.jpgsave_picture_119072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119072.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Running Wild - Gates To Purgatory (1984) [APE|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpgsave_picture_119076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Madder Mortem - Old Eyes, New Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpgsave_picture_119077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Prid
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpgsave_picture_119080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpgsave_picture_119081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119083.jpgsave_picture_119083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119083.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Soulless - Isolated (2011) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119086.jpgsave_picture_119086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119086.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119089.jpgsave_picture_119089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119089.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119093.jpgsave_picture_119093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119093.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119094.jpgsave_picture_119094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119094.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpgsave_picture_119106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpgsave_picture_119109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpg" />
 </div>
 
 

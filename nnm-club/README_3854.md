@@ -6,7 +6,7 @@ Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120618.jpgsave_picture_120618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120619.jpgsave_picture_120619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120619.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120620.jpgsave_picture_120620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120620.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120621.jpgsave_picture_120621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120621.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:ACA83138959C8ACF9C279E160BDE080D599E0BD2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120622.jpgsave_picture_120622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120622.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120623.jpgsave_picture_120623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120623.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120624.jpgsave_picture_120624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120624.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120625.jpgsave_picture_120625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120625.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PowerDirector – Video Editor v13.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120626.jpgsave_picture_120626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120626.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120627.jpgsave_picture_120627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120627.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120628.jpgsave_picture_120628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120628.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:8F54F02E6ECAF4C2F13C44C442A59C0010F3BBA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120629.jpgsave_picture_120629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120629.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120630.jpgsave_picture_120630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120630.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120631.jpgsave_picture_120631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120631.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120632.jpgsave_picture_120632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120632.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpgsave_picture_120633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PhotoDirector - Редактор фото 18.9.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120634.jpgsave_picture_120634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120634.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ China - China (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpgsave_picture_120635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpgsave_picture_120636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Uplifting Only Top 15: December 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120637.jpgsave_picture_120637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120637.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ EverWeb (Standalone) 4.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120638.jpgsave_picture_120638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120638.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:FB93C91989BE1781A1EF98B162C882CA5C262167
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120639.jpgsave_picture_120639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120639.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AnyGo 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120640.jpgsave_picture_120640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120640.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120641.jpgsave_picture_120641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120641.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ ArenaNet | Артбук по игре Guild Wars 2 / The Art of Guild Wars 2 (20
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120642.jpgsave_picture_120642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120642.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:C78BD82A64740883C37D7E6701914202B7348C2A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120643.jpgsave_picture_120643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120643.jpg" />
 </div>
 
 

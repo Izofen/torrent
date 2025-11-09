@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75455.jpgsave_picture_75455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75455.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:97A97A0E385B20DCA5FFA7A86EB23BCC5AE68BB9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpgsave_picture_75459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75469.jpgsave_picture_75469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75469.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75470.jpgsave_picture_75470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75470.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75493.jpgsave_picture_75493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75493.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Duke Nukem Дилогия [En] (P) 1991-1993
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75497.jpgsave_picture_75497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75497.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:186BA5DCDCB4FCFCD87A1C0A0063CF63ACD0298F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75498.jpgsave_picture_75498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75498.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Spyware Terminator Premium 2012 v3.0.0.54  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75499.jpgsave_picture_75499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75499.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75502.jpgsave_picture_75502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75502.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75507.jpgsave_picture_75507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75507.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75508.jpgsave_picture_75508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75508.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75510.jpgsave_picture_75510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75510.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E8AE6CA3198CDA4847E4DFCD75F730821DA7C82A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75514.jpgsave_picture_75514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75514.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:F30EB266D7E528E83BEEDCC39756C9E5D899A78E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75516.jpgsave_picture_75516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75516.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ DivX Plus Pro v8.2.2 Build 10.3.2 (1.8.5.28)  Eng/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75522.jpgsave_picture_75522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75522.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75527.jpgsave_picture_75527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75527.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75530.jpgsave_picture_75530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75530.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B89249C30FCCF0F8E5B23FE14AF435D539C98176
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75537.jpgsave_picture_75537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75537.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D629B3645180FEB7ACBA1A3630FF6E4146AA43A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75543.jpgsave_picture_75543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75543.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75544.jpgsave_picture_75544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75544.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75545.jpgsave_picture_75545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75545.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Мультконцерт. Антология Детского Шлягер�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75549.jpgsave_picture_75549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75549.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A3C8E739FEF0ACFBADB283CB8979DBB78D3A3E0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75552.jpgsave_picture_75552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75552.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:A3C8E739FEF0ACFBADB283CB8979DBB78D3A3E0D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75556.jpgsave_picture_75556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75556.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:97ECA1AEAD6C119FF4311B748DE127B939D2C4C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75558.jpgsave_picture_75558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75558.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:A666B7908853CF4FECC461A797CC096A5B6553ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75561.jpgsave_picture_75561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75561.jpg" />
 </div>
 
 

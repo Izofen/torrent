@@ -6,7 +6,7 @@ W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68532.jpgsave_picture_68532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68532.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2B83ADE856D9A7B3D939E4CB45443586FBB558A0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68533.jpgsave_picture_68533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68533.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68534.jpgsave_picture_68534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68534.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68535.jpgsave_picture_68535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68535.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ New Model Army - Live at SO36 16.07.2022 (2025) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68536.jpgsave_picture_68536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68536.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68537.jpgsave_picture_68537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68537.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:009685962FE5CA7BBF572F24BF32E7323C83910E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68538.jpgsave_picture_68538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68538.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ William Roche - Ramblin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68539.jpgsave_picture_68539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68539.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Erja Lyytinen - Smell the Roses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68540.jpgsave_picture_68540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68540.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Van Meurs Van Peppen - Blues and Soul for Lovers (2025) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68541.jpgsave_picture_68541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68541.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Phil X & The Drills - Pow! Right In The Kisser (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68542.jpgsave_picture_68542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68542.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:EA3435AEE3E20178666D7205449D890380064150
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68543.jpgsave_picture_68543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68543.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F0DF94F3550FAA3B564B46A3ED82075028DE709A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68544.jpgsave_picture_68544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68544.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A25A4577CB61B6EA715E022BA574B1325345202A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68545.jpgsave_picture_68545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68545.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Resize Me! Pro v2.4.1 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68546.jpgsave_picture_68546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68546.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Flashback Anthology Vol. 1 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68547.jpgsave_picture_68547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68547.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bryan Ferry & Amelia Barratt - Loose Talk (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68548.jpgsave_picture_68548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68548.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:FE754B889EF5CB2A18C997F3D9C8EF6F27F415B4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68549.jpgsave_picture_68549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68549.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E886A0C4F1703E4FC2E16284CB57C93A79C741D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68550.jpgsave_picture_68550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68550.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ TuneIn Radio Pro v37.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68551.jpgsave_picture_68551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68551.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:3CD32E9E8D73333DCAB259B1CC44139E2A9F9327
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68552.jpgsave_picture_68552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68552.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:049B4A40D5F77C6A4D411B871B608CF6BE0E2C85
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68553.jpgsave_picture_68553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68553.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D0615B8451F7CA7EB5CA922D122C843C785828C9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68554.jpgsave_picture_68554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68554.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Flashback Anthology Vol. 2 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68555.jpgsave_picture_68555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68555.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpgsave_picture_68556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpgsave_picture_68557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpg" />
 </div>
 
 

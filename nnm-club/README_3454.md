@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110165.jpgsave_picture_110165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110165.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sons Of Thunder - Thunderhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpgsave_picture_110166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ dict.cc+ Wörterbuch 12.0.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110167.jpgsave_picture_110167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CA4448FF2223601921EA81D6F31FB5AFF2F6965C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110168.jpgsave_picture_110168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110168.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2974 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110169.jpgsave_picture_110169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110169.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:894DD98CC51DF9973C69DA6A157DE02A5D0445F7
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110170.jpgsave_picture_110170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110170.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:EB9804ACD44D2B08BF1329FFBB5F9E7413AB6105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110171.jpgsave_picture_110171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110171.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ FileMenu Tools 8.4.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110172.jpgsave_picture_110172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110172.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:C97E68695AD5D0C8BB31B4CC2269DB8C14768116
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110173.jpgsave_picture_110173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110173.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Funker Vogt - 3 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110174.jpgsave_picture_110174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110174.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9591D5462B780762DF84AAC1B92B3A4D80D55C01
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110175.jpgsave_picture_110175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110175.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:083D085765F64E6FE2247194FA4081C37B8C4029
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110176.jpgsave_picture_110176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110176.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:619D788C5CB5F416B7327A28BD23E927B2D4A4AD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110177.jpgsave_picture_110177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110177.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8600ABF0DEBBE55A3147FF942CBF5A48EE98A8BE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110178.jpgsave_picture_110178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110178.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vector Seven - Atlas Industries (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110179.jpgsave_picture_110179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110179.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:2E80E2D1A2A7E7FBE2AD5C8875B5AF39F00505D8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110180.jpgsave_picture_110180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110180.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:39189A22CF4DA94D1CEE8714224ECFB44D84A716
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110181.jpgsave_picture_110181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110181.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:89D040F9C93B373E13B7763543A5DD313F781205
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110182.jpgsave_picture_110182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110182.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Brave Browser 1.65.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110183.jpgsave_picture_110183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110183.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Danger Silent - The Revival (2024) [MP3|320 Kbps] <Alternative Rock, Post Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpgsave_picture_110184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ QOwnNotes 24.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110185.jpgsave_picture_110185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110185.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Concerto Moon - Back Beyond Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110186.jpgsave_picture_110186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110186.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Telegram Desktop 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110187.jpgsave_picture_110187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110187.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:2D58AB3DE9C7EC58B2C2E72FF68DE141F933C520
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110188.jpgsave_picture_110188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110188.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:389498C05E64529B8002483D5DC6DAE5EB0EF8FF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110189.jpgsave_picture_110189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110189.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:29127DC59EB1C029D8C6ABA3FCBC7BA4836F05CD
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110190.jpgsave_picture_110190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110190.jpg" />
 </div>
 
 

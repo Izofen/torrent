@@ -6,7 +6,7 @@ VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71808.jpgsave_picture_71808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71808.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Evadam - Jiva (Deluxe Edition) (2013) [MP3|320 Kbps] <Oriental Electronic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71809.jpgsave_picture_71809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71809.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8DD5855832A1A2DC45162522A7C6899E6A6DA6C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71810.jpgsave_picture_71810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71810.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lustre Jazz - Bangkok Twilight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71811.jpgsave_picture_71811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71811.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tamara Bodie - Just Have Something to Say (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71812.jpgsave_picture_71812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71812.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:C8FB1EDD4E365600B8F09912FABE0A94D0060A3F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71813.jpgsave_picture_71813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71813.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sound Dinosaur - BREWING HARMONY (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71814.jpgsave_picture_71814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71814.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B0C613B51C050D0DA34409F9B3C8543C96DCF04A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71815.jpgsave_picture_71815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71815.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sunlight - Son Of The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71816.jpgsave_picture_71816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71816.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:8857D29F5D928685A17519883BE218F3D44BE424
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71817.jpgsave_picture_71817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71817.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:29A9B8B915C786CEFDF57D31568E5C08437B1F12
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71818.jpgsave_picture_71818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71818.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:EF6C5070ADA20BEDA2B376FDD3DDB65892D10356
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71819.jpgsave_picture_71819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71819.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71820.jpgsave_picture_71820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71820.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:7B7E93EFF681D8801E40733E9564C2677ECD3A5F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71821.jpgsave_picture_71821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71821.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71822.jpgsave_picture_71822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71822.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Riptyde - Of Conquest And Downfall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71823.jpgsave_picture_71823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71823.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|image + .cue] <Doom, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71824.jpgsave_picture_71824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71824.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4E542D1F5384603FF8CB65DE3E701AF3A89438E3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71825.jpgsave_picture_71825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71825.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71826.jpgsave_picture_71826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71826.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:0B5188B8CA70F1A5FC22E324C24779F124C80E89
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71827.jpgsave_picture_71827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71827.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:0E41C0B856FE56EBF2B209C661FD4F8C05EE7258
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71828.jpgsave_picture_71828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71828.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0E41C0B856FE56EBF2B209C661FD4F8C05EE7258
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71829.jpgsave_picture_71829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71829.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6D5FB85311C92D2983A2F766B5EBC90F0AAD4B06
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71830.jpgsave_picture_71830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71830.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1B265264BBD237C2ED65652DED2BD123D54FDB89
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71831.jpgsave_picture_71831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71831.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Singlets Labarca - Foggy River (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpgsave_picture_71832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpgsave_picture_71833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpg" />
 </div>
 
 

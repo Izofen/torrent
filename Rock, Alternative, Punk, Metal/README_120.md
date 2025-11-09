@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpgsave_picture_107328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ para bellvm - Это я (2024) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpgsave_picture_107329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Night Pleasure Hotel - Portraits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107333.jpgsave_picture_107333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107333.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4D81FAE1548BE0B5389FA2EFEC4EE075B89DABF4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107344.jpgsave_picture_107344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107344.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ White Stones - Memoria Viva (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107377.jpgsave_picture_107377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107377.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpgsave_picture_107383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Peter Hammill - Been Alone So Long (2024) The Naked Songs - Tour, Bremen 1985 [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpgsave_picture_107390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nothing More - Carnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107392.jpgsave_picture_107392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107392.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deus Vult - Wege Dieser Welt (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107393.jpgsave_picture_107393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107393.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|image + .cue] <Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107397.jpgsave_picture_107397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107397.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Borne of Ash - From the Dark, They Came (2024) [MP3|320 Kbps] <Atmospheric Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107406.jpgsave_picture_107406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107406.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ian Highhill - Gallows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107414.jpgsave_picture_107414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107414.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mondo Generator - Cocaine Rodeo (2000) 20th Anniversary Repress, 2020, Heavy Psy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107415.jpgsave_picture_107415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107415.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Shotgun Mistress - Kings Of The Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107422.jpgsave_picture_107422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107422.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aggressive By Nature - Rebirth (2024) [MP3|320 Kbps] <Heavy Metal, Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107423.jpgsave_picture_107423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107423.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Greenleaf - The Head & The Habit (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107425.jpgsave_picture_107425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107425.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Push - 4 the Love of the Game (2002) Remaster, 2024, Push [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107427.jpgsave_picture_107427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107427.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Izz - Collapse the Wave (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107428.jpgsave_picture_107428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107428.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ozric Tentacles - Erpland (1990) Reissue, 2018,	Madfish [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107429.jpgsave_picture_107429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107429.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sultan - Check & Mate (1990) Deluxe Edition, 2024, Divebomb Records [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107431.jpgsave_picture_107431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107431.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sumac - The Healer (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107435.jpgsave_picture_107435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107435.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpgsave_picture_107457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpgsave_picture_107458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpgsave_picture_107461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpgsave_picture_107462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpgsave_picture_107463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpg" />
 </div>
 
 

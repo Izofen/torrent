@@ -6,7 +6,7 @@ BABY Audio - Atoms 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60224.jpgsave_picture_60224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60224.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AA7DCBDF27C9B5E678E3ED4526FCDC3B0C3DDDBF
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60268.jpgsave_picture_60268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ W.A. Production - Instacomposer 2 2.0.1.240325 VSTi, VSTi 3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60326.jpgsave_picture_60326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60326.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60379.jpgsave_picture_60379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60379.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Bigasoft Total Video Converter 6.6.0.8858 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60778.jpgsave_picture_60778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60778.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ WonderFox HD Video Converter Factory Pro 27.0 RePack (& Portable) by TryRooM [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61059.jpgsave_picture_61059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61059.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61102.jpgsave_picture_61102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61102.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 RePack by KpoJIuK [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61155.jpgsave_picture_61155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61155.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Room Arranger 9.8.3.645 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61488.jpgsave_picture_61488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61488.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Room Arranger 9.8.3.645 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61512.jpgsave_picture_61512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61512.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ AquaSoft Stages 15.2.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61523.jpgsave_picture_61523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61523.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Atomix VirtualDJ 2023 Pro Infinity 8.5.7921 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61535.jpgsave_picture_61535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61535.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pioneer DJ Rekordbox 6 Professional 6.8.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61561.jpgsave_picture_61561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61561.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Character Animator 2024 24.2.0.80 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61585.jpgsave_picture_61585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61585.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Wondershare UniConverter Ultimate 15.5.3.36 (х64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61589.jpgsave_picture_61589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61589.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MAGIX SOUND FORGE Pro Suite 18.0.0.21 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61635.jpgsave_picture_61635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61635.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Valhalla DSP - Valhalla VintageVerb 4.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62110.jpgsave_picture_62110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62110.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Valhalla DSP - Valhalla Room 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62111.jpgsave_picture_62111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62111.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8BBF7FB22773BFDD96A9055C08764C1859BA31FB
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62388.jpgsave_picture_62388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62388.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Bondware Poser Pro 13.3.686 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62904.jpgsave_picture_62904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62904.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Reconstruct Subdiv script for Autodesk Maya v1.3 by Nick Barre [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63516.jpgsave_picture_63516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63516.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adobe Photoshop 2025 26.11.0.18 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63872.jpgsave_picture_63872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63872.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Adobe Illustrator 2025 29.8.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63932.jpgsave_picture_63932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63932.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AIMP 5.40.2695 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63964.jpgsave_picture_63964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63964.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ OnOne Perfect Resize Professional Edition 7.0.6 [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64439.jpgsave_picture_64439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64439.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ MeldaProduction - MCompleteBundle 17.05 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64666.jpgsave_picture_64666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64666.jpg" />
 </div>
 
 

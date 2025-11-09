@@ -6,7 +6,7 @@ HTML Academy | Основы наставничества (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154861.jpgsave_picture_154861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cкелетон. Кубок мира 2016-2017. 2-й Этап. Лейк-Плэс
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154862.jpgsave_picture_154862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154862.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9DE0689953DB6B649DAD48DCC59F98302B9E56F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154863.jpgsave_picture_154863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154863.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E73FC3107F58B9CFC76C01053B99EFBDEEDEDCBD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154864.jpgsave_picture_154864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154864.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:448B999A2306DA370FA4C618B82BDC9A56A548F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154865.jpgsave_picture_154865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154865.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ State of Survival (2023) [Ru/Multi] (1.20.20.644) License (обновляема�
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154866.jpgsave_picture_154866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154866.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:DF6E742E61AED99AB60D09C3FED00EE56A4365A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154867.jpgsave_picture_154867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154867.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:4954206007E614769701D61F4F3C0204F43B9E51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154868.jpgsave_picture_154868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154868.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Tangled Audio: Best Of 2016 (Mixed by Duncan Newell) (2016) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154869.jpgsave_picture_154869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154869.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:F6FD42A5C30DF93040E6ED073DD7394249426EA5
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154871.jpgsave_picture_154871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154871.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9A729578AE16DE91CAE96C2A497EC7918FB8FA7E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154872.jpgsave_picture_154872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154872.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D1DE94B14200050AD35864E716057ACDD1DCE5A6
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154873.jpgsave_picture_154873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154873.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:FA7D753DCA73AA15D1EE1BD1B9EF25CD66F0E4F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154874.jpgsave_picture_154874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154874.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A02F342B2C67BEA7352FCF7026CC1B0BA0187427
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154875.jpgsave_picture_154875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154875.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D039038B0441A2737660F5E2A19C6FC6085A1584
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154876.jpgsave_picture_154876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154876.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Orion Markup - image notes and annotations 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154877.jpgsave_picture_154877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154877.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154878.jpgsave_picture_154878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154878.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154879.jpgsave_picture_154879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154879.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154880.jpgsave_picture_154880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154880.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2B5404092968618413FD888318BCABAF49109D99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154881.jpgsave_picture_154881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154881.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3CABCA552BE3CAF0F553E75B0EF04EDF391EC5BC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154882.jpgsave_picture_154882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154882.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154883.jpgsave_picture_154883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154883.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:FF128F68057A4581EA4D7B3D3EDE58B4CBAA3456
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154884.jpgsave_picture_154884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154884.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:53E0CE6670B0537DE506842DCEF51A2877485CE7
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154885.jpgsave_picture_154885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154885.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C7A8929A8203C1D09A08F0E0EFB2E8BF04D9505D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154886.jpgsave_picture_154886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154886.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:AF8A1404BB27BF78A3E993C360F83B6A20E54639
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154887.jpgsave_picture_154887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154887.jpg" />
 </div>
 
 

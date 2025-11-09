@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64736.jpgsave_picture_64736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64736.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Chill & Seduce  - The Sensual Lounge Collection (2025) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64737.jpgsave_picture_64737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64737.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:33B3B5AB47F2C6F3A0E18176CB4D772451C7C89F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64738.jpgsave_picture_64738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64738.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CE58274605A71F795A77E558769D8882C1F6052B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64739.jpgsave_picture_64739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64739.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1E01561482C8D79AA8A7E22725718352CCD38BF5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64740.jpgsave_picture_64740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64740.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2E13674E653A522D6E3A08F9966F7BBFEB8370EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64741.jpgsave_picture_64741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64741.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E6111D26D60A398E525EA8B8C8DE85882D854728
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64742.jpgsave_picture_64742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64742.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F129C83029DBE122B6A085BBCCB4EA6737ED494C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64743.jpgsave_picture_64743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64743.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:084D94543C6FFA0C825CEC3CA5A4F4D7BB6C98DA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64744.jpgsave_picture_64744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64744.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:A34799D39D752558C91E8D6A500D8BD10B129B92
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64745.jpgsave_picture_64745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64745.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5CD21D203E18F6E66E63E7A5272029D7ECC0E9E1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64746.jpgsave_picture_64746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64746.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4352BCB3275B3E1DB922AC75AC34587749D1CDF2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64747.jpgsave_picture_64747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64747.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5B7C9DA3813223975F10B1B149FA5FAD8FE8A6D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64748.jpgsave_picture_64748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64748.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:983AF0B484CF5EAEB449831D35BD5E7B033DE7C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64749.jpgsave_picture_64749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64749.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F6118F0DEF4AA2CF67709E2E2C8FAD905C51359D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64750.jpgsave_picture_64750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64750.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64751.jpgsave_picture_64751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64751.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:260BD97C5BC6A07DDB95D0F269DFEB5CB46BC342
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64752.jpgsave_picture_64752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64752.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C904DA6986FB96EFC01E5D3584CF27914258E5B9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64753.jpgsave_picture_64753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64753.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64754.jpgsave_picture_64754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64754.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:6D0A3690483395A8ACEA744683A508C7B5766975
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64755.jpgsave_picture_64755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64755.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64756.jpgsave_picture_64756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64756.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Charlie Haden Quartet West - In Angel City (1988) Verve Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64757.jpgsave_picture_64757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64757.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Lights of Vimana - Neopolis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64758.jpgsave_picture_64758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64758.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64759.jpgsave_picture_64759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64759.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpgsave_picture_64760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64761.jpgsave_picture_64761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64761.jpg" />
 </div>
 
 

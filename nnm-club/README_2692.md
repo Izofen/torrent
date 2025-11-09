@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70742.jpgsave_picture_70742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Taskito v1.1.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70743.jpgsave_picture_70743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70743.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7062C1AAA84BD1C0D158C1CEC1623808DF32F360
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70744.jpgsave_picture_70744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70744.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Photo Supreme 2024.2.2.6715 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70745.jpgsave_picture_70745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70745.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D480DE24202C2F9DF7BA89AB3AAFCB01CE22C87E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70746.jpgsave_picture_70746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70746.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70747.jpgsave_picture_70747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70747.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7A89E78EBC198F11ACF40C48975EF6C0808D415F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70748.jpgsave_picture_70748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70748.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:59211925314267982B57CB31E5D6405F5042E482
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70749.jpgsave_picture_70749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70749.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ O&O DiskImage Professional 20.2 Build 343 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70750.jpgsave_picture_70750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70750.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CC12044E102CFE63474AE0739C33084AA8B560E8
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70751.jpgsave_picture_70751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70751.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5D425DB3090C5637D4EFD05246C11A51024305C8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70752.jpgsave_picture_70752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70752.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E3E2E1C8FF123F7E16DC6A985DE50C590B1E62BC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70753.jpgsave_picture_70753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70753.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:26D0E30AA11686048418D48FC0F43920FACBC7EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70754.jpgsave_picture_70754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70754.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ LAHR.(ex-De/Phazz) – Lyrical Amusement (Limited Edition) (2002) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70755.jpgsave_picture_70755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70755.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D7A4E2E8674446E81741E89B40CDC7AC9F9D110B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70756.jpgsave_picture_70756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70756.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70757.jpgsave_picture_70757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70757.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Dave Stryker Organ Trio - One For Reedus (2008) 2010, SteepleChase [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70758.jpgsave_picture_70758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70758.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:680A8CAD26A719DD43E106D939CAD91CFB082B62
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70759.jpgsave_picture_70759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70759.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ John Bunch Trio - Love Songs (1997) 2001, LRC [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70760.jpgsave_picture_70760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70760.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:72DA3B6F5FB8696CA5971B4E53D2A9A2A616BFEB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70761.jpgsave_picture_70761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70761.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:C2C5F67493EF3E98B128896AFA177E6FFD6C6E19
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70762.jpgsave_picture_70762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70762.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:DC3C165FADB046A51F43700952C656C127C48289
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70763.jpgsave_picture_70763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70763.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70764.jpgsave_picture_70764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70764.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70765.jpgsave_picture_70765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70765.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ilan Bluestone - Anthem Test (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70766.jpgsave_picture_70766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70766.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70767.jpgsave_picture_70767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70767.jpg" />
 </div>
 
 

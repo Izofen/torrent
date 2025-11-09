@@ -6,7 +6,7 @@ ICQ 10.0 build 12414 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140645.jpgsave_picture_140645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFD1FD4511213E60E9534ED222C91C86FCC35F47
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140646.jpgsave_picture_140646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140646.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A7CD2CA0C85BD076933E79C172E7EB73D5C55D94
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140647.jpgsave_picture_140647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140647.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ ConceptDraw Office for Mac 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140649.jpgsave_picture_140649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140649.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B4B47B1B33317E19763BFEA3A012EC9D59E4DDF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140650.jpgsave_picture_140650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140650.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B3C653F6815578995BD1A71F4451EC7B66E09536
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140653.jpgsave_picture_140653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140653.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1CEEACE64C00AEEDDE0B9BE70F372EEE3C3655E7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140654.jpgsave_picture_140654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140654.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DBAABCA34C62C716BC4B0DD2C874E8D978BD7C2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140656.jpgsave_picture_140656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140656.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140657.jpgsave_picture_140657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140657.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140658.jpgsave_picture_140658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140658.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Web-зона (2018) WEB-DLRip [H.264/720p-LQ] (Сезон 1-2, Серии 1-24 �
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140659.jpgsave_picture_140659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140659.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:66A5EE97A3EB9875B8499D98AB090C7EFA534353
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140662.jpgsave_picture_140662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140662.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Depeche Mode - 101 (1989) 2 SACD, Remastered, 2004 Mute [FLAC|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140663.jpgsave_picture_140663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140663.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:56BEB8C6744132C92A12F69914321CA2029312C3
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140664.jpgsave_picture_140664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140664.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Loaris Trojan Remover 3.0.73.208 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140665.jpgsave_picture_140665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140665.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E34D8FDC9FDE68301FB4FE0E0CA4446391266A1B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140666.jpgsave_picture_140666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140666.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ChrisPC Win Experience Index 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140669.jpgsave_picture_140669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140669.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Benchmark AI - System Monitor for Mac 1.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140670.jpgsave_picture_140670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140670.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Anjunadeep: The Yearbook 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140671.jpgsave_picture_140671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140671.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A0649B72AF5ED4BE3222366A5536554650AB82E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140672.jpgsave_picture_140672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140672.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:E3E9C1F59E6284B71B85335187ADB2A35419A412
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140674.jpgsave_picture_140674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140674.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Van Morrison - 6 Albums (1978 - 1995) [FLAC|Lossless|tracks + .cue]<Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140675.jpgsave_picture_140675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140675.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:6FFE95D5B9CE8BF9E5ACDE4B1EA757F802F01E34
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140676.jpgsave_picture_140676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140676.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:848043C7EB5CC5D99E8EC9FCD86758079647F7AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140677.jpgsave_picture_140677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140677.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:C3DAFC19A2603C7BC80B33E022A649839234E235
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140678.jpgsave_picture_140678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140678.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:C3DAFC19A2603C7BC80B33E022A649839234E235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140679.jpgsave_picture_140679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140679.jpg" />
 </div>
 
 

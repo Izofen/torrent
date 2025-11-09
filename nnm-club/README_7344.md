@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251233.jpgsave_picture_251233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251233.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F071B8E2D91FBA9CE702064B6873647AEBA93438
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251234.jpgsave_picture_251234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F071B8E2D91FBA9CE702064B6873647AEBA93438
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251235.jpgsave_picture_251235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251235.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0D30A0F28FD14A5ADD56EDDDDE6F5675978625D2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251236.jpgsave_picture_251236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:46039E99C77B14BC4CA2EC423787E22F0EA91FD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251237.jpgsave_picture_251237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251237.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:82A3AD59014B6EAF79F9C71B009DD2251A88BF5F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251238.jpgsave_picture_251238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251238.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251240.jpgsave_picture_251240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251240.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251241.jpgsave_picture_251241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251241.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FDF703D1CB8981087661C75E3E484E795824D6E3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251242.jpgsave_picture_251242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251242.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B4D46F97047AA17F24A4B01A9AC1BC0C202DAAB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251244.jpgsave_picture_251244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251244.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:35FCDA4BB5CCE826C86D242858F4650522BBCC45
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251245.jpgsave_picture_251245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251245.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6318F34312C34A13C22FEBA102483B4495466B35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpgsave_picture_251246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6318F34312C34A13C22FEBA102483B4495466B35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251247.jpgsave_picture_251247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251247.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:5AF57092955461FBC8082DE03B4DB6924A0A4279
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251250.jpgsave_picture_251250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251250.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:120E32077431151FD8AE6D263B91E70841EE8667
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251251.jpgsave_picture_251251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251251.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251252.jpgsave_picture_251252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251252.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ TrueDO, Александра Фалендуш | Деревянная игруш�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251253.jpgsave_picture_251253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251253.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:270B679E85DB6FB33B3AD9CEEE51AFD106032BAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251255.jpgsave_picture_251255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251255.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ridge Racer Unbounded + 1 DLC [Ru/En/Multi6] (RePack/1.09) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251257.jpgsave_picture_251257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251257.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A34A91060FB8C985CB55F8A756AD63212ADB82C1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251258.jpgsave_picture_251258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251258.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:31C1FA399803E307F2B511FDEED08751C8D00057
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251259.jpgsave_picture_251259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251259.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:3EB74F529AF6FA51C3DF098367F4238632A9FBF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251261.jpgsave_picture_251261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251261.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:48D02B3EB0A727DC8DC56A2B154971114505CC70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251262.jpgsave_picture_251262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251262.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:48D02B3EB0A727DC8DC56A2B154971114505CC70
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251263.jpgsave_picture_251263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251263.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:D20DA88427D59748EAC908E48184D535A29DC72A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251264.jpgsave_picture_251264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251264.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D20DA88427D59748EAC908E48184D535A29DC72A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251265.jpgsave_picture_251265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251265.jpg" />
 </div>
 
 

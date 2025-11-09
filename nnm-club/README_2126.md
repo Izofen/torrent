@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55643.jpgsave_picture_55643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0A29DA2F6E67A1486C3F60D13D04FBC98A5C6CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55644.jpgsave_picture_55644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55645.jpgsave_picture_55645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55645.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:49AFCE858437A41D67C3B987B506E4DF323F7C8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55646.jpgsave_picture_55646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55646.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8817030532FCCEE448749C9AF3FCC681B04F454B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55647.jpgsave_picture_55647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55647.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5C35AB640EA5959D4EF9FCCCDA4E8EC9F9BCA6C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55648.jpgsave_picture_55648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55648.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2ACC6BCD06C1539A280A14696999CE84FF9DF177
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55649.jpgsave_picture_55649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55649.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:55C69310A02851FED10FD6D0AEA8FCCAC482F1BB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55650.jpgsave_picture_55650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55650.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:444A87D7F807CDD3380997220E5C609A2B8EAB99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55651.jpgsave_picture_55651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55651.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2BC87E47D7E9569B7A65AC6E511172F51C2BF121
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55652.jpgsave_picture_55652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55652.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Lovejagten / Охота на львов (1907) WEBRip [H.264/720p]
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55653.jpgsave_picture_55653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55653.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:A9E069271BF4BF24764C152F829743AE40B92170
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55654.jpgsave_picture_55654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55654.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1F1B8E0E982C15C7456700E7FD96BB1939CBAAC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55655.jpgsave_picture_55655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55655.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Turbo Sloths (2022) [Ru/Multi] (13189048/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55656.jpgsave_picture_55656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55656.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.6 Portable
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55657.jpgsave_picture_55657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55657.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B7CDC904744E49D35F3D2D0687DCBE3157BC7EF0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55658.jpgsave_picture_55658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55658.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0B1AE62C0C5055A43330D71D1534C6BA52F9B4F9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55659.jpgsave_picture_55659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55659.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:EEAE8146FCA5840560D2B7223A5F9AD70A79162E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55660.jpgsave_picture_55660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55660.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ BroodStar (2020) [En] (1.6.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55661.jpgsave_picture_55661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55661.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:398787AC8AAD30F8E70B6D9F20C6858CCA878CDA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55662.jpgsave_picture_55662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55662.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:DA534C82C224027A43281ABD6E32DE3E67A2D5DE
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55663.jpgsave_picture_55663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55663.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55664.jpgsave_picture_55664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55664.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:16DD75361F1E8D860B4FDB932232E1A944CE7EEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55665.jpgsave_picture_55665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55665.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Microsoft представила Recall — функцию записи всех
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55666.jpgsave_picture_55666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55666.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Microsoft представила Recall — функцию записи всех
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55667.jpgsave_picture_55667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55667.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:5C3CF0DF5B04E7AEA25A3F3FC914B8BBAB3AE9CC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55668.jpgsave_picture_55668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55668.jpg" />
 </div>
 
 

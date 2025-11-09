@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106057.jpgsave_picture_106057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:88F5562EC0D36EEE455ECA679883099F4FF2BA7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106058.jpgsave_picture_106058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106058.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106059.jpgsave_picture_106059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:33A57985A3094DBFB838187005032743F9655E29
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106060.jpgsave_picture_106060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106060.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Firefox Browser 128.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106061.jpgsave_picture_106061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106061.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106062.jpgsave_picture_106062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106062.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ LightX - Фоторедактор v2.2.1 b454 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106063.jpgsave_picture_106063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106063.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ BananaVisualLibraries 1.0.0.2 [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106064.jpgsave_picture_106064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106064.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106065.jpgsave_picture_106065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106065.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106066.jpgsave_picture_106066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106066.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 (x32) / Build 87960 (x64) RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106067.jpgsave_picture_106067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106067.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.065.1459 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106068.jpgsave_picture_106068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106068.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106069.jpgsave_picture_106069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106069.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ OneCommander Pro 3.87.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106070.jpgsave_picture_106070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106070.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpgsave_picture_106071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:CCC86F54C9A39D900A30352AC963A8864534E16A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106072.jpgsave_picture_106072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106072.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106073.jpgsave_picture_106073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106073.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PhotoRoom v5.1.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106074.jpgsave_picture_106074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106074.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C9A2A92672783A6BB84B60AA8061A8E98AB1ACCB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106075.jpgsave_picture_106075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106075.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7CD214C81E4463F5C65C7836095077825BEF88C5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106076.jpgsave_picture_106076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106076.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpgsave_picture_106077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106078.jpgsave_picture_106078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106078.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:4F04EDE7238C30C4B541528DBAC304409E7A6A7E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106079.jpgsave_picture_106079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106079.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106080.jpgsave_picture_106080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106080.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106081.jpgsave_picture_106081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106081.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:6F2E10677C3DD44F5040896AE6BDED5A8BD8BE14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106082.jpgsave_picture_106082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106082.jpg" />
 </div>
 
 

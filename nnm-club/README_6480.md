@@ -6,7 +6,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205187.jpgsave_picture_205187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:85F7C75086CE186EB343513D3DAC973DF31F90D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205188.jpgsave_picture_205188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205188.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jag Panzer - Shadow Thief (1986) Reissue, 1992, Reborn Classics [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205189.jpgsave_picture_205189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205189.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:986CE943047516B8BDB95898AF806B2C591575D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205190.jpgsave_picture_205190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205190.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Yate 6.16.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205192.jpgsave_picture_205192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205192.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A590CDD64D8C2FA76165B1382FEEB48F8767B928
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205193.jpgsave_picture_205193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205193.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by KirIif' [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205194.jpgsave_picture_205194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205194.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:D45A10B59284395852E14E48016F6916EF9EF345
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205195.jpgsave_picture_205195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205195.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpgsave_picture_205196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:516908C1EEAAD064655C04167C721E7DD1604011
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205197.jpgsave_picture_205197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205197.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ TechSmith Snagit 2023.2.2 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205198.jpgsave_picture_205198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205198.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Defiants - Drive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205199.jpgsave_picture_205199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205199.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5D565BFB9BB02FADCB04E8B6A32CA7BD702201C5
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205200.jpgsave_picture_205200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205200.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Percival - The Seventh Seal (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205201.jpgsave_picture_205201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205201.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:8A55CDA5D7C3ABF314E1B3E77DB531703E5D641D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205202.jpgsave_picture_205202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205202.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0450B17BA61EE20CE0C9D6A84AEBCB83839FA76C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205203.jpgsave_picture_205203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205203.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:E305681F8B1A2EC413854AA5870CDE6D4B6BD32E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205204.jpgsave_picture_205204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205204.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205205.jpgsave_picture_205205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205205.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7F5D2AB68968F22B1163C015B0AF00189D365981
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205206.jpgsave_picture_205206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205206.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ InShot - Фото и видеоредактор 1.953.1414 Mod by 0x7d [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205207.jpgsave_picture_205207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205207.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E3FF03523C543950A675C338D1CA289E5DA15E86
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205208.jpgsave_picture_205208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205208.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:6F3E1732CAF227707B0FC517675B75A97645B2D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205209.jpgsave_picture_205209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205209.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ PhotoDirector - Редактор фото 18.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205210.jpgsave_picture_205210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205210.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:AB1293FBFFBA38AC66DEC199C9247442A7480661
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205211.jpgsave_picture_205211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205211.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9DA7CBDB14B4CC21E3D411A1316BF34943D991B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205212.jpgsave_picture_205212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205212.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ OmniReader Pro for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205213.jpgsave_picture_205213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205213.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9313.jpgsave_picture_9313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E6963131368A47343AC98C337EC21173D9784C94
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9314.jpgsave_picture_9314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9315.jpgsave_picture_9315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9315.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9316.jpgsave_picture_9316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9316.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5591B8823699745B0B167B5D733CAB7F3C09104A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9317.jpgsave_picture_9317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9317.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EB26FB1AAAA3B4E0DC734E312A575E39C2B3D551
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9318.jpgsave_picture_9318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9318.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9319.jpgsave_picture_9319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9319.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7920DA989F4F6028F71ED64C892E6F6BCEA475B2
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9320.jpgsave_picture_9320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9320.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3F2C2736892EE18BC83AEACC85D0E812D5730658
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9321.jpgsave_picture_9321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9321.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:DBA2C8E7A603508D4D398D3923980D33B2837967
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9322.jpgsave_picture_9322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9322.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C092BD684B1BC396422A03BA0E5997B30D1A41CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9323.jpgsave_picture_9323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9323.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4F35F918AF9D8C67FCBAEB956716CF0CB3BEBF3E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9324.jpgsave_picture_9324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9324.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Findroid | Лабиринт (Книги 1-3) (2025) [MP3, Александр П�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9325.jpgsave_picture_9325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9325.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A91AE7C908EF4C0119C00B4B535D521883B20B6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9326.jpgsave_picture_9326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9326.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1ABADFD712A88795BF8A8A2DF76A83C4D463E1B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9327.jpgsave_picture_9327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9327.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:78039B4FCF1A4F584B06D142FA0B92E84EB7D432
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9328.jpgsave_picture_9328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9328.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Enigma Project - Maze of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9329.jpgsave_picture_9329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9329.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:75C73B752C3815A7C06AD6B8714F4323C5637246
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9330.jpgsave_picture_9330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9330.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CoolUtils Total Movie Converter 4.1.0.70 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9331.jpgsave_picture_9331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9331.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:EAAE20DF28A4720AA58FABA28C1255CC68D41879
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9332.jpgsave_picture_9332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9332.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:70E6FFBF1F1EF8D1D86D9E940DA0AEDC1F05820E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9333.jpgsave_picture_9333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9333.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:16FC33E9D20397FA4B9874E72AECB00AB7DF8809
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9334.jpgsave_picture_9334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9334.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ui Kits - UI8 - Core - Dashboard Builder [XD, FIG, SKETCH, HTML, CSS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9335.jpgsave_picture_9335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9335.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:84BE4BFFAAFF713183759D38376412A6BEC439EC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9336.jpgsave_picture_9336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9336.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ CoolUtils Total Audio Converter 6.1.0.284 RePack (& Portable) by elchupacabra [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9337.jpgsave_picture_9337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9337.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ CoolUtils Total Image Converter 8.2.0.282 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9338.jpgsave_picture_9338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9338.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpgsave_picture_244978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpgsave_picture_244997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245044.jpgsave_picture_245044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245044.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245169.jpgsave_picture_245169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245169.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245188.jpgsave_picture_245188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245188.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245485.jpgsave_picture_245485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245485.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpgsave_picture_245564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245766.jpgsave_picture_245766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245766.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpgsave_picture_245973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249436.jpgsave_picture_249436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249436.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249796.jpgsave_picture_249796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249796.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249886.jpgsave_picture_249886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250027.jpgsave_picture_250027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250117.jpgsave_picture_250117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250260.jpgsave_picture_250260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250260.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250468.jpgsave_picture_250468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250468.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpgsave_picture_251202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Metallica - Дискография (20 releases) (1983-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252145.jpgsave_picture_252145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252145.jpg" />
 </div>
 
 

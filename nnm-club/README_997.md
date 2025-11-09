@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26272.jpgsave_picture_26272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26272.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ A Perfect Day v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26273.jpgsave_picture_26273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26273.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DDD738BD35C188E2DD64B4DFDA2216D333AA0600
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26274.jpgsave_picture_26274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26274.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26275.jpgsave_picture_26275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26275.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26276.jpgsave_picture_26276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26276.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26277.jpgsave_picture_26277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26277.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3A10D03FC5419DCB8F39E3E73591929E8C331939
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26278.jpgsave_picture_26278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26278.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26279.jpgsave_picture_26279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26279.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26280.jpgsave_picture_26280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26280.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:338968EDC8122696CE197C7A9037AEE8BA316314
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26281.jpgsave_picture_26281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26281.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Windows Manager 2.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26282.jpgsave_picture_26282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26282.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:C801C1CB021F53611D4223059C45D101DD044800
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26283.jpgsave_picture_26283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26283.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:2A06F01B819BD8ACBDCF0D0035E23D27538C44EB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26284.jpgsave_picture_26284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26284.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:55542195865DCD7020DB98243A5FC44F590EB324
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26285.jpgsave_picture_26285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26285.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ DesktopDigitalClock 5.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26286.jpgsave_picture_26286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26286.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:117DE04BBCEA9798F2C2F538A65213FEAD86E119
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26287.jpgsave_picture_26287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26287.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F41A740D79FF73F243B47549E9630A2792A66CFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26288.jpgsave_picture_26288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26288.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Master PDF Editor 5.9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26289.jpgsave_picture_26289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26289.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:81F1B3B95520A8A5F09E2C7752F7CA94F38B5CDB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26290.jpgsave_picture_26290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26290.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7301 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26291.jpgsave_picture_26291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26291.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Google Chrome 133.0.6943.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26292.jpgsave_picture_26292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26292.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:227E0C94E8BF44381EE7F13F10EA43EEDE611F67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26293.jpgsave_picture_26293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26293.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:227E0C94E8BF44381EE7F13F10EA43EEDE611F67
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26294.jpgsave_picture_26294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26294.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26295.jpgsave_picture_26295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26295.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FD9CD92F1E487AD004C256092A8F40395582B794
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26296.jpgsave_picture_26296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26296.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Flaer Smin - Compilation (2025) [MP3|320 Kbps] <New Age, Enigmatic, Electronic, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26297.jpgsave_picture_26297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26297.jpg" />
 </div>
 
 

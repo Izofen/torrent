@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173586.jpgsave_picture_173586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173586.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B168C120BA6F9C6BD7BAB1A0C6610C06716678F8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173587.jpgsave_picture_173587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B97D66B7E388F6C32DF573ABD96C6ECB582A7501
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173588.jpgsave_picture_173588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173588.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E7617A2495E2E09FF4E8271F0613A704DA71A6B1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173589.jpgsave_picture_173589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173589.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EF36553666B2C08B28CB5B82DCCFFDA79E7739E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173590.jpgsave_picture_173590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173590.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Modartt - Pianoteq 8.3.1 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173591.jpgsave_picture_173591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173591.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:358D90CC35431B48DB75241A3015783D2AC5BD00
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173592.jpgsave_picture_173592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173592.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WinTools.net Premium 25.11.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173593.jpgsave_picture_173593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173593.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:80D05BB9A811C1B8ABF83BDF4EA329AD97605786
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173594.jpgsave_picture_173594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173594.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0BED294133D6E8DF862C9070FFDC17F0B4AB298A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173595.jpgsave_picture_173595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173595.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Avanquest Architect 3D Interior Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173596.jpgsave_picture_173596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173596.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Avanquest Architect 3D Landscape Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173597.jpgsave_picture_173597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173597.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3744A04C017DC35C1DD1C55213290FD2DE247351
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173598.jpgsave_picture_173598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173598.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Room Arranger 10.3.0.735 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173599.jpgsave_picture_173599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173599.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:631CBE913CD3C5E5970BCDD04603DDF55B232AC4
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173600.jpgsave_picture_173600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173600.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:13E1619BE4767742ECA4FEF9F3D88600C6418BAF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173601.jpgsave_picture_173601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173601.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3489CEA33D6695890B6ADA87EAC045C8290E2E78
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173602.jpgsave_picture_173602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173602.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173603.jpgsave_picture_173603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173603.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6F826FF93F6E6B66BEE147F389BFBF4D55F67315
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173604.jpgsave_picture_173604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173604.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D4BB52E4DAE4D9548540D0EE93FA78DDFFF03F8B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173605.jpgsave_picture_173605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173605.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:5490372C82DC156927F4CCB97B1F9E7A645263D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173606.jpgsave_picture_173606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173606.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:77D8FC1D8236710E96EA31275BA999587C584FDB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173607.jpgsave_picture_173607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173607.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ USB Safely Remove 6.4.3.1312 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173608.jpgsave_picture_173608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173608.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:18C578CF2A6B3BB666C37EA101177492970820AE
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173609.jpgsave_picture_173609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173609.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ USB Safely Remove 6.4.3.1312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173610.jpgsave_picture_173610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173610.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Spotify Web-Portable by DVLZ 2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173611.jpgsave_picture_173611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173611.jpg" />
 </div>
 
 

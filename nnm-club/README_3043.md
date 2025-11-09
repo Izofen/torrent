@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96309.jpgsave_picture_96309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96309.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96310.jpgsave_picture_96310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96310.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96314.jpgsave_picture_96314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96314.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:3D2A8BD443F0C6E9A661731DF2D9E60CF3E4BE61
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96317.jpgsave_picture_96317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96317.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96322.jpgsave_picture_96322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96322.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96329.jpgsave_picture_96329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96329.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4839B87962F1413EFB5A251F9F6D01F05EF722E5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96338.jpgsave_picture_96338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96338.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96339.jpgsave_picture_96339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96339.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96343.jpgsave_picture_96343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96343.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:C6697379FE12E9E230F7B9F36C1BC9DC8B6EBD9F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96346.jpgsave_picture_96346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96346.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - The best from the West (2012) [MP3|256 кб/с]<Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96349.jpgsave_picture_96349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96349.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96350.jpgsave_picture_96350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96350.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Ретро Дискотека глазами диджеев (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96353.jpgsave_picture_96353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96353.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96359.jpgsave_picture_96359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96359.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96376.jpgsave_picture_96376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96376.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96378.jpgsave_picture_96378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96378.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:1DAA0FE4CBC58DABA584A4AC979F5597CED34476
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96384.jpgsave_picture_96384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96384.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96386.jpgsave_picture_96386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96386.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96388.jpgsave_picture_96388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96388.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96395.jpgsave_picture_96395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96395.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96397.jpgsave_picture_96397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96397.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96401.jpgsave_picture_96401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96401.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96403.jpgsave_picture_96403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96403.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96406.jpgsave_picture_96406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96406.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96407.jpgsave_picture_96407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96407.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96410.jpgsave_picture_96410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96410.jpg" />
 </div>
 
 

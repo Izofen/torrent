@@ -6,7 +6,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpgsave_picture_172644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.8 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172645.jpgsave_picture_172645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172645.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172646.jpgsave_picture_172646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172646.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172647.jpgsave_picture_172647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172647.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zoner Photo Studio X 19.2309.2.499 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172648.jpgsave_picture_172648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172648.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ n-Track Studio Suite 10.0.0.8063 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172649.jpgsave_picture_172649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172649.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4C5B74ADE11856F768363D78DE0C6E90C422E52B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172650.jpgsave_picture_172650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172650.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:1BDAB4C5808E31B1C3E94BB11655DC6C852A8C6F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172651.jpgsave_picture_172651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172651.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:272563E176F978509C7DF929246A5AFA48795CED
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172652.jpgsave_picture_172652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172652.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1986BCA925EFB42F219B4BFD21EC63313D7DE316
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172653.jpgsave_picture_172653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172653.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ TablePlus 5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172654.jpgsave_picture_172654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172654.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172655.jpgsave_picture_172655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172655.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ GeoGebra 6.0.806.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172656.jpgsave_picture_172656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172656.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:98E30632532A21768AEBF7542A261A06CB951F26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172657.jpgsave_picture_172657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172657.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Antagonist - Damned And Cursed…To Life On Earth (Compilation) (2016) Compilati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172658.jpgsave_picture_172658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172658.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Imagenomic Realgrain for PS (Mac) 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172659.jpgsave_picture_172659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172659.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ SiteSucker Pro 5.1.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172660.jpgsave_picture_172660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172660.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:542281EF01A4CAECB923BF0D68F4DDAF6FA79B8F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172661.jpgsave_picture_172661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172661.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ TechSmith Snagit 2023.2.4 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172662.jpgsave_picture_172662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172662.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B7541B4D65B5551D4F6FA37FC470B891A9B11A5A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172663.jpgsave_picture_172663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172663.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PhoneRescue for iOS 4.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172664.jpgsave_picture_172664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172664.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F08D274829602888618BFD5D9F710B70BECE4112
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172665.jpgsave_picture_172665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172665.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Magic Battery 8.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172666.jpgsave_picture_172666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172666.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:83F512FF935546CD249CAE7D3455F19C4988DA91
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172667.jpgsave_picture_172667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172667.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ TechSmith Camtasia 2023 Studio 2023.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172668.jpgsave_picture_172668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172668.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Theocracy - Ghost Ship (2016) [FLAC|Lossless|image + .cue] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172669.jpgsave_picture_172669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172669.jpg" />
 </div>
 
 

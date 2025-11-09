@@ -6,7 +6,7 @@ Dropshare 5 v.5.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116679.jpgsave_picture_116679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116679.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116680.jpgsave_picture_116680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116680.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Telegram Desktop 4.15.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116681.jpgsave_picture_116681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116681.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:982151AA7B30B637FA2B008DAD9EA216693611D9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116682.jpgsave_picture_116682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116682.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Imagine 1.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116683.jpgsave_picture_116683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116683.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ RedNotebook 2.32.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116684.jpgsave_picture_116684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116684.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3D0070706F8AC2C6D103D344E561190F29C9E06E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpgsave_picture_116685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ TweakPower 2.051 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116686.jpgsave_picture_116686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116686.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:76F811BF1839F330387B50FAA94D8689823122FC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116687.jpgsave_picture_116687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116687.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ DiskDigger 1.157.227.3821 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116688.jpgsave_picture_116688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116688.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:0AEC94216F8EEEC151FF3D3CEECA81E61B6BD09D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116689.jpgsave_picture_116689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116689.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F5284667C16E7D861082CCBD4D0FF9C57A935950
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116690.jpgsave_picture_116690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116690.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Opera GX 107.0.5045.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116691.jpgsave_picture_116691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116691.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:C27DD2423B029BD490EA590C7E8897F8316BBAD0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116692.jpgsave_picture_116692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116692.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:7A74AB52D61DB59E7A56DF9E418CAE7049B458FB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116693.jpgsave_picture_116693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116693.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Chromium 121.0.6167.185 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116694.jpgsave_picture_116694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116694.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:024D0927BAF6C333A9BEDE58F4518CB5F5DFB14B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116695.jpgsave_picture_116695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116695.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116696.jpgsave_picture_116696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116696.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116697.jpgsave_picture_116697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116697.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116698.jpgsave_picture_116698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116698.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Erin Ross - The Wind Will Lead Me Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116699.jpgsave_picture_116699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116699.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:B6DCE573995C8D7B6A998AA865D8DC2C6B622D95
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116700.jpgsave_picture_116700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116700.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Telegram Desktop 4.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116701.jpgsave_picture_116701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116701.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BA6CDE766168FFF7F8C270A70D7F23FE2FEF3AD2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116702.jpgsave_picture_116702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116702.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Notepad++ 8.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116703.jpgsave_picture_116703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116703.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Revo Uninstaller Pro 5.2.5 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116704.jpgsave_picture_116704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116704.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1706]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235480.jpgsave_picture_235480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Serial 2 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235481.jpgsave_picture_235481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235481.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CF1836B91F25C69399AC3BCDBC4C4F2FE119E670
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235482.jpgsave_picture_235482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235482.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ EarthView 7.7.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235483.jpgsave_picture_235483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235483.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Saturnus - The Storm Within (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235484.jpgsave_picture_235484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235484.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Roland Hanna - Plays Harold Rome's Destry Rides Again (1959) 2007, Wounded Bird 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235485.jpgsave_picture_235485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235485.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:B08EE619E231EA383F713D1EAA94B36B8B728299
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235486.jpgsave_picture_235486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235486.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:10A4E7088D08A9C7090D4069F88F312AFC40CC6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235487.jpgsave_picture_235487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235487.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Primitai - Rise Again (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235488.jpgsave_picture_235488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235488.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Trance 2023 Vol. 4 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235489.jpgsave_picture_235489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235489.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:21F3B292EFA80C023A5E0C8DFE64B013A1FC2273
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235490.jpgsave_picture_235490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235490.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ PhoneRescue for iOS 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235491.jpgsave_picture_235491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235491.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Tension Prophecy - Tribal Hatred (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235492.jpgsave_picture_235492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235492.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:D4FEE3D31E12299EE20D75EF32FC052B2FB97D1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235493.jpgsave_picture_235493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235493.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:9F615C084E732532A97E2C21E333B4EBEE559239
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235494.jpgsave_picture_235494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235494.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Kerish Doctor 2022 4.90 (Update 13.09.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235495.jpgsave_picture_235495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235495.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DDD8AC923DDB879C02D633FDD6F77637E35C5ED1
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235496.jpgsave_picture_235496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235496.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:1B39F2CE1D8D35D2991DA87C26C01660A82B6171
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235497.jpgsave_picture_235497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235497.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Justin Cody Fox - New Southern (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235498.jpgsave_picture_235498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235498.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:1E93E324EF8C4D0F6A6BC96F26C33165F4EE28F9
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235499.jpgsave_picture_235499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235499.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:6B53F636CA1C79EDE50D0CB15BE81614F9E3A589
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235500.jpgsave_picture_235500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235500.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Transcend SSD Scope 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235501.jpgsave_picture_235501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235501.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Poricom Portable 1.1.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235502.jpgsave_picture_235502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235502.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Icecream Screen Recorder PRO 7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235503.jpgsave_picture_235503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235503.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Black Spiders - This Savage Land (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235504.jpgsave_picture_235504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235504.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Lost Relics - Die + Cry + Loathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235505.jpgsave_picture_235505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235505.jpg" />
 </div>
 
 

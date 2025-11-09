@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232982.jpgsave_picture_232982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brave Browser 1.52.129 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232985.jpgsave_picture_232985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232985.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ticket West - Chucufu (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232986.jpgsave_picture_232986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232986.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ MSI Kombustor 4.1.25.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232988.jpgsave_picture_232988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232988.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Aiseesoft Video Converter Ultimate 10.7.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232989.jpgsave_picture_232989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232989.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Liliac - Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232990.jpgsave_picture_232990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232990.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232991.jpgsave_picture_232991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232991.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232994.jpgsave_picture_232994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232994.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232995.jpgsave_picture_232995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232995.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Fort Firewall 3.9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232996.jpgsave_picture_232996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232996.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:9A66067419FE60E394766201047BA61915AD3E0B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232997.jpgsave_picture_232997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232997.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Armin van Buuren - A State Of Trance 1128 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232998.jpgsave_picture_232998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232998.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Formosa - Bittersweet (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233000.jpgsave_picture_233000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233000.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ R-Studio Network 9.2 Build 191153 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233001.jpgsave_picture_233001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233001.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1423B602A375A604DF982FEBCD5E921C5846E50A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233002.jpgsave_picture_233002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233002.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9E965CE896791C334BDF9145AFB2B847AF590DFF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233003.jpgsave_picture_233003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233003.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Daybreakers - Get Through This & Live (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233006.jpgsave_picture_233006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233006.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233007.jpgsave_picture_233007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233007.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233008.jpgsave_picture_233008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233008.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:52CF7EDD325124AA18AA5918C970BAE30D203479
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233009.jpgsave_picture_233009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233009.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Little Magic Sam - Step Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233010.jpgsave_picture_233010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233010.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B0A3FECE1808454D6B77578672991A5F82000A91
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233012.jpgsave_picture_233012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233012.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Timewriter - Dear Human Being (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233013.jpgsave_picture_233013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233013.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:B2C1552A724D84D96A1379324DF5F83AFD2C5250
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233014.jpgsave_picture_233014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233014.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ D.K. Harrell - The Right Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233015.jpgsave_picture_233015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233015.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:66D98A9617FF9DEEA322F6F20D00AB6115B36CD1
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233017.jpgsave_picture_233017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233017.jpg" />
 </div>
 
 

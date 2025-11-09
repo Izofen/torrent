@@ -6,7 +6,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234445.jpgsave_picture_234445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234445.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6840B30A6BA96700E22DD085E99B99B243467B09
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234448.jpgsave_picture_234448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234448.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpgsave_picture_234453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234453.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carttada - Recharged (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234460.jpgsave_picture_234460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234460.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rave In Fire - Sons Of A Lie (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234465.jpgsave_picture_234465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234465.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ New Rocket Union - Twin Cities Breakdown (2022) [FLAC|Lossless|WEB-DL|tracks] <G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234470.jpgsave_picture_234470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234470.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Suckerpunch - Redneck Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234477.jpgsave_picture_234477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234477.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Day/Four - Recycled Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234484.jpgsave_picture_234484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234484.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Varjo-Orkesteri - Prima Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234493.jpgsave_picture_234493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234493.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fear Factory - Re-Industrialized (2023) 2 x CD, Reissue, Remastered, Nuclear Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234500.jpgsave_picture_234500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234500.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Barnabas Sky - What Comes To Light (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234511.jpgsave_picture_234511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234511.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Project MSK - Time of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234512.jpgsave_picture_234512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234512.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mother Misery - From Shadow To Ghost (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234518.jpgsave_picture_234518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234518.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234521.jpgsave_picture_234521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234521.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Deadly Sinners - Murdered By Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234531.jpgsave_picture_234531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234531.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Earthmark - Megafauna (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234538.jpgsave_picture_234538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234538.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chris Angels - Chaos (War of the Worlds) (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234539.jpgsave_picture_234539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234539.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Saphath - Ascension of the Dark Prophet (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234561.jpgsave_picture_234561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234561.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Averblack - Gaslighting Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234563.jpgsave_picture_234563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234563.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wizdoom - Trolldoom (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234580.jpgsave_picture_234580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234580.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ten - Something Wicked This Way Comes (2023) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234587.jpgsave_picture_234587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234587.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ My Favourite Nemesis - Eidolon (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234590.jpgsave_picture_234590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234590.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Purveyor Of Chaos - Purveyor Of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234603.jpgsave_picture_234603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234603.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Alchemy Fire - Alchemy Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234607.jpgsave_picture_234607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234607.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cooling Tower - Saint Vitus (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234614.jpgsave_picture_234614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234614.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ All My Shadows - Eerie Monsters (2023) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234617.jpgsave_picture_234617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234617.jpg" />
 </div>
 
 

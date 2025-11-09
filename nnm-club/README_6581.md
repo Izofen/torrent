@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210774.jpgsave_picture_210774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210774.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vivaldi 6.1.3035.100 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210775.jpgsave_picture_210775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210775.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Luminar Neo 1.11.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210778.jpgsave_picture_210778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210778.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2EF0BABCF03584065EDEE7A7A92C92EA15392BDB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpgsave_picture_210780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Psiphon Pro 381 Mod by DEXUNPACKER [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210781.jpgsave_picture_210781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210781.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BA14CBB54DB3497501E648969167D0D0B2868469
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210783.jpgsave_picture_210783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210783.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:36ACC8C9127130485A8E02E66BCD4A0ACD487BBB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210785.jpgsave_picture_210785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210785.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:758EC8399D0C39D0BAD355F79DEBA73CA3E1DE0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210786.jpgsave_picture_210786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210786.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5BFB2AA2055A6609212993187FEAE77B67F9F94A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210789.jpgsave_picture_210789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210789.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Firefox Browser 114.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210792.jpgsave_picture_210792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210792.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:6F8E85741785725458080683AD4D65D284AF27D1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210794.jpgsave_picture_210794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210794.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Seal 1.9.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210795.jpgsave_picture_210795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210795.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ The Who - Back At The Fillmore (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210797.jpgsave_picture_210797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210797.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A2FE5CF1CA6D627F5F8189D7E32D9301CABBB263
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210800.jpgsave_picture_210800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210800.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ QOwnNotes 23.6.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210802.jpgsave_picture_210802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210802.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FreeFileSync 12.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210804.jpgsave_picture_210804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210804.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:509F5C7E0EFCDCE4FD29A3DBC03DEB4AA4A0CDE0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210807.jpgsave_picture_210807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210807.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dexter Gordon Quartet - Love For Sale (1964) 1990, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210808.jpgsave_picture_210808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210808.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ HWiNFO 7.47 Build 5140 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210809.jpgsave_picture_210809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210809.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Native Instruments Maschine 2 v.2.17.4[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210810.jpgsave_picture_210810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210810.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [FLAC 2.0|4
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210813.jpgsave_picture_210813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210813.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:919997E5C7355AE8D77F31933B025E5804C46C40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210815.jpgsave_picture_210815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210815.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:E82AA8FC54A82561E93FE8A12D57F5D9D105CA37
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210817.jpgsave_picture_210817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210817.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ pdfFactory Pro 8.39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210821.jpgsave_picture_210821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210821.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Rainover - NOX (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Country, Vocal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210823.jpgsave_picture_210823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210823.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Last Times - Last Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal with P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210826.jpgsave_picture_210826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210826.jpg" />
 </div>
 
 

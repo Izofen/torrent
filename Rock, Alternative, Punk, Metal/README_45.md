@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56247.jpgsave_picture_56247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56247.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Smokie - 9 Albums, Box Sets, (1990-2002) 12CD [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56384.jpgsave_picture_56384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56384.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2B8D685EFF9731B04DBC50EB8B1CCA4EF816AE7D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56454.jpgsave_picture_56454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56454.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Joe Satriani - Onomatopoeia (2024) Live [MP3|320 Kbps] <Hard Rock, Instrumental 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56457.jpgsave_picture_56457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56457.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7128B35D72045481F4DFF3EB7F49D8CEA0283D9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56483.jpgsave_picture_56483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56483.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56869.jpgsave_picture_56869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56869.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56880.jpgsave_picture_56880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56880.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gloom - дискография: 3 альбома (2006-2020) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57085.jpgsave_picture_57085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57085.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Def Leppard - Pyromania (1983) 4 x CD, 40th Anniversary, Reissue, Remastered, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57290.jpgsave_picture_57290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57290.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57297.jpgsave_picture_57297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57297.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Accept - Russian Roulette (1986) Reissue, Remastered, 2014, Hear No Evil Recordi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57500.jpgsave_picture_57500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57500.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Avril Lavigne - 6 альбомов (2002-2007) [FLAC|Lossless] <Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57556.jpgsave_picture_57556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57556.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bryan Ferry - Discography (1973..2009) [MP3|320 kbps]<Rock, Glam Rock, Art Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57557.jpgsave_picture_57557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57557.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ System of a Down - 5 альбомов (1998-2005) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57579.jpgsave_picture_57579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57579.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Gorillaz - Дискография (2001-2010) [FLAC|lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57583.jpgsave_picture_57583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57583.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Serj Tankian - Дискография (2007-2010) [MP3|192-320 kbps]<Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57593.jpgsave_picture_57593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57593.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Mark Knopfler - The Boy (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57721.jpgsave_picture_57721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57721.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Various Artists - Punk Floyd: A Tribute To Pink Floyd (2024) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57737.jpgsave_picture_57737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57737.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8B3B9AB235D7F5E67DC0B6D681B3DB6976327BE9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57909.jpgsave_picture_57909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57909.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:45DD0868974FC6FBFB5382058777263156A46A6D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57920.jpgsave_picture_57920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57920.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rage - Afterlifelines (2024) 2CD Japan release [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57930.jpgsave_picture_57930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57930.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Cypecore - Make Me Real (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57932.jpgsave_picture_57932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57932.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:BEF9B7AF3F4E0E0B966AB293ABB140E95041950D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57933.jpgsave_picture_57933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57933.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ P.O.D. - Veritas (2024) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57944.jpgsave_picture_57944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57944.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Zakk Wylde & Black Label Society - 21 albums, 1 single, 37 CD (1994-2024) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58281.jpgsave_picture_58281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58281.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Accept - 55 albums, 2 Box-sets, 97 CD (1979-2024) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58400.jpgsave_picture_58400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58400.jpg" />
 </div>
 
 

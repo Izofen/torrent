@@ -6,7 +6,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150822.jpgsave_picture_150822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150822.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:533BB174AAFD57317DA359C51B0B6543F222890F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150823.jpgsave_picture_150823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150823.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:08C415191F76C4A0FAA896D8B5C9E254DDF6C3D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150824.jpgsave_picture_150824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150824.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1EC247DB00E3256BFC72A6732184448D3A1AA1CC
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150825.jpgsave_picture_150825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150825.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/Multi] (1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150826.jpgsave_picture_150826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150826.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:91718169B42D1893A92396A73DAD4F499FDE27DE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150827.jpgsave_picture_150827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150827.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:43E51EE6EB074CBB9214F88B272DC013C3C801D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150828.jpgsave_picture_150828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150828.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Linux Format — первый в России ежемесячный компь�
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150829.jpgsave_picture_150829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150829.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Valery Ponomarev - Means Of Identification (1993) Reservoir[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150830.jpgsave_picture_150830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150830.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Wondershare UniConverter Ultimate 15.0.6.19 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150831.jpgsave_picture_150831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150831.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:6CF8ED6E8434EF5983A63B3E914E9C78BD08EB45
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150832.jpgsave_picture_150832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150832.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ EssentialPIM Pro Business Edition 9.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150833.jpgsave_picture_150833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150833.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:8A8EA8D9D51F5856AF7E69D71D9278C621CBE2A0
 >>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150834.jpgsave_picture_150834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150834.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150835.jpgsave_picture_150835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150835.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Macrium Reflect v7.2 .3957 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150836.jpgsave_picture_150836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150836.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150837.jpgsave_picture_150837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150837.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150838.jpgsave_picture_150838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150838.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:1B633FB77999D9F599990C5E64975CD5716269A1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150840.jpgsave_picture_150840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150840.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:302C96DD4B39FD1A77AF8F8B068188A761E35146
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150841.jpgsave_picture_150841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150841.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:AA06302EB85F978D9189CEB0065F27DCF9B491DF
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150842.jpgsave_picture_150842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150842.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:99A1553F34049B80F1A1CCDE3B5E54698E6F3656
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150843.jpgsave_picture_150843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150843.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:5D9C99B6BA535F59E1B98351922EB4B9D2AFCE30
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150844.jpgsave_picture_150844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150844.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:E1A70714FD1991DC2DC01EB454033997DC64DBDA
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150845.jpgsave_picture_150845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150845.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:5AB7573A71AD88B68DD6F958D5FC02F3D9EE7621
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150846.jpgsave_picture_150846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150846.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150847.jpgsave_picture_150847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150847.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A92B7D6D54ECF942532881DC1F5C32B4F5BB2D41
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150848.jpgsave_picture_150848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150848.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184822.jpgsave_picture_184822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184822.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E3124D5323E9098746573893BEC924DA7568FCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184824.jpgsave_picture_184824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184824.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:51515E43779FFAE81A14EA35690D1EA379E9851F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184826.jpgsave_picture_184826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184826.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C1006A134C3BBED0A19E9D97725E538E5B5DA17D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184828.jpgsave_picture_184828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184828.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB63C82D025FBB3F7B5F3B4698539DC4FF23099D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184845.jpgsave_picture_184845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184845.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5977CA9FB11FEB399A2548FB8D8EDF6E0B0D61A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184861.jpgsave_picture_184861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184861.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:33085E2EC85A9E38A603308D9DA2C12E4469584F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184865.jpgsave_picture_184865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184865.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A7909885A52DE2BD27F2BE5F58B9CA4508361C09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184882.jpgsave_picture_184882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184882.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BB6E81E8CA581ECD6D893CF2061D4E3FC0992351
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184885.jpgsave_picture_184885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184885.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:218737C3555D198D5C6043030332210D655D504B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184887.jpgsave_picture_184887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184887.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4D1D917E4D45B840BF17F4B4BD154EB9951AE067
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184924.jpgsave_picture_184924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184924.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:4AD4CDDFF739F9EA3ADE3E38BD1D4892728D2B4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184983.jpgsave_picture_184983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184983.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:11051BFA2A4EF43781C5C2BF6311100633D826E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185004.jpgsave_picture_185004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185004.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:84948D2F5A5601B4408AE45865BD5A8230B900DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185008.jpgsave_picture_185008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185008.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:252D82670DD5B79412F23055BFC891BA56148A9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185009.jpgsave_picture_185009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185009.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185016.jpgsave_picture_185016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185016.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:1914A6695C63905288D427253D2242579F610568
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185018.jpgsave_picture_185018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185018.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:91F7F0F2C19A0983FB4A6E8A7492F229F3EB69E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185021.jpgsave_picture_185021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185021.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:77B3F58832ABC71F970FAC8D0E011791EADB8CE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185035.jpgsave_picture_185035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185035.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:8EB589DF0C48C630580007BDFA635F438D72EE60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185058.jpgsave_picture_185058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185058.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:19A2FE5B3F94CFA16D24B2DC58A3140BCE62D058
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185067.jpgsave_picture_185067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185067.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F61556AA2724144E06D484D7C6AD7E0F396E8794
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185078.jpgsave_picture_185078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185078.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E16109B8EA60993B9AF2B148A2BB1AEFE7A3AB22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185079.jpgsave_picture_185079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185079.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:17EDAF8A00C1FB96B7A2DD82C28DA9D81CB544B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185082.jpgsave_picture_185082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185082.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:31C4E36B67571C927093B2EFE4666EF607E87448
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185085.jpgsave_picture_185085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185085.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185103.jpgsave_picture_185103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185103.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Nik Collection by DxO 6.12.0 RePack by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48639.jpgsave_picture_48639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1565E6ADB5F6E9E22F325D84E3741B18EB1AF8E3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48640.jpgsave_picture_48640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:17BA9C0FAD844FA3689DACF11894B77D10ABFA9D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48641.jpgsave_picture_48641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48641.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3FAB3A9928CD71A6D059ECA20E84472E41E31EF2
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48642.jpgsave_picture_48642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48642.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7B9DB8B668F40F5EB21E28487219D8B376DEE595
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48643.jpgsave_picture_48643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48643.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5515B2A65549F1C72CFFB7312A4890DAFC929857
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48644.jpgsave_picture_48644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48644.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0AA8F79FEC7934E167B6B67E2AA0BB5306478590
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48645.jpgsave_picture_48645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48645.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:DEDC3367B920CB8618ADA9D1EBFEADE87AB7AB6C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48646.jpgsave_picture_48646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48646.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5B83B30D1D3A0C8B032D516AE202F758D7C73A27
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48647.jpgsave_picture_48647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48647.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:DB32E7696823D545C5238C31A5A3EBE07EF5DF81
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48648.jpgsave_picture_48648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48648.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:2A917AE98BBAB6C5A73860D07AF6D584F8E92AC4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48649.jpgsave_picture_48649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48649.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - ЕвроХит Топ 40 Europa Plus 26.07.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48650.jpgsave_picture_48650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48650.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ A Day Out (2023) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48651.jpgsave_picture_48651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48651.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.11.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48652.jpgsave_picture_48652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48652.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpgsave_picture_48653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48653.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:BB4C755CDBE13F64A922ADD660E49EDC03252650
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48654.jpgsave_picture_48654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48654.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A51FF2FABBAFA0827180C636BE6CABDAF3A28894
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48655.jpgsave_picture_48655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48655.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:9FB783C826B94149E7EA551CB47AA3848DEA4FC1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48656.jpgsave_picture_48656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48656.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:4CB8A842FE9644CDCD49FDCC1E7B266FDB21AC25
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48657.jpgsave_picture_48657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48657.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:9D103A8847FDD730718A46A252959B8DDA16C7C4
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48658.jpgsave_picture_48658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48658.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48659.jpgsave_picture_48659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48659.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48660.jpgsave_picture_48660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48660.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:988A6AF02F72DDD4B84D29397546DC36FB8F170B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48661.jpgsave_picture_48661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48661.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Barrhell (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48662.jpgsave_picture_48662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48662.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpgsave_picture_48663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48664.jpgsave_picture_48664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48664.jpg" />
 </div>
 
 

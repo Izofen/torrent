@@ -6,7 +6,7 @@ VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109177.jpgsave_picture_109177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109177.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109178.jpgsave_picture_109178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109178.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109179.jpgsave_picture_109179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109179.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109180.jpgsave_picture_109180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109180.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ RAM Saver Professional 24.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109181.jpgsave_picture_109181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109181.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C7B24A6538A7660722481ADDA6F9233201BD85DD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109182.jpgsave_picture_109182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109182.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Electronica Confessions, Vol. 1 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109183.jpgsave_picture_109183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109183.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ PhotoDirector - Редактор фото 19.2.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109184.jpgsave_picture_109184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109184.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109185.jpgsave_picture_109185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109185.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5070D76DC33F2CA731D10F5609C18FEB627E0433
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109186.jpgsave_picture_109186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109186.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:FE91A4942FA404DEA9090219936B255B94E43D96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109187.jpgsave_picture_109187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109187.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Electronica Confessions, Vol. 3 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109188.jpgsave_picture_109188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109188.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:445E4C86A07431877A12A7D3E8E2B7F43E318A62
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109189.jpgsave_picture_109189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109189.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Koan - The Queen of Spades (Side A) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109190.jpgsave_picture_109190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109190.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Fort Firewall 3.12.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109191.jpgsave_picture_109191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109191.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:C74072842F842E328D66B1A1472F455F55CA532F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109192.jpgsave_picture_109192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109192.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:4692B786A51324C4BB6B4265058FFB3828B82B8D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109193.jpgsave_picture_109193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109193.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Electronica Confessions, Vol. 2 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109194.jpgsave_picture_109194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109194.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Catalepsia - World of Cliche (2015) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109195.jpgsave_picture_109195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109195.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109196.jpgsave_picture_109196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109196.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109197.jpgsave_picture_109197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109197.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Catalepsia - Pavisam (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109198.jpgsave_picture_109198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109198.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Malachi Thompson & Africa Brass - Buddy Bolden's Rag (1995) Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109199.jpgsave_picture_109199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109199.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ricky Ford - Manhattan Blues (1989) Candid [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109200.jpgsave_picture_109200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109200.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Bismarck - Vourukasha (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, stoner, s
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109201.jpgsave_picture_109201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109201.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Alex Sipiagin - Balance 38-58 (2015) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109202.jpgsave_picture_109202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109202.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Final Cut Pro 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165627.jpgsave_picture_165627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165627.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165628.jpgsave_picture_165628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165628.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165629.jpgsave_picture_165629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165629.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165630.jpgsave_picture_165630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165631.jpgsave_picture_165631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B1AAF346EDA5C889A26C60B51E8E702310403F5E
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165632.jpgsave_picture_165632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165632.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:06F00DB939FF4464A019CAFC972F0BA8DF9E0A66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165633.jpgsave_picture_165633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165633.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F07855486FA7F56E74FC00E30169B2CA4538F356
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165634.jpgsave_picture_165634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165634.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EBCD61E167AD19FDFD6ABD5437E23FA0927BE427
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165635.jpgsave_picture_165635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165635.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165636.jpgsave_picture_165636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:84FF9158855D7F297F551B27F19A67E2A2B3C582
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165637.jpgsave_picture_165637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165637.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:449F6F3A8288889DEC3AF49686AAB5DA37DDDCC2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165638.jpgsave_picture_165638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165638.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:EFECA94E30FBCE54638A948685874082590FC82E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165639.jpgsave_picture_165639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165639.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Revo Uninstaller Pro 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165640.jpgsave_picture_165640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165640.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165641.jpgsave_picture_165641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5845C0D241B470907A95DAD7C593A58F5A215AF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165642.jpgsave_picture_165642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165642.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22631.2428], Version 23H2 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165643.jpgsave_picture_165643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165643.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Movavi Video Converter 21.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165644.jpgsave_picture_165644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165644.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:73FA900E1E4D0AB5FF119ADE9E8410BAEBC7336A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165645.jpgsave_picture_165645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165645.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ FastStone Capture 9.4 (15.12.2020) Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165646.jpgsave_picture_165646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165646.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165647.jpgsave_picture_165647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165647.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:E170A3387B9150892E0D5E43E16E075EEC500F28
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165648.jpgsave_picture_165648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165648.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165649.jpgsave_picture_165649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165649.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:D3EE4851CB1B850190877C65AD588845E440737C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165650.jpgsave_picture_165650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165650.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:26D6F7A21235F1C8427D2521395FE45C9C16DFB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165651.jpgsave_picture_165651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165651.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:38A7578E8548A5583CDA108037EE0E77AAE851CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165652.jpgsave_picture_165652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165652.jpg" />
 </div>
 
 

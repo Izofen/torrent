@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242273.jpgsave_picture_242273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XZICD - NIVIVIИ (2018) Kaer‘Uiks [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242274.jpgsave_picture_242274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242274.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:46A11D3EE9E5328968AF360D1C9A732499718851
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242275.jpgsave_picture_242275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242275.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F2B01716D9E4191E39EEC11D7262B5EB1EF69FF0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242276.jpgsave_picture_242276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242276.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BAADF16011CD8267DCBF8A040D37D951FEF78B0E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242277.jpgsave_picture_242277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242277.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C80C905A8F5A5EDE266A6745047142A2939647C9
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242278.jpgsave_picture_242278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242278.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:20CE3324969695742C3A6D89063DF656CFECE55A
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242279.jpgsave_picture_242279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242279.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Harvest Gulgaltha - Ancient Woods (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242280.jpgsave_picture_242280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242280.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Recuva Free / Professional / Business / Technician 1.53.2078 RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242281.jpgsave_picture_242281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242281.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ iA Writer 6.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242282.jpgsave_picture_242282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242282.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:0E747AC1FDB8F90554F5D2F050EB92AC9D877714
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242283.jpgsave_picture_242283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242283.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Reusmarkt - Эхо (2006) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242284.jpgsave_picture_242284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242284.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:1857B24513FDE2ACFA15D568F0B4AEA9268F9E42
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242285.jpgsave_picture_242285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Topaz Photo AI 1.2.10 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242287.jpgsave_picture_242287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242287.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:8F5C47E4EB0F41ADE2D1F49D03C3C461CFC089BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242288.jpgsave_picture_242288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242288.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Hands of Attrition - Colder Places (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242289.jpgsave_picture_242289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242289.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5194D82DD9A36FC137C06366344B6AE4C8AD00EB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242290.jpgsave_picture_242290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242290.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Aiseesoft FoneEraser 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242291.jpgsave_picture_242291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242291.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242292.jpgsave_picture_242292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242292.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Brujeria - Pocho Aztlan (2016) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242293.jpgsave_picture_242293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242293.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Newsflow 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242294.jpgsave_picture_242294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242294.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Slight Delay - Shades of Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242295.jpgsave_picture_242295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242295.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ BitComet 1.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242297.jpgsave_picture_242297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242297.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:6B7F0CE7678994A271F4A9C0F81B9352492FBDE8
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242298.jpgsave_picture_242298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242298.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5863C9ED62E2E52BBE3F01687FF03DCFD794A504
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242299.jpgsave_picture_242299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242299.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Topaz Photo AI 1.2.10 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242300.jpgsave_picture_242300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242300.jpg" />
 </div>
 
 

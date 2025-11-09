@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119835.jpgsave_picture_119835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119835.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D554A2FE1435D16743A775D5E8B626F9E1AB9EBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119836.jpgsave_picture_119836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119836.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B346B535461CCDC1110CBED184B8DE3564A1AECD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119837.jpgsave_picture_119837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119837.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119838.jpgsave_picture_119838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119838.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows 10 Debloater 2.6.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119839.jpgsave_picture_119839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119839.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Strawberry 1.0.23 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119840.jpgsave_picture_119840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119840.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Kenny Neal - 16 Albums (1988 - 2016) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119841.jpgsave_picture_119841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119841.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119842.jpgsave_picture_119842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119842.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119843.jpgsave_picture_119843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119843.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:82FE0D36BA800348F81579C1CCB8CA28237F5B05
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119844.jpgsave_picture_119844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119844.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:29ADAEC36841A45B6BDF9F84507BFA059B502276
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119845.jpgsave_picture_119845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119845.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119846.jpgsave_picture_119846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119846.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:58E13BE2DEE4978B07A29DDBCF3EA45EB4C16C9D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119847.jpgsave_picture_119847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119847.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:38CD6187EF224DCE0338AFEBAA23717845D42F77
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119848.jpgsave_picture_119848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119848.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ PSPaudioware - PSP Plugins Bundle 01.2024 VST, VST3, AAX (x64) RePack by R2R [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119849.jpgsave_picture_119849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119849.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ JetBrains PyCharm Professional for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119850.jpgsave_picture_119850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119850.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Pet Shop Boys - Loneliness (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119851.jpgsave_picture_119851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119851.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ CPU Temp 1.4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119852.jpgsave_picture_119852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119852.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:368DCCBB4191A2D06C6D5558C7C6250849B1D16E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119853.jpgsave_picture_119853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119853.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ JetBrains PhpStorm 2023.3.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119854.jpgsave_picture_119854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119854.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Topaz Video AI 4.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119855.jpgsave_picture_119855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119855.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:03CE974B05DBC3BBAA6DB5283CCADBAF10D1E7A3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119857.jpgsave_picture_119857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119857.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:DCBA4073156BF7178E68C3BA4E59E937BF99205B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119858.jpgsave_picture_119858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119858.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:09DCC66633C56AE375BC07795958EE1856DC1478
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119859.jpgsave_picture_119859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119859.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6A5712CBCE04985FC62BE9B77B2E059C6526C4E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119860.jpgsave_picture_119860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119860.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:475C1A2578E57250BFB93CD93FE2C43F721CE6F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119861.jpgsave_picture_119861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119861.jpg" />
 </div>
 
 

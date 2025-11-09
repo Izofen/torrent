@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171677.jpgsave_picture_171677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171677.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171678.jpgsave_picture_171678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171678.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:53919D050AC1AC643C9BA04A6D18E1363D8660C9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171679.jpgsave_picture_171679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171679.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5468FCE8E7D9929AD2399EFA611D9E53CE69F4B6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171680.jpgsave_picture_171680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171680.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3FF064D21259C9C08B60E9908F52BC89030CA859
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171681.jpgsave_picture_171681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171681.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F5DC337AE4CEFBCBDB34E42B938BC79F02EB1D51
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171682.jpgsave_picture_171682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171682.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B5935EF41221580BAD81DC89FEDEB835F4519CAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171683.jpgsave_picture_171683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171683.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B5935EF41221580BAD81DC89FEDEB835F4519CAA
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171684.jpgsave_picture_171684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171684.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171685.jpgsave_picture_171685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171685.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Java SE Runtime Environment 8.0.3910.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171686.jpgsave_picture_171686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171686.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EE49B21CB98E98A8F1131AC2E1538CF369A2F182
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171687.jpgsave_picture_171687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171687.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7B6383431E206509300BCA0349C188E852889800
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171688.jpgsave_picture_171688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171688.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:95FAC91908A630BE8A496871FAEFEA37839F6B82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171689.jpgsave_picture_171689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171689.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A911D2FE9B4F0364B2B12EB7253C5B4CE6B3C577
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171690.jpgsave_picture_171690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171690.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BBF4E899385274C260E352A2064387C615AA6490
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171691.jpgsave_picture_171691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171691.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:FFCFE410E7F49C3DBFBBF294081E1BD716E90019
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171692.jpgsave_picture_171692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171692.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171693.jpgsave_picture_171693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171693.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171694.jpgsave_picture_171694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171694.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8EB77EF4CFDB221EF42DF623CC856BC0A2C783FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171695.jpgsave_picture_171695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171695.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Imagine 1.3.2 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171696.jpgsave_picture_171696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171696.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171697.jpgsave_picture_171697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171697.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Measure map v1.2.62 Mod by Alien, derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171698.jpgsave_picture_171698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171698.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Fitify: Фитнес тренировки дома 1.58.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171699.jpgsave_picture_171699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171699.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - The Official UK Top 100 Singles Chart 20.10.2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171700.jpgsave_picture_171700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171700.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Nitro PDF 14.16.0.13 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171701.jpgsave_picture_171701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171701.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ MacFamilyTree 10.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171702.jpgsave_picture_171702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171702.jpg" />
 </div>
 
 

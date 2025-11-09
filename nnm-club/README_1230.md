@@ -6,7 +6,7 @@ School Dreams (2024) [Ru/En] (0.2.0) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32335.jpgsave_picture_32335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32335.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Files Inspector Pro 4.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32336.jpgsave_picture_32336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32336.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Slimjet 45.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32337.jpgsave_picture_32337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32337.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TikTok 37.9.3 Mod by Dmitry Nechiporenko + Plugin 1.63 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32338.jpgsave_picture_32338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32338.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F95055961C07C0E0ABFFC959620611C3AEF62DD4
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32339.jpgsave_picture_32339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32339.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FanControl V210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32340.jpgsave_picture_32340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32340.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpgsave_picture_32341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32341.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32342.jpgsave_picture_32342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32342.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32343.jpgsave_picture_32343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32343.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Queen - Made In Heaven (1995) Japanese Edition, SHM-CD, Reissue, Remastered, 202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32344.jpgsave_picture_32344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32344.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpgsave_picture_32345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32345.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32346.jpgsave_picture_32346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32346.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B7E942C8B7A68A8BECD30F01460AB070DCE8BB8A
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32347.jpgsave_picture_32347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32347.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:F87247ECFB20128F5305C1FB5BA822C1AD014CF9
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32348.jpgsave_picture_32348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32348.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32349.jpgsave_picture_32349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32349.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32350.jpgsave_picture_32350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32350.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:406926A477910B324C415EB4EAD2A59D9E1C6A65
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32351.jpgsave_picture_32351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32351.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:44B75467789906804633B1384C2310BE47565C8C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32352.jpgsave_picture_32352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32352.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Business Insider назвал самых обедневших миллиарде
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32353.jpgsave_picture_32353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32353.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:37BFAD3CEEE8446086E2ED7D7FC4E97E561EC45F
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32354.jpgsave_picture_32354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32354.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9920B4F66C0FCAFCC2A328451D21698E487083AD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32355.jpgsave_picture_32355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32355.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpgsave_picture_32356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32356.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32357.jpgsave_picture_32357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32357.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:061035E39A8973E737717C421F9CE6824B3D11D4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32358.jpgsave_picture_32358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32358.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3A19664C18463C7B420C503796A7B89497310406
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32359.jpgsave_picture_32359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32359.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:ADD48E2C3AF0FD2C0AB85459D0C228FBF43A6008
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32360.jpgsave_picture_32360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32360.jpg" />
 </div>
 
 

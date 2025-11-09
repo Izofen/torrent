@@ -6,7 +6,7 @@
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247119.jpgsave_picture_247119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247119.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A5E51E00489CFDFA8B387DE2B6CA802FDF01AB1E
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247120.jpgsave_picture_247120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247120.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4098E936657F12DB63EF24CC05E455530F0C3581
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247121.jpgsave_picture_247121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247121.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FC8473B87CCCD20476C5FBB9F3711058D3D26022
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247122.jpgsave_picture_247122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247122.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:03C20F5248542F629E69405B6A0954EABB4C5F1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247123.jpgsave_picture_247123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247123.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B838A2AC028BB0F5D6644EE757B7847239A50B6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247124.jpgsave_picture_247124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247124.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:FDC9B869244F88CE28D7B4CB04587E99312624A2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247125.jpgsave_picture_247125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247125.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C91977006A931AFDE4BE1F3468935E8F7A4F4DDF
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247126.jpgsave_picture_247126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247126.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0620F76F014C96F57F70C83C513DC3721CB161D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247127.jpgsave_picture_247127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247127.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:6D03CD52C38B3E504726F2688059A4C0A4A2876B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247128.jpgsave_picture_247128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247128.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:1CC07A2061AF1EF071490513CD5ECC79E864B4EA
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247129.jpgsave_picture_247129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247129.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:5B4E57C7F309A75446D5576653859A79CF518E9C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247130.jpgsave_picture_247130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247130.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7AEDC6C4E5E08DDA4FE6BF60A042B993AC5AD7AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247131.jpgsave_picture_247131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247131.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:4C61416047DA633307D113840612EB7EA8011C90
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247132.jpgsave_picture_247132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247132.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A9F62C517347EF317FCA4DE63A5FE63EB36114ED
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247133.jpgsave_picture_247133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247133.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5C86C10644A03FF45A71D371DCBE69B4E218A8D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247134.jpgsave_picture_247134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247134.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:7909DCCC340F4B25F12EED99986283CF3EDD136C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247135.jpgsave_picture_247135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247135.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247136.jpgsave_picture_247136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247136.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:B214BE9EA636339B984AFB172BE1E347C4FF6364
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247137.jpgsave_picture_247137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247137.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Star Control: Origins (2018) [Ru/En] (1.62.9/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247138.jpgsave_picture_247138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247138.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Windows 11 Pro 22H2 22621.1848 x64 by SanLex [Lightweight] [Ru/En] (2023.07.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247139.jpgsave_picture_247139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247139.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:89641686C4472991595D620A2AACA333BCBB547F
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247140.jpgsave_picture_247140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247140.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:C2DD7D67A82718720EF2DFA1BFBC9BDFBBB891BD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247141.jpgsave_picture_247141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247141.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:4B1C18A04DFDB2D17BA3B75B331E72D32519E32B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247142.jpgsave_picture_247142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247142.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247143.jpgsave_picture_247143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247143.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247144.jpgsave_picture_247144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247144.jpg" />
 </div>
 
 

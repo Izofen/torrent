@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19046.jpgsave_picture_19046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19047.jpgsave_picture_19047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19047.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:278AC837BC79F3021AF9F5F7943309A222AFC9E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19048.jpgsave_picture_19048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19048.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MassTube Ultra 20.1.5.129 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19049.jpgsave_picture_19049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19049.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Food Park Manager (2025) [Multi] (1.0.0c) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19050.jpgsave_picture_19050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19050.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Xiaomi Home (Ранее. MiHome) v10.5.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19051.jpgsave_picture_19051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19051.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A7C7536BD3C1755DDBDE9B55CB1567ED1BEA3C18
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19052.jpgsave_picture_19052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19052.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FA9787C69556977CF0C1E4278B6BD83AD71C901A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19053.jpgsave_picture_19053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19053.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-887/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19054.jpgsave_picture_19054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19054.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:EEB7336139B1896415DB4E1FCBD1E0A0040A164C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19055.jpgsave_picture_19055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19055.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7B5727C9CE1FF5A03A876E10E43A8EBFBB09F369
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19056.jpgsave_picture_19056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19056.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ YT Downloader 9.12.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19057.jpgsave_picture_19057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19057.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:187FB0D6E9ADE69150736AD871ECB86DC116F82F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19058.jpgsave_picture_19058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19058.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:7568A48D494EA6F3B61B0AAFD469654295D92D85
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19059.jpgsave_picture_19059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19059.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:FA0CF604A4319F787FBFDC9A6D8ACCE2A11FF81B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19060.jpgsave_picture_19060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19060.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Auslogics Windows Slimmer 5.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19061.jpgsave_picture_19061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19061.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Wondershare UniConverter 16.4.7.227 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19062.jpgsave_picture_19062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19062.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19063.jpgsave_picture_19063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19063.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19064.jpgsave_picture_19064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19064.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:64C67E715F7B4B1F85FBA5EFDB0C4494BB18365E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19065.jpgsave_picture_19065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19065.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:2ACC9073FC697BFFD202FDC5D14A4594612FE4D0
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19066.jpgsave_picture_19066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19066.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2ACC9073FC697BFFD202FDC5D14A4594612FE4D0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19067.jpgsave_picture_19067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19067.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E8181CAA795B785CAE1830DFB813171F4467C1AA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19068.jpgsave_picture_19068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19068.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ UniFab 3.0.1.6 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19069.jpgsave_picture_19069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19069.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19070.jpgsave_picture_19070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19070.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:884D4D9E37BA110BFBF05E6F52CFBD317E21DB4E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19071.jpgsave_picture_19071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19071.jpg" />
 </div>
 
 

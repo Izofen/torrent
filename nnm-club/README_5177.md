@@ -6,7 +6,7 @@ VA - Anjunadeep Explorations 24 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal/Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161349.jpgsave_picture_161349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161349.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Perfectly Clear WorkBench 4.2.0.2368 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161350.jpgsave_picture_161350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161350.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:186AC5BA9F165FEE86BE9C9E37421AFE2909F08D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161351.jpgsave_picture_161351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161351.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161352.jpgsave_picture_161352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161352.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:666DF7D87DC45BCB7A1933E4246523FB113A2753
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161353.jpgsave_picture_161353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161353.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161354.jpgsave_picture_161354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161354.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:15B3023B5F57E0DDD051023C59384B610C5BBCA0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161356.jpgsave_picture_161356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161356.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E2542905DE4B556562826CAF8E3274785E73CDF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161357.jpgsave_picture_161357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161357.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AOMEI Backupper Technician Plus 6.8.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161358.jpgsave_picture_161358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161358.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B789B6CE7F73DD6CBA5305EF54621E59CBC496FF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161359.jpgsave_picture_161359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161359.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:28AE65D2559C9A17BBEAD868BBA61DFC1608CD2B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161360.jpgsave_picture_161360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161360.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:81948D63ACBF4752B620EA843E5F25C11A3F998C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161361.jpgsave_picture_161361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161361.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:22F2DC2EBDF0EDA0466BAA9D59E6DD64A697A63D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161362.jpgsave_picture_161362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161362.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Chap - Digital Technology (2019) [MP3|320 Kbps] <Electronic, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161363.jpgsave_picture_161363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161363.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:7980852D2D3CF9DE5776085431D1479CCA8513E1
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161364.jpgsave_picture_161364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161364.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161365.jpgsave_picture_161365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161365.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ WidsMob AI Retoucher 3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161366.jpgsave_picture_161366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161366.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Rise to the Sky - 4 Albums (2019-2020) [FLAC|Lossless|tracks + .cue] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161367.jpgsave_picture_161367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161367.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ DxO PhotoLab 6 ELITE Edition 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161368.jpgsave_picture_161368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161368.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:33999CF5C5FF2AFCB8BC80251DE93D897FC91F54
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161369.jpgsave_picture_161369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161369.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Lucky Patcher 11.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161370.jpgsave_picture_161370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161370.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Waterhill - Sleepwalker (2020) [MP3|320 Kbps] <Melodic-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161371.jpgsave_picture_161371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161371.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:17123C72ADCDEAA26080E9E106BA3D5B75BC0C00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161372.jpgsave_picture_161372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161372.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:FC53B1343B099D4F250380DD97F046DFAAE8615A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161373.jpgsave_picture_161373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161373.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:BD2BB321FAD58B27C26D8E6D97E0D7BE04AA2EC0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161374.jpgsave_picture_161374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161374.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B9632772D4D5902B91A13559993DC2ADE40E6FBF
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161375.jpgsave_picture_161375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161375.jpg" />
 </div>
 
 

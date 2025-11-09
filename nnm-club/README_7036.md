@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19043.1889, Version 21H1 (Updated August 2022) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241125.jpgsave_picture_241125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241125.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B5CA17B95C87EABC73C86FF6A857E3298D45C8C9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241126.jpgsave_picture_241126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241126.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Aura of Birth - Immersive (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241127.jpgsave_picture_241127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241127.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Exposure Software Snap Art 4 v4.1.3.375 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241128.jpgsave_picture_241128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241128.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:6D9127E51D497CEF4936497538F804B1A73F56C4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241129.jpgsave_picture_241129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241129.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241130.jpgsave_picture_241130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241130.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ PrivaZer Pro 4.0.68 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241131.jpgsave_picture_241131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241131.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:700C3C6F4C63F27FC5BA56FCE3112B53ADDE3BE3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241132.jpgsave_picture_241132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241132.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F999041BFE732757E589AF0724E7CD7F21F6A50A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241133.jpgsave_picture_241133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241133.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:512F95A48CD21D5FFF0283211046EDF98495AD0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241134.jpgsave_picture_241134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241134.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Image2icon - Make your icon‪s‬ 2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241135.jpgsave_picture_241135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241135.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E6F152B09AFD0F410072CF9F860D7E7A30BABE6F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241136.jpgsave_picture_241136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241136.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Dave Brubeck - The Very Best (2000) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241137.jpgsave_picture_241137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241137.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8925C9F9120E49CBBE7103DAE0F0C65C6FFB9B0A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241138.jpgsave_picture_241138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241138.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Best of Romantic Chilly Smooth Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241139.jpgsave_picture_241139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241139.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kamelot - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241140.jpgsave_picture_241140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241140.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B978C2A6B03E2F11C33332B212E9C413BC8E05CB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241142.jpgsave_picture_241142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241142.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ AIDA64 Extreme Edition 6.75.6115 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241143.jpgsave_picture_241143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241143.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Exposure Software Blow Up 3 v3.1.4.383 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241144.jpgsave_picture_241144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241144.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:FBBF4F551BE14CE53EBA7CE2205F2B64D4FFA5EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241145.jpgsave_picture_241145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241145.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FBBF4F551BE14CE53EBA7CE2205F2B64D4FFA5EF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241146.jpgsave_picture_241146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241146.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5E8F290AFC3B3C436BE400C4AB9961934A3B7423
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241147.jpgsave_picture_241147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241147.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C56F8456F18F2FE6AEA73F207FCD6188F7461020
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241148.jpgsave_picture_241148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241148.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ McCoy Tyner - Supertrios (1977) 1989, Milestone [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241149.jpgsave_picture_241149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241149.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241150.jpgsave_picture_241150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241150.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Spotify 1.2.8.923 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241151.jpgsave_picture_241151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241151.jpg" />
 </div>
 
 

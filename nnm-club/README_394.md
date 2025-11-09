@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10415.jpgsave_picture_10415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:254AA88BDC4BB06813030FEEB0FFAA4FFBA6905C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10416.jpgsave_picture_10416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10416.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:470A6DA5256959F7B7CEF194643E7FF64FD22B04
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10417.jpgsave_picture_10417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10417.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:470A6DA5256959F7B7CEF194643E7FF64FD22B04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10418.jpgsave_picture_10418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10418.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ByeByeDPI v1.6.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10419.jpgsave_picture_10419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CyberLink PowerDVD Ultra 24.0.0716.62  (x64) RePack by TheBig [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10420.jpgsave_picture_10420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10420.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cleaner for Zapret 1.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10421.jpgsave_picture_10421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10421.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adguard 7.21.0 (7.21.5079.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10422.jpgsave_picture_10422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10422.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10423.jpgsave_picture_10423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4356250E58FBF92A5163002D9AE9CEF10A8126A6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10424.jpgsave_picture_10424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10424.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F4B16133CF27143B45DC6092511BE29A6C5E9906
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10425.jpgsave_picture_10425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10425.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D95A0B71B8C2A0281EEBA8304F3A5FCCA6D0117A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10426.jpgsave_picture_10426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10426.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0FF80D5A96325094A60FBB88D6C8D683486E728A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10427.jpgsave_picture_10427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10427.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:8FA0564AF18EE8EE8E2FB38CCFCA70F309E88FCA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10428.jpgsave_picture_10428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10428.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Starlink Илона Маска запустила новейший спутни�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10429.jpgsave_picture_10429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10429.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ T-Mobile в партнерстве со Starlink запустила сервис
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10430.jpgsave_picture_10430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10430.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ K-Lite Codec Pack 19.1.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10431.jpgsave_picture_10431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10431.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Death Must Die (2023) [En] (0.8.5) Repack Necros1404 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10432.jpgsave_picture_10432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10432.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:1799F52C6141F60B588A5DA1494C46C4EAC75613
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10433.jpgsave_picture_10433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10433.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MiniTool Power Data Recovery 12.6 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10434.jpgsave_picture_10434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10434.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:86919434E046F27800D98F5686669D66C6245467
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10435.jpgsave_picture_10435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10435.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10436.jpgsave_picture_10436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10436.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:AF6F549074EAE7D0A5EE9629BBD1395A06769651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10438.jpgsave_picture_10438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10438.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2B59280C161F44704D2C9DEDAFD958E75DD36E4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10439.jpgsave_picture_10439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10439.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:54566089CBC17C825D5D68D0778EB027AE478DB3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10440.jpgsave_picture_10440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10440.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:0F6CB3D66954EC9F622AC5CEC0543D9173CFC95B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10441.jpgsave_picture_10441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10441.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144358.jpgsave_picture_144358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Yes - Songs From Tsongas (2014) 35th Anniversary Concert, 3xCD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144359.jpgsave_picture_144359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144359.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8FDD19B0BB48524F8D306E9A25ABD4B8A2C10EC6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144360.jpgsave_picture_144360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144360.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nevercenter CameraBag Photo 2024.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144362.jpgsave_picture_144362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144362.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D28FBAE5E68790E582B7F7BB201AC398DA824B77
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144363.jpgsave_picture_144363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144363.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:48154A92A548901247F338302EF2851C9B99830F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144364.jpgsave_picture_144364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144364.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:058739DBFC240D184FE570B3F9A98E2B54CB9670
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144365.jpgsave_picture_144365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144365.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B101E1921A69264577B39E9D5986AD09608EA935
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144366.jpgsave_picture_144366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144366.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Inferen - Inferen (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144368.jpgsave_picture_144368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144368.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:FDBD2B2826A49D80F7F8EA056C53C19C25BA632F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144369.jpgsave_picture_144369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144369.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Новогодний Микс 50Х50 (2016) [MP3|256 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpgsave_picture_144370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144370.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:24B87429A80FE53DA4FBB947B81EBD7129862D4B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144371.jpgsave_picture_144371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144371.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:78B103CE7975A5B8A9BC3F86D6773FB9E4B89C02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144372.jpgsave_picture_144372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144372.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:78B103CE7975A5B8A9BC3F86D6773FB9E4B89C02
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144373.jpgsave_picture_144373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144373.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WonderPen 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144374.jpgsave_picture_144374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144374.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:DB95921FED9DA8FFA0AD4F32636B63E90D796C1F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144376.jpgsave_picture_144376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144376.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:A65DCF2434DC19C44F715EFB1A4A93D4655EF83C
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144377.jpgsave_picture_144377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144377.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:B644F23041594DD55DA3201D33EF3CC8C2CA2CD9
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144379.jpgsave_picture_144379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144379.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:E9BC3D701CA279F084C60AADD3CE1A9FD507F54F
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144380.jpgsave_picture_144380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144380.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ C.C. Catch - Maxi Hit-Sensation (Nonstop DJ-Mix) (2006) [MP3|320 Kbps] <EuroDisc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144381.jpgsave_picture_144381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144381.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ EdgeView 4.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144383.jpgsave_picture_144383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144383.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Flight Simulator Screensaver 1.1 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144384.jpgsave_picture_144384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144384.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Flight Simulator Screensaver - этот трехмерный скринсейв�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144385.jpgsave_picture_144385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144385.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:36C4B7EFDDB9E0A89B19A5D6D58192442829E3CD
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144386.jpgsave_picture_144386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144386.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpgsave_picture_144387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:691E383CDF7F16E08F4FB3315FAFA297CF3BCAE3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144389.jpgsave_picture_144389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144389.jpg" />
 </div>
 
 

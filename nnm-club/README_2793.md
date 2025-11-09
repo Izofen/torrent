@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79298.jpgsave_picture_79298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79298.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA4DD0A57342F51C558F5E1765877E2DFD68E0F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79303.jpgsave_picture_79303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79303.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CA4DD0A57342F51C558F5E1765877E2DFD68E0F9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79305.jpgsave_picture_79305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79305.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CA4DD0A57342F51C558F5E1765877E2DFD68E0F9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79307.jpgsave_picture_79307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79307.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A7B837910DDB95F9B1EBEA2BED6778F24C1514F7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79321.jpgsave_picture_79321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79321.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79326.jpgsave_picture_79326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79326.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Talamasca - Make Some Noise (2011) [FLAC|Lossless]<Psychedelic, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79337.jpgsave_picture_79337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79337.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Talamasca - Make Some Noise (2011) [FLAC|Lossless]<Psychedelic, Full On>
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79342.jpgsave_picture_79342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79342.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Jethro Tull - Greatest Hits (2011) 2CD, Chrysalis Rec. cdchr 60041 [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79344.jpgsave_picture_79344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79344.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Jethro Tull - Greatest Hits (2011) 2CD, Chrysalis Rec. cdchr 60041 [FLAC|Lossles
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79351.jpgsave_picture_79351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79351.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8B74931CCD78059E0F4AEC622C6B840BF8234D9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79357.jpgsave_picture_79357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79357.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8B74931CCD78059E0F4AEC622C6B840BF8234D9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79370.jpgsave_picture_79370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79370.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:51599D44FDA853CF73FE75DE86F96D756131B10B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79376.jpgsave_picture_79376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79376.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Дискотека 90-х Vol.1 (2012) [MP3|320 кб/с]<Dance/EuroDance/Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79378.jpgsave_picture_79378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79378.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E5B5AB40700C60D154AC6A03E4256E7D3EE3B560
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79396.jpgsave_picture_79396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79396.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79404.jpgsave_picture_79404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79404.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79408.jpgsave_picture_79408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79408.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79410.jpgsave_picture_79410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79410.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79412.jpgsave_picture_79412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79412.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79415.jpgsave_picture_79415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79415.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79418.jpgsave_picture_79418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79418.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Visual Studio 11 Ultimate Beta [Eng] 11.0.50214.1 Beta [English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79433.jpgsave_picture_79433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79433.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ hochuchu | Параллельная обработка звука эффекта
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79456.jpgsave_picture_79456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79456.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BBK | Сборник схем и сервис-мануалов по ремонт
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79457.jpgsave_picture_79457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79457.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:F10A56E8F0B93B5C3DA19EB2746E75726C57EA90
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79463.jpgsave_picture_79463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79463.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:595E89440E09BB9297F3E808A092B1C77411FC2C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79464.jpgsave_picture_79464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79464.jpg" />
 </div>
 
 

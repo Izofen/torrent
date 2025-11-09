@@ -6,7 +6,7 @@ By Fire & Sword - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186483.jpgsave_picture_186483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186483.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Abigor - (Totschlager) Totschläger (A Saintslayer's Songbook) (2020) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186484.jpgsave_picture_186484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186484.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Orbiter - Hollow World (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186486.jpgsave_picture_186486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186486.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Akiavel - Vae Victis (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186487.jpgsave_picture_186487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186487.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alkaloid - Numen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186489.jpgsave_picture_186489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186489.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Staind - Confessions Of The Fallen (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186578.jpgsave_picture_186578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186578.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:65F703D2BC598891A2BE697B6BDC74E8B3B2A904
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186589.jpgsave_picture_186589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186589.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ripper - Return To Death Row (EP) (2022) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186598.jpgsave_picture_186598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zhorhann - Ainsi Parlait Hominina (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186599.jpgsave_picture_186599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186599.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Memento Mori - Rhymes of Lunacy (1993) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186610.jpgsave_picture_186610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186610.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thy Grave - 3 Release (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Slu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpgsave_picture_186612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186612.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Poltergeist - Feather Of Truth (2020) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186614.jpgsave_picture_186614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186614.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Queen - The Miracle (2022) 4CD, Collector's Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186727.jpgsave_picture_186727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186727.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:DD6BCA13764B51A8E7DD343FC71678499971BD36
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpgsave_picture_186764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186764.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186784.jpgsave_picture_186784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186784.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Morbid Angel - Altars of Madness (1989) 1990 reissue [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186788.jpgsave_picture_186788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186788.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186805.jpgsave_picture_186805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186805.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186809.jpgsave_picture_186809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186809.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Stonewall - Victims Of Evil (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186827.jpgsave_picture_186827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186827.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186832.jpgsave_picture_186832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186832.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Subsignal - A Poetry of Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186849.jpgsave_picture_186849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186849.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Marco Ragni - Psychedelic Trips & Artificial Dreams (2023) [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186855.jpgsave_picture_186855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186855.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Corinne Bailey Rae - Black Rainbows (2023) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186860.jpgsave_picture_186860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186860.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Nergard - Eternal White (2021) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186864.jpgsave_picture_186864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186864.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Soen - Memorial (2023) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186866.jpgsave_picture_186866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186866.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mercenary - Soundtrack For The End Times (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186867.jpgsave_picture_186867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186867.jpg" />
 </div>
 
 

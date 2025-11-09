@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233186.jpgsave_picture_233186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233186.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C66A9D191C0FA67CB0100007155197097F8C1ED9
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233187.jpgsave_picture_233187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233187.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:401157B49E4A05DF61C65E7A81DCF27C82E08062
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233189.jpgsave_picture_233189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233189.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ HiBit Startup Manager 2.6.12 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233190.jpgsave_picture_233190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233190.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Thelemite - Survival Of The Fittest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233191.jpgsave_picture_233191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233191.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:65E2413223C6BC0954C9AE35710ED9D4370DCC95
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233193.jpgsave_picture_233193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233193.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ RedNotebook 2.29.6 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233194.jpgsave_picture_233194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233194.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Paint.NET 5.0.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233196.jpgsave_picture_233196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233196.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ FileZilla Server 1.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233197.jpgsave_picture_233197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233197.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233198.jpgsave_picture_233198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233198.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Lounge Tribute, Vol. 8 (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233200.jpgsave_picture_233200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233200.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:41103D3A18C81741565BBD752A12810F594DC700
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233201.jpgsave_picture_233201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233201.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6455253DADCA48A3CEEB72E82EE6C4A8D6538751
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233202.jpgsave_picture_233202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233202.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233203.jpgsave_picture_233203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233203.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:6F687D437981590716FC178C4392FA22BB8CC228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233204.jpgsave_picture_233204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233204.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Screenium 3 v3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233206.jpgsave_picture_233206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233206.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2461F5801CF366147A0D6711949A1FA0379EFEEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233207.jpgsave_picture_233207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233207.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PullTube 1.8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233208.jpgsave_picture_233208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233208.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:ED5F3698D7013BB8EA2666D29B8B8DCCD9E7C556
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233209.jpgsave_picture_233209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233209.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:591C36562B8DB616360489916CC1E064B20B4854
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233210.jpgsave_picture_233210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233210.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:FC6FA6BABA8E9825767DDD737BBB6DFAED3C8CDE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233211.jpgsave_picture_233211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233211.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:003D1CF82DED438A0F4EF46BD824F489AE0C4466
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233212.jpgsave_picture_233212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233212.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Rogue Amoeba Farrago 1.6.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233214.jpgsave_picture_233214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233214.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Clipboard Manager 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233215.jpgsave_picture_233215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233215.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Boys From Heaven - The Descendant (2023) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233216.jpgsave_picture_233216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233216.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:0B5C6C4B817A450770E969DCB6B71D0BF4003F4D
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233217.jpgsave_picture_233217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233217.jpg" />
 </div>
 
 

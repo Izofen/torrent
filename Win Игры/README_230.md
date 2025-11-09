@@ -6,7 +6,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125543.jpgsave_picture_125543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125558.jpgsave_picture_125558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125558.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125609.jpgsave_picture_125609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125609.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125615.jpgsave_picture_125615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125615.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125669.jpgsave_picture_125669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125669.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125815.jpgsave_picture_125815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125815.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpgsave_picture_125823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125884.jpgsave_picture_125884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125884.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125909.jpgsave_picture_125909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125909.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125910.jpgsave_picture_125910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125910.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125927.jpgsave_picture_125927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125927.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125933.jpgsave_picture_125933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125933.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125937.jpgsave_picture_125937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125937.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125949.jpgsave_picture_125949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125949.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126001.jpgsave_picture_126001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126001.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpgsave_picture_126066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpgsave_picture_126067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126341.jpgsave_picture_126341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126341.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126342.jpgsave_picture_126342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126342.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126380.jpgsave_picture_126380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126380.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126385.jpgsave_picture_126385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126385.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126386.jpgsave_picture_126386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126386.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126541.jpgsave_picture_126541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126541.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126557.jpgsave_picture_126557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126557.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126571.jpgsave_picture_126571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126571.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpgsave_picture_126572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpg" />
 </div>
 
 

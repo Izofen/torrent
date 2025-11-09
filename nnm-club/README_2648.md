@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69598.jpgsave_picture_69598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69598.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C523BB8F335EF0C77DA5A4A666845EC6DA27C95A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69599.jpgsave_picture_69599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69599.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F68C9E707B704FA94C99782514E1531537C9ADED
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69600.jpgsave_picture_69600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69600.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69601.jpgsave_picture_69601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69601.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69602.jpgsave_picture_69602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69602.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Max Roach & Dizzy Gillespie - Max + Dizzy: Paris (1989) 2CD, 1990, A&M Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69603.jpgsave_picture_69603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69603.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Art Pepper - So In Love (1979) 2004, Analogue [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69604.jpgsave_picture_69604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69604.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Sun Ra - Lights On A Satellite: Live At The Left Bank (1978) 2CD, 2024, Resonanc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69605.jpgsave_picture_69605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69605.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Bud Powell - The Bud Powell Trio Plays (1947, 1953) 1990, Roulette Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69606.jpgsave_picture_69606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69606.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gary Numan - Berserker (1984) Extended; Remaster;  2025; BMG [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69607.jpgsave_picture_69607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69607.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:17640F56DEA11D0F92D9F06807215BDF22463197
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69608.jpgsave_picture_69608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69608.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:77D3D1CB7D8BACFDBA14AE03DB5B5379A50450D9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69609.jpgsave_picture_69609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69609.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:CC21D265C6A5448812775F9A484247351C226A6B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69610.jpgsave_picture_69610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69610.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:B44680528FBDC33A6049195E8243913F5140F925
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69611.jpgsave_picture_69611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69611.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:ED335F88550D0045A96F2BAD3C0AB65829189601
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69612.jpgsave_picture_69612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69612.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:4206959F9D0436951B2E896E09D06E672F66C485
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69613.jpgsave_picture_69613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69613.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7C7BBAAF522811F85AD7B733BF28E8B52E6F8EF7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69614.jpgsave_picture_69614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69614.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Irony Of Fate - Equinox (2025) [MP3|320 Kbps] <Melodic Death Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69615.jpgsave_picture_69615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69615.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:220446971C9B2F9F3A4F54E5A7AA64E0956809E5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69616.jpgsave_picture_69616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69616.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ ROSA 317 (ROSA 3*1*7) - Herzlosen Welt (2025) [MP3|320 Kbps] <EBM, Electro Indus
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69617.jpgsave_picture_69617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69617.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:C4D24DBE5F712EF963D8AC892CAB90397DAB3A7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69618.jpgsave_picture_69618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69618.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E19EA7D680319B133235EF20FF9D7D91A1A9F00E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69619.jpgsave_picture_69619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69619.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:ED6316FC7E356B9ED14953849174EDC8E0E4FDB4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69620.jpgsave_picture_69620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69620.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:816316141B85F2D4EBBFA1FAE732497652C8A2F8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69621.jpgsave_picture_69621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69621.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:DD76920737D2A6686BADC8AD443EC8FCE189A722
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69622.jpgsave_picture_69622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69622.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Surmachina - Хождение за три моря (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69623.jpgsave_picture_69623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69623.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246104.jpgsave_picture_246104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246105.jpgsave_picture_246105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246105.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:457F93E9BA034056895F347EE7B7E817DFFB9F5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246106.jpgsave_picture_246106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246106.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246107.jpgsave_picture_246107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246107.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:487FB52028F13B0A257E4BA63D5A346E50A3254B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246108.jpgsave_picture_246108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246108.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2BDF7F1E7035F2C1C14740C4182BB31C647576E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246109.jpgsave_picture_246109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246109.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246110.jpgsave_picture_246110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246110.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Florence + The Machine - Everybody Scream (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246111.jpgsave_picture_246111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246111.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7AAEA2FA1D6E6BFBCDB4E3B3DCDBD61FECDA449B
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246112.jpgsave_picture_246112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246112.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:8E4CFA0FD5D9CE785BE043724CDFEFF00B390051
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246113.jpgsave_picture_246113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246113.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Ibiza Winter Session 2026 (Late Night Techno Kisses) (2025) [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246114.jpgsave_picture_246114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246114.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B0EA7F90711DF72EE330337B291BA1E3CA0CD0D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246115.jpgsave_picture_246115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246115.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F1527D115BE16EEE000CBE8D67CE92C9EAC4134D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246116.jpgsave_picture_246116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246116.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F1527D115BE16EEE000CBE8D67CE92C9EAC4134D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246117.jpgsave_picture_246117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246117.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:8E6D5572142434FC31330C34842450198EC569E7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246118.jpgsave_picture_246118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246118.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:CFDEB74ACA6EA20D6F66766B7B93AD53A664FE3D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246119.jpgsave_picture_246119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246119.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:E0A2B46D0F15F37F9A24A957C26C40BB1327E4E8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246120.jpgsave_picture_246120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246120.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:81F8E222C99240C0C896706483B9BFB8086B06DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246121.jpgsave_picture_246121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246121.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:BB42ACA70894318A763E9714431718A040D93C61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246122.jpgsave_picture_246122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246122.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0A2831CFB639502890531142AA089CCEA0F0A236
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246123.jpgsave_picture_246123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246123.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246124.jpgsave_picture_246124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246124.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Steinberg - SpectraLayers Pro 12 12.0.30.431 (x64) Update Only [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246125.jpgsave_picture_246125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246125.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:18D3202B81F0EA4C6F19A1A6C2B5F9DF09DA2FD6
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246126.jpgsave_picture_246126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246126.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:20FF2E49315D4FC199A36233FE0EFB619E539CA8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246127.jpgsave_picture_246127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246127.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E7317B08992303AA15A64527850907A23A188961
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246128.jpgsave_picture_246128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246128.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:4A9FA50392E49284484ADFCA7B860921E7520476
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246129.jpgsave_picture_246129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246129.jpg" />
 </div>
 
 

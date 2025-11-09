@@ -6,7 +6,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90400.jpgsave_picture_90400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Uninstaller — утилита для удаления нежелатель
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90401.jpgsave_picture_90401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90401.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90405.jpgsave_picture_90405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90405.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NG: Омар-монстр / Monster lobster (2000) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90407.jpgsave_picture_90407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90407.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Intel начинает поставки процессоров нового по
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90408.jpgsave_picture_90408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90408.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ivy Bridge — это первые процессоры Intel, производ�
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90409.jpgsave_picture_90409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90409.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:8A841668277F2E7438659BAF0F531487140E3FDE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90410.jpgsave_picture_90410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90410.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - В Машину! Русский Vol.2 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90412.jpgsave_picture_90412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90412.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:B05B399A0FB1C855B836EECD4F80B23E611C7357
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90414.jpgsave_picture_90414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90414.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:03D3A156105D033BCD04CFE4123DC95791B16B3A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90418.jpgsave_picture_90418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90418.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:94A29E054772E452B2494A75F3B7D3D357DB4657
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90421.jpgsave_picture_90421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90421.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90422.jpgsave_picture_90422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90422.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90425.jpgsave_picture_90425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90425.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Naked Music Recordings - Коллекция (21 диск, 35 винилов) (19
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90429.jpgsave_picture_90429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90429.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90434.jpgsave_picture_90434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90434.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4480E505BD038D668122F57365CD301F8A46F2F5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90436.jpgsave_picture_90436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90436.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:96315E82E75C6A02222E2D23DCC73A76D0D885C5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90438.jpgsave_picture_90438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90438.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:96315E82E75C6A02222E2D23DCC73A76D0D885C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90439.jpgsave_picture_90439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90439.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C3027A7212E1FEC32A01CBB8CB7587BE0FDC8C54
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90441.jpgsave_picture_90441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90441.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:70EABDF35186E1BDB708F7A878DF54B596EC70CA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90443.jpgsave_picture_90443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90443.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B848FBCAAE1C548C23C4EBB887CC73441EFC2B65
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90445.jpgsave_picture_90445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90445.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:66897DF61286E7FEFC27526D2B2B6158866CC640
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90447.jpgsave_picture_90447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90447.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - 100 Hits: Rock Anthems (2011) [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90448.jpgsave_picture_90448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90448.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:AC044790F29906F4AFA53B98F72C76D0E7099AA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90449.jpgsave_picture_90449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90449.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:ED04E3D27C7C6C71E0FABE46CB8C6ED16859467E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90454.jpgsave_picture_90454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90454.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:6517024FDC10D6577B2FB2FF76618CFD3ED73D74
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90455.jpgsave_picture_90455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90455.jpg" />
 </div>
 
 

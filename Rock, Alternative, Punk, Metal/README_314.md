@@ -6,7 +6,7 @@ Within Temptation - Live In Hell (2023) Compilation [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183237.jpgsave_picture_183237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183237.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:63480C703C8101ECDA2E55616E70E7469360F656
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183238.jpgsave_picture_183238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183238.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mister Earthbound - Shadow Work (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183243.jpgsave_picture_183243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183243.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7481A5B45CE21B4E41B1FF22DEB7015F79392460
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183245.jpgsave_picture_183245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183245.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Powerhead - Curse Of Stone (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183249.jpgsave_picture_183249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183249.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mindless Paradise - Faerie's Aire and Death Waltz (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183256.jpgsave_picture_183256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183256.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183258.jpgsave_picture_183258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183258.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Legal Hate - Moral Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183262.jpgsave_picture_183262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183262.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC|Lossless|tracks + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183263.jpgsave_picture_183263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183263.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mono Inc. - Melodies in Black (2020) 2xCD [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183266.jpgsave_picture_183266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183266.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ We Killed The Lion - Boogie Shoe Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183272.jpgsave_picture_183272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183272.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Doodseskader - Year One (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Grun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183277.jpgsave_picture_183277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183277.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tuple - Paradise Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183278.jpgsave_picture_183278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183278.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (2023) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183281.jpgsave_picture_183281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183281.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Law of Contagion - Oecumenical Rites for the Antichrist (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183283.jpgsave_picture_183283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183283.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Alien Autopsy - Cosmic Inception (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183287.jpgsave_picture_183287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183287.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183291.jpgsave_picture_183291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183291.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183293.jpgsave_picture_183293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183293.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:BB18FDB7139FF60D0CA0584A1649E5FE616CB0AB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183303.jpgsave_picture_183303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183303.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183305.jpgsave_picture_183305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183305.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dream Theater - Distant Memories: Live In London (2020) 3xCD, Bonus Track Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183314.jpgsave_picture_183314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183314.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|image + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183340.jpgsave_picture_183340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183340.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Beyond All Misery - Beyond All Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183343.jpgsave_picture_183343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183343.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Autumn, Leaves, Scars - Unter dem Füsse der trauerd Winde (2021) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183350.jpgsave_picture_183350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183350.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jon Anderson - Song of Seven (1980) 2020 Remastered & Expanded Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183444.jpgsave_picture_183444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183444.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ She Hates Emotions - Melancholic Maniac (2020) [FLAC|Lossless|tracks + .cue] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183490.jpgsave_picture_183490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183490.jpg" />
 </div>
 
 

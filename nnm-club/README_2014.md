@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52731.jpgsave_picture_52731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52731.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpgsave_picture_52732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Tails 6.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52733.jpgsave_picture_52733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52733.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2F413E55E68C918DDE15AA0985DCA8F6D9FE2CD4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52734.jpgsave_picture_52734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52734.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CCleaner 6.25.11093 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52735.jpgsave_picture_52735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52735.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D3FB93175764534B20BEBD9193A11186CF8C7C5E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52736.jpgsave_picture_52736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52736.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F9BBFC6A0E1970D7760AD41650A7909BDE140CF5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52737.jpgsave_picture_52737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52737.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:148BD533E1BA25C2CFE4C9EC9E592BB9530B8F82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52738.jpgsave_picture_52738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52738.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4E8211DEF77DCBC58A1F1AA9AA507A51A54D923A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52739.jpgsave_picture_52739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52739.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1B7ACB191CECEE5A33B495A3004532CBC89FB7E8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52740.jpgsave_picture_52740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52740.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A92A65E6D01320322FEFC6B8540F33AAD805580F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52741.jpgsave_picture_52741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52741.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Hananoi-kun to Koi no Yamai | A Condition Called Love | Любовная бол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52742.jpgsave_picture_52742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52742.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:AE6AA2BC0E09943012313F71FE28C93ACF1F1B92
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52743.jpgsave_picture_52743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52743.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E007C866DD04CA9F26F7D334CE0D6D398EB299A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52744.jpgsave_picture_52744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52744.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLigh
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52745.jpgsave_picture_52745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52745.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52746.jpgsave_picture_52746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52746.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MultiUSB-3.0+UEFI 24-05 x86 x64 [RU/EN] (авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52747.jpgsave_picture_52747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52747.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52748.jpgsave_picture_52748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52748.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52749.jpgsave_picture_52749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52749.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Adobe Premiere Pro 2024 24.5.0.57 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52750.jpgsave_picture_52750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52750.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ CorelDRAW Graphics Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52751.jpgsave_picture_52751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52751.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:4F9DF39E1BB227AE9726D3E9F34FC0642AA058D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52752.jpgsave_picture_52752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52752.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:FAB8F6EAE2E2C5C1870B42602AF3D1F3EF4A9572
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52753.jpgsave_picture_52753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52753.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Adobe Photoshop 2023 24.7.4.1251 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52754.jpgsave_picture_52754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52754.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpgsave_picture_52755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows 11 превращает суперсовременные процесс�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52756.jpgsave_picture_52756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52756.jpg" />
 </div>
 
 

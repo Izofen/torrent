@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196586.jpgsave_picture_196586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196586.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196587.jpgsave_picture_196587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3A6D378C5D1801F5182A6183884812521B42C099
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196588.jpgsave_picture_196588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196588.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Udemy, Denis Panjuta | Complete C# Masterclass (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196589.jpgsave_picture_196589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196589.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196590.jpgsave_picture_196590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196590.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BitTorrent 7.11.0.46823 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196591.jpgsave_picture_196591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196591.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpgsave_picture_196592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196593.jpgsave_picture_196593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196593.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1495ECBAB50AEA38F3716D9B025FCDCE83678A3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196594.jpgsave_picture_196594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196594.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196595.jpgsave_picture_196595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196595.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196596.jpgsave_picture_196596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196596.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Reface v3.40.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196597.jpgsave_picture_196597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196597.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196598.jpgsave_picture_196598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196598.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:CF68AE9FA3B3006BE30B3B6AB03D6A888EC25CE5
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196599.jpgsave_picture_196599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196599.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Corona Renderer 10.0 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196600.jpgsave_picture_196600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196600.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:055071E48E5464795989C839FA02A0D99D64AF3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196601.jpgsave_picture_196601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196601.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196602.jpgsave_picture_196602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196602.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:0364E8FE016BFCD10B87DFA190C8CE956AEE641F
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196603.jpgsave_picture_196603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196603.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:22D078028D780D824ACB55907392114E335E3BC2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196604.jpgsave_picture_196604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196604.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:7613EDBE55307695429B802E54B3656647A82E2F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196605.jpgsave_picture_196605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196605.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:02052EAD83E59800C691E6FA761645A1A18E7BFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196606.jpgsave_picture_196606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196606.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpgsave_picture_196607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196608.jpgsave_picture_196608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196608.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196609.jpgsave_picture_196609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196609.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:397E7CD7C9994633CB6852057785E12419C3DB41
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196610.jpgsave_picture_196610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196610.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:042EB0AC5EC489C25EB377BEB379260CD662F093
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196611.jpgsave_picture_196611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196611.jpg" />
 </div>
 
 

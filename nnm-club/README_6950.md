@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.5.0.2518 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238585.jpgsave_picture_238585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238585.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Your Universal MultiBoot Installer (YUMI) 2.0.9.4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238586.jpgsave_picture_238586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238586.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Jason Lane Band - Stone in the Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238588.jpgsave_picture_238588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238588.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1C717B979831EADE46ADDF7BBFD6F967A4A8AB99
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238589.jpgsave_picture_238589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238589.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Various Artists - Nobody New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238590.jpgsave_picture_238590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238590.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Cynic - ReFocus (2006) Remastered, 2023, Masvidalien Records [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238591.jpgsave_picture_238591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238591.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Windows 10 Manager 3.6.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238595.jpgsave_picture_238595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238595.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D940753CD198E58C498BE3A340D78CC86D18E26C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238596.jpgsave_picture_238596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238596.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Joe Henderson - Mirror, Mirror (1980) 1993, MPS [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238597.jpgsave_picture_238597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238597.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Gloryhammer - Return to the Kingdom of Fife (2023) [FLAC 2.0|48/24|WEB-DL|tracks
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238598.jpgsave_picture_238598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238598.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ CADintosh X 8.8.4 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238601.jpgsave_picture_238601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238601.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:FF902101B3863C99C5D279B7268AB03D92E8373D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238602.jpgsave_picture_238602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238602.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:1FC8B3D57480A2BCF37BACEEDB3F4342FB7CD1BB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238603.jpgsave_picture_238603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238603.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Avi Rosenfeld & Andre Tulipano - Battle Of Rock (2023) [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238605.jpgsave_picture_238605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238605.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Jazzy Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238606.jpgsave_picture_238606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238606.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238607.jpgsave_picture_238607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238607.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Platospheremusic - First Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238609.jpgsave_picture_238609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238609.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Affinity Photo Beta 1.9.0.215 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238610.jpgsave_picture_238610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238610.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Corpsepain - Grimmgeflüster (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238611.jpgsave_picture_238611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238611.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Various Artists - In My Head Let's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238613.jpgsave_picture_238613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238613.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpgsave_picture_238614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hookshot 1.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238616.jpgsave_picture_238616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238616.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238618.jpgsave_picture_238618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238618.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ RTG. Отдых на Асафовых островах (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238620.jpgsave_picture_238620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238620.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DRH - Ode To A Firework (2022) [FLAC|Lossless|tracks + .cue] <Math Rock, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238621.jpgsave_picture_238621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238621.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ ColorWell 7.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238622.jpgsave_picture_238622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238622.jpg" />
 </div>
 
 

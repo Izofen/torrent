@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156321.jpgsave_picture_156321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156323.jpgsave_picture_156323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156323.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Chillout & Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156324.jpgsave_picture_156324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156324.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:70F3C4EE30B4881D7A99525B8FE9A90305884B72
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156325.jpgsave_picture_156325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156325.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:5D48EBBF3DE9890DCCB7DE988FCD02B0CD571ADB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156326.jpgsave_picture_156326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156326.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:11C17C4CC62F87D6D7E8781BF8A61C90E4878700
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156327.jpgsave_picture_156327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156327.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ WhatsApp 2.2049.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156329.jpgsave_picture_156329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156329.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:20EAFA52D13DE8AC9E49688A4EDAB4240365CCA6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156331.jpgsave_picture_156331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156331.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Adobe Acrobat Reader DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156332.jpgsave_picture_156332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156332.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156334.jpgsave_picture_156334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156334.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156335.jpgsave_picture_156335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156335.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Path Finder 8.3.7
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156336.jpgsave_picture_156336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156336.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tap Forms Organizer 5 v5.3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156337.jpgsave_picture_156337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156337.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156339.jpgsave_picture_156339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156339.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:11D7376B1C97CC3D47BDE4550E592B7470CC326C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156340.jpgsave_picture_156340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156340.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpgsave_picture_156341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156342.jpgsave_picture_156342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156342.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156344.jpgsave_picture_156344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156344.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Ibiza Let's Chill, Vol. 2 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156345.jpgsave_picture_156345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156345.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:396A2DB8A80C8049E11DAB3424372BD485B5945B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156346.jpgsave_picture_156346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156346.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:BBC31845C95BF1BAA81FD6A78D6F252CEF3F9B4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156348.jpgsave_picture_156348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156348.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1FDDBB63F487D38843441A44D96DBED82F059C67
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156349.jpgsave_picture_156349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156349.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Gunz The Duel / Поединок на оружии (P) [En/8672] 2005 | R.G. Act
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156351.jpgsave_picture_156351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156351.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:E11C8C038F1EAC29E3E306A14ED00CB462B1D97B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156352.jpgsave_picture_156352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156352.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpgsave_picture_156353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156354.jpgsave_picture_156354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156354.jpg" />
 </div>
 
 

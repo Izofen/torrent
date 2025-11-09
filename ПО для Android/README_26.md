@@ -6,7 +6,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50715.jpgsave_picture_50715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B7739D32F6AE2175DFFB73BD342B31615E43ACF2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50724.jpgsave_picture_50724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50724.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Plus Messenger (Telegram+) v10.14.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50754.jpgsave_picture_50754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50754.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PictureThis - Plant Identification v4.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50756.jpgsave_picture_50756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50756.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB3277BDE53D96335590D49815F82BCBC387C8AB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50776.jpgsave_picture_50776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50776.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Psiphon Pro 397 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51263.jpgsave_picture_51263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51263.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Battery One: Батарея 1.8.0 Mod by Fxolan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51477.jpgsave_picture_51477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51477.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Battery One: Батарея 1.8.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51499.jpgsave_picture_51499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51499.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51540.jpgsave_picture_51540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51540.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ ReLens - Фокус и размытие DSLR 3.3.3 Mod by AjeethK [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51902.jpgsave_picture_51902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51902.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ OfficeSuite Pro + PDF 14.5.52368 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51903.jpgsave_picture_51903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51903.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:52B38B6AA21D7A73E1BC90E099A39BA1858091F2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51955.jpgsave_picture_51955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51955.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ YouCut - Video Editor v1.631.1191 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52036.jpgsave_picture_52036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52036.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52097.jpgsave_picture_52097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52097.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Purvpn 9.8 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52099.jpgsave_picture_52099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52099.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52217.jpgsave_picture_52217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52217.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VivaVideo Video Editor v9.17.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52225.jpgsave_picture_52225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52225.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Folder Player Pro v5.27 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52320.jpgsave_picture_52320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52320.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Motion Portrait v1.7.1 Mod by APKMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52355.jpgsave_picture_52355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52355.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Zedge™ Wallpapers & Ringtones 8.48.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52410.jpgsave_picture_52410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52410.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52494.jpgsave_picture_52494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52494.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52696.jpgsave_picture_52696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52696.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ SuperImage Pro - AI Enhancer 3.0.2 (ARM64) Mod by ApplicazioniCR [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52711.jpgsave_picture_52711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52711.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52769.jpgsave_picture_52769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52769.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52773.jpgsave_picture_52773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52773.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52793.jpgsave_picture_52793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52793.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139341.jpgsave_picture_139341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CCE401EBAD31DAF62B3D89FCC3ECE27E6D90AFB1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139343.jpgsave_picture_139343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpgsave_picture_139344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4F0E0935701A310A483DDDC94CA6F59DEDCC99F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139345.jpgsave_picture_139345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139345.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C7EC7F51FD999D1ACCEBE30AF609E7533C3164E4
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139346.jpgsave_picture_139346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139346.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:58445EF6C152996580AE13EB910C2D1BA62996CC
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139347.jpgsave_picture_139347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139347.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Sharam Jey pres. BEST OF BUNNY TIGER 2021 (2021) [AAC|~328 Kbps] <Dep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139349.jpgsave_picture_139349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139349.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ John Jenkins, Cliff Jordan and - Bobby Timmons (1957) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139350.jpgsave_picture_139350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139350.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ AV Uninstall Tools Pack 2017.12  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139352.jpgsave_picture_139352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139352.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:9F984B92CB2BC9123989FD3F6D1BDBC0D3238E5D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139353.jpgsave_picture_139353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139353.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:92F9FDADCFF7AF38939AE10C26083D7D721A8DE7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139355.jpgsave_picture_139355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139355.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:2F01620B4C5FDEC8015EA6DB25938BD6D2072025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139356.jpgsave_picture_139356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139356.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:5B72D0EB2DB54478804B35DB5071F36E5546270F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139358.jpgsave_picture_139358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139358.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139359.jpgsave_picture_139359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139359.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139360.jpgsave_picture_139360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139360.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:42A995192A2DCA2F903B0F451BCCD53A4D29541E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139361.jpgsave_picture_139361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139361.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Permute 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139362.jpgsave_picture_139362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139362.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:DB33BA464490D8E9BA179ED9E20C7FDD2C88A9E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139363.jpgsave_picture_139363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139363.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:77F28097AFF6018669C07786B4A09A74EBCC8789
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139364.jpgsave_picture_139364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139364.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:7D2E0FA70D529BB85855013599C0A9E63096B5C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139367.jpgsave_picture_139367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139367.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:8EDBE9B2CDA02E6F7EB6BFA30C955E7C96EBD100
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139368.jpgsave_picture_139368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139368.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Just music (2017) [MP3|320 Kbps] <Pop, Rock, Instrumental,  Eurodisco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139371.jpgsave_picture_139371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139371.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:D5F7A4D4FBDEC17B7581324A7570BC73AE6C1DBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139372.jpgsave_picture_139372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139372.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Tony Darren - Sun Song (1998) [APE|Lossless|image + .cue] <Contemporary Jazz, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139373.jpgsave_picture_139373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139373.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MediaHuman YouTube Downloader 3.9.9.30 (2912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139374.jpgsave_picture_139374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139374.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:C5A3FE40B0E9B4D476BEB6F5052B926DDF7C86EE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139375.jpgsave_picture_139375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139375.jpg" />
 </div>
 
 

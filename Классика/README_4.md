@@ -6,7 +6,7 @@ Johann-Strauss-Orchester - Opernball (2008) [WavPack|Lossless|image + .cue] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105347.jpgsave_picture_105347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105347.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tarja - Best of: Living the Dream: Tarja's Non-Rock Specials (2024) [FLAC 24/44.
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106388.jpgsave_picture_106388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106388.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Maurice Ravel - The Complete Works (2020) 21CD [MP3|320 Kbps] <Classics>
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107719.jpgsave_picture_107719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107719.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aythis - Lost Lighthouse (2024) [FLAC|Lossless|WEB-DL|tracks] <neoclassical, eth
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107869.jpgsave_picture_107869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107869.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Classical & Baroque Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108225.jpgsave_picture_108225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108225.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108424.jpgsave_picture_108424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108424.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cr
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109809.jpgsave_picture_109809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109809.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109822.jpgsave_picture_109822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109822.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109838.jpgsave_picture_109838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109838.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110396.jpgsave_picture_110396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110396.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110672.jpgsave_picture_110672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110672.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110856.jpgsave_picture_110856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110856.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111801.jpgsave_picture_111801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111801.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111835.jpgsave_picture_111835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111835.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112039.jpgsave_picture_112039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112039.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112046.jpgsave_picture_112046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112046.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - The Most Famous Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112131.jpgsave_picture_112131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112131.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112215.jpgsave_picture_112215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112215.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Ukrainian Masters: Bortkiewicz, Kosenko, Skoryk - Violin Sonatas (2024) [FLAC|Lo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112680.jpgsave_picture_112680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112680.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:C5D7F686E4E933DA75E42DF37743D9EFD42D4DB1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112845.jpgsave_picture_112845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112845.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpgsave_picture_112966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112966.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113101.jpgsave_picture_113101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113101.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:4B275BD411A79D76F31B5A73ED4C6D952C0D0243
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113200.jpgsave_picture_113200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113200.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Calm Piano Study Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113290.jpgsave_picture_113290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113290.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Classical Music Piano Solo (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113444.jpgsave_picture_113444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113444.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113447.jpgsave_picture_113447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113447.jpg" />
 </div>
 
 

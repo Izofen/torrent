@@ -6,7 +6,7 @@ VA - Chanson Francaise: Toute Chose En Ton Coeur (2020) [MP3|320 Kbps] <Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176576.jpgsave_picture_176576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176576.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Andrew Riverstone - Andrew Riverstone (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176577.jpgsave_picture_176577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176577.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PortScan & Stuff 1.96 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176579.jpgsave_picture_176579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176580.jpgsave_picture_176580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176580.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176582.jpgsave_picture_176582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176582.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Double Commander 1.0.9  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176583.jpgsave_picture_176583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176583.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ HiBit Uninstaller 2.5.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176584.jpgsave_picture_176584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176584.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Internet Download Manager 6.41 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176586.jpgsave_picture_176586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176586.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Record Super Chart 07.10.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176587.jpgsave_picture_176587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176587.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:3A253D883C4D173F33D187297CE03A4C73EF38CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176589.jpgsave_picture_176589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176589.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:E21B72400F9D16C2D33028292B84722302A6D93F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176590.jpgsave_picture_176590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176590.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:76C4EF68BE7863C9B615ADAABB00C825A3F760D9
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176592.jpgsave_picture_176592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176592.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:C016D7B9A003CCFBB32DC268D0E3843BF8BC6A1C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176593.jpgsave_picture_176593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176593.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ DP Animation Maker 3.5.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176595.jpgsave_picture_176595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176595.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:945A3C6AC87EEA164414311580D933AB0839256A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176597.jpgsave_picture_176597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176597.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:ABD4687739E5F3F2C94BE95EA1DF7C72DD169938
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176599.jpgsave_picture_176599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176599.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C5D34AE959606CF6D3BA7427F2C3769D0B9F26AD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176600.jpgsave_picture_176600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176600.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ OCCT 12.1.9 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176602.jpgsave_picture_176602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176602.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:5C7D89AF5ACBD5875ECF9145252F4D9BF1301E38
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176603.jpgsave_picture_176603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176603.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:183FAB8FEB4A9D7FCA178E9F5D5E6A69EB09B192
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176604.jpgsave_picture_176604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176604.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176605.jpgsave_picture_176605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176605.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ YT Downloader 7.18.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176606.jpgsave_picture_176606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176606.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ RSS Guard 4.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176607.jpgsave_picture_176607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176607.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:82EC437DD552CE51F3DF4EDC0DB21C8EE73FDB71
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176608.jpgsave_picture_176608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176608.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Annisokay - Aurora (2021) [MP3|320 Kbps] <Alternative Metal, Hardcore, Post-Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176609.jpgsave_picture_176609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176609.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CCD4CE4C4E66E5E76BE4A9DF74B8B048F25E5DE6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176610.jpgsave_picture_176610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176610.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) 2 x CD [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171556.jpgsave_picture_171556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ruffyunz - Ruffyunz III (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171568.jpgsave_picture_171568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171568.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Erik Norlander - Stars Rain Down (2004) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171572.jpgsave_picture_171572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Erik Norlander - Music Machine (2003) 2CD [FLAC|Lossless|image + .cue] <Symphoni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171574.jpgsave_picture_171574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rozario - To the Gods We Swear (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171581.jpgsave_picture_171581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171581.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Erik Norlander - Threshold (1999) Special Edition, 2CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171586.jpgsave_picture_171586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171586.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Erik Norlander - Into The Sunset (2000) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171589.jpgsave_picture_171589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171589.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Thorns of Grief - Anthems to My Remains (2019) [FLAC|Lossless|image + .cue] <Fun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171603.jpgsave_picture_171603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171603.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Fallen - Drowned in an Unknown Meaning of Life and Death (2016) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171605.jpgsave_picture_171605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171605.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Solar Sons - Chameleon (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171606.jpgsave_picture_171606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171606.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Solar Sons - Another Dimension (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171607.jpgsave_picture_171607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171607.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Colosseum - 13 альбомов, Box Set (1969 - 2014) 26 CD [FLAC|WavPack|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171653.jpgsave_picture_171653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171653.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171727.jpgsave_picture_171727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171727.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Vazeline - Ты не КиШ, чтобы я тебя слушал (2023) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171733.jpgsave_picture_171733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171733.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Silver Trail - Late arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171736.jpgsave_picture_171736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171736.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Virgin Steele - The House Of Atreus Act I & Act II (A Barbaric-Romantic Opera) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171741.jpgsave_picture_171741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171741.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171751.jpgsave_picture_171751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171751.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Existance - Wolf Attack (2021) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171753.jpgsave_picture_171753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171753.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171755.jpgsave_picture_171755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171755.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpgsave_picture_171757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpgsave_picture_171758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpgsave_picture_171759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpgsave_picture_171760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpgsave_picture_171765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpgsave_picture_171766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpgsave_picture_171768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpg" />
 </div>
 
 

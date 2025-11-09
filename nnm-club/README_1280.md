@@ -6,7 +6,7 @@ Adobe Photoshop 2025 26.2.0.140 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33635.jpgsave_picture_33635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33635.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows Server 2025 LTSC [10.0.26100.2605], Version 24H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33636.jpgsave_picture_33636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sword Art Online Alternative: Gun Gale Online II / Мастера меча он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33637.jpgsave_picture_33637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33637.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:20C1A2B3FC646194E05F29AA7C93A8CF17CA816E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33638.jpgsave_picture_33638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33638.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4838CE1ACF8061ADB719E7641C17A8848C44439A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33639.jpgsave_picture_33639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33639.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2DB1038923150C61546DF343397D4B01620DB741
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33640.jpgsave_picture_33640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33640.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Office Installer & Office Installer+ 1.22 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33641.jpgsave_picture_33641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33641.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:43364150B350FBBEAE1C2B29F99368AF3DF5F584
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33642.jpgsave_picture_33642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33642.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:941B747ABE2DC1FF4EB2751403899222625B6C66
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33643.jpgsave_picture_33643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33643.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:08A9D511177424855DC448F833BCFAED6FDFBBF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33644.jpgsave_picture_33644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33644.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:E9557DF3C05991DBB20A519D1BF1B2311F688431
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33645.jpgsave_picture_33645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33645.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Party Hard Go v0.100034 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33646.jpgsave_picture_33646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33646.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SoliderSound - S Doubler Pro 1.0.0 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33647.jpgsave_picture_33647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33647.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kdenlive 24.12.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33648.jpgsave_picture_33648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33648.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:704A35BEE2BB660E97462968A0A43CD05EC152B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33649.jpgsave_picture_33649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33649.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33650.jpgsave_picture_33650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3A09AD7C551675B0928ACAD897FFA9BF0604AA3D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33651.jpgsave_picture_33651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33651.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:2B9FC51FCDDDEAEA959C6289A5053865DD5DE288
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33652.jpgsave_picture_33652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33652.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Subtitle Edit 4.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33653.jpgsave_picture_33653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33653.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33654.jpgsave_picture_33654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:938ACCD1DD6E1E391E05E66F0691C846AF5284F2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33655.jpgsave_picture_33655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33655.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:415841E9FF990437523B3F950C5E18B0D0791418
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33656.jpgsave_picture_33656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33656.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:8FD77E37C4C5BFFFD340F924EE3BE2AD712E38BB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33657.jpgsave_picture_33657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33657.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B9124B6AE783540B70EAEDDE767230F9E939E4C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33658.jpgsave_picture_33658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33658.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:6DEEF795854294A68EC5D38BD561D83FC26F241F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33659.jpgsave_picture_33659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33659.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33660.jpgsave_picture_33660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33660.jpg" />
 </div>
 
 

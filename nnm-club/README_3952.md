@@ -6,7 +6,7 @@ Scanner - The Cosmic Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123247.jpgsave_picture_123247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123247.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123248.jpgsave_picture_123248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123248.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpgsave_picture_123249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Path Finder 2166 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123250.jpgsave_picture_123250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123250.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:5AFDB934288BDC9EDFA6110A73F2E7B29765636C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123251.jpgsave_picture_123251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123251.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123252.jpgsave_picture_123252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123252.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:33A0E38A786A05D14927EDA41BF89F28B0A9437A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123253.jpgsave_picture_123253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123253.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ryan Adams - 1985 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123254.jpgsave_picture_123254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123254.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Sodom - 1982 (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Expe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123255.jpgsave_picture_123255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123255.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ryan Adams - Star Sign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123256.jpgsave_picture_123256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123256.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Money Pro - Personal Finance 2.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123257.jpgsave_picture_123257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123257.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:0F0D7C92A0B9B4C129E4B23C46F157CDF4ADF2B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123258.jpgsave_picture_123258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123258.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:FC19D0B9BCA7A4352171915CCB6F3E716FFF3757
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123259.jpgsave_picture_123259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123259.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Final Draft 13 v.13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123260.jpgsave_picture_123260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123260.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Fork 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123261.jpgsave_picture_123261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123261.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Liva - Ecce Mundus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123262.jpgsave_picture_123262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123262.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ FontLab 8 v.8.3.0.8762 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123263.jpgsave_picture_123263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123263.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:46A4D7B1384BC9D973592A6CF58E112A35D78DD9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123264.jpgsave_picture_123264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123264.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Magnum - Here Comes The Rain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123265.jpgsave_picture_123265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123265.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D30972E4EB9F2072E4650ED821E4BB0D85775AF4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123266.jpgsave_picture_123266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123266.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ ExamDiff Pro Master Edition 14.0.1.20 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123267.jpgsave_picture_123267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123267.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123268.jpgsave_picture_123268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123268.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123269.jpgsave_picture_123269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123269.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Opera GX 106.0.4998.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123270.jpgsave_picture_123270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123270.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Stone System - The old man within (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123271.jpgsave_picture_123271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123271.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:D13FBCB191A173480ACE9F2AD7DB4392AE9BAB0C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123272.jpgsave_picture_123272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123272.jpg" />
 </div>
 
 

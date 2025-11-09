@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142969.jpgsave_picture_142969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7564A9896361AAC78DDBEBE35EEECEC9EFB61FDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142971.jpgsave_picture_142971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142971.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:32ABD0D28767001B5A9723280660E1E06A195FC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142973.jpgsave_picture_142973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142973.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142974.jpgsave_picture_142974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Accept-SP - Dream Of Tree (2019) [MP3|320 Kbps] <Metal, Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142975.jpgsave_picture_142975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142975.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:074E344AC4AB5C7DDD7302AFC99EDEA5E7FC2723
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142976.jpgsave_picture_142976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142976.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142977.jpgsave_picture_142977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142977.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0F1571C82C329DA7E1C710ACBFA97D4BDB4C892D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142978.jpgsave_picture_142978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142978.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Visual Prison | Визуальная тюрьма [2021, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142979.jpgsave_picture_142979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142979.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B9E3C96D8FEA6B13FBDD088B39E97F1439287BD7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142980.jpgsave_picture_142980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142980.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A5319117A46DE7B635966DCADC4BC514A9ACB56C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142982.jpgsave_picture_142982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142982.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Instastack for Instagram 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142985.jpgsave_picture_142985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142985.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C344C18F71CFFF6ADBA8FA026F17D982D23620D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142986.jpgsave_picture_142986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142986.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Macro Wallpapers (17.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142987.jpgsave_picture_142987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142987.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:89E0B439553E2D100812ABFA06DB0556E26848AB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142988.jpgsave_picture_142988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142988.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:5F36F328148BF097C40E2BD3AD5B7C34FD9C2FE4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142989.jpgsave_picture_142989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142989.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142990.jpgsave_picture_142990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142990.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:6057850A07C2A67026D94CA78216472BEB30E26A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142991.jpgsave_picture_142991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142991.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:176029B0C8DAF3D18748354BD29FD8C8ABDECAB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142993.jpgsave_picture_142993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142993.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Perfect Diet Tracker 3.10.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142994.jpgsave_picture_142994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142994.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:1F4FDF6F4362C3630183B5C9AD078B194096A00B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142995.jpgsave_picture_142995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142995.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142996.jpgsave_picture_142996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142996.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:BC871614D1071202E56A9DF1F0A1BAA21F03C92F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142997.jpgsave_picture_142997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142997.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BC871614D1071202E56A9DF1F0A1BAA21F03C92F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142998.jpgsave_picture_142998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142998.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142999.jpgsave_picture_142999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142999.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143001.jpgsave_picture_143001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143001.jpg" />
 </div>
 
 

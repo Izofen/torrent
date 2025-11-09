@@ -6,7 +6,7 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105173.jpgsave_picture_105173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4528BA6D40765584C9C529ABD1B972C706DB5CB2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105174.jpgsave_picture_105174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105174.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C29C14BECC09DF3073F435BC716AA40516F422FA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105175.jpgsave_picture_105175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105175.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105176.jpgsave_picture_105176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105176.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105177.jpgsave_picture_105177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105177.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DEE3E5D7F37D434DB29E6F6F8B2FB476E0CB824D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105178.jpgsave_picture_105178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105178.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105179.jpgsave_picture_105179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105179.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpgsave_picture_105180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105181.jpgsave_picture_105181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105181.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105182.jpgsave_picture_105182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105182.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105183.jpgsave_picture_105183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105183.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpgsave_picture_105184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105185.jpgsave_picture_105185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105185.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105186.jpgsave_picture_105186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105186.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:0E32D35E815219A32618E75E1B69F26FA69EA9FD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105187.jpgsave_picture_105187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105187.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:8B8B49114C03B32AE51BE9328DB7E01EC717F73D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105188.jpgsave_picture_105188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105188.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A8198893EFF70964DD3B47E3246BED7A46644FC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105189.jpgsave_picture_105189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105189.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AirBrush: ИИ Фоторедактор v7.1.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105190.jpgsave_picture_105190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105190.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpgsave_picture_105191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sabrina Carpenter - Short n' Sweet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105192.jpgsave_picture_105192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105192.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:32416C1DEBDD015BD73327CBDAA6F65DA5E271FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105193.jpgsave_picture_105193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105193.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:385A6B32EE1E2FF13A80CA5DCF46EBB0B6EA10DA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105194.jpgsave_picture_105194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105194.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A6DD4D02732A6688CC54FF789589A5A46D768DAA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105195.jpgsave_picture_105195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105195.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:50CC9631233ECD5E12BB0DBA1E4366D742644279
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105196.jpgsave_picture_105196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105196.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:642F55CC11C0D761881CB82F76B657AA9081CF3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105197.jpgsave_picture_105197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105197.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (2019) [FLAC|Lossless|t
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105198.jpgsave_picture_105198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105198.jpg" />
 </div>
 
 

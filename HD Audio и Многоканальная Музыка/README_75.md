@@ -6,7 +6,7 @@ Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68735.jpgsave_picture_68735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68735.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68737.jpgsave_picture_68737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68737.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68746.jpgsave_picture_68746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68746.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toni Sanchez Group - Projecte Delta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68748.jpgsave_picture_68748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68748.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jad Tariq - Jad Tariq Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68749.jpgsave_picture_68749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68749.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68760.jpgsave_picture_68760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68760.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68763.jpgsave_picture_68763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68763.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68771.jpgsave_picture_68771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68771.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68775.jpgsave_picture_68775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68775.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nachtblut - Todschick (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68779.jpgsave_picture_68779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68779.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Arion - The Light That Burns The Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68786.jpgsave_picture_68786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68786.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68787.jpgsave_picture_68787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68787.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68788.jpgsave_picture_68788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68788.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music T
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68791.jpgsave_picture_68791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68791.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ocean of Grief - Nightfall's Lament (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68807.jpgsave_picture_68807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68807.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Black Devils, Ile Kallio & Janne Louhivuori - Hooked (2025) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68808.jpgsave_picture_68808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68808.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Prisoners Unite - Aegis and valor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68817.jpgsave_picture_68817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68817.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Manic Street Preachers - Critical Thinking (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68820.jpgsave_picture_68820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68820.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aska - Knight Strike (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68823.jpgsave_picture_68823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68823.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68825.jpgsave_picture_68825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68825.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Defender - Dying to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68826.jpgsave_picture_68826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68826.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Lewis Express featuring Chip Wickham - Doo-Ha! (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68827.jpgsave_picture_68827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68827.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dawn Brothers - Cry Alone (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68828.jpgsave_picture_68828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68828.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sons Of Samsara - Sons of Samsara (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68829.jpgsave_picture_68829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68829.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mimoucremeux - Dreamer in a screamer world (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68830.jpgsave_picture_68830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68830.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Nightwish - Oceanborn (1998) Released, 2015, Spinefarm Records [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpgsave_picture_68838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68838.jpg" />
 </div>
 
 

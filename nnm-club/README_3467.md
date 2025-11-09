@@ -6,7 +6,7 @@ Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpgsave_picture_110503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B086380EDAD5DB7CE51B6440059BD8040081707D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110504.jpgsave_picture_110504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110504.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:90A33432654287C0CA617C2C3EBFCEA05F4DB150
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110505.jpgsave_picture_110505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110505.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110506.jpgsave_picture_110506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110506.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Ethernal Motion Downtempo: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpgsave_picture_110507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpgsave_picture_110508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:91B6926EC5790B09824132C49961F8E2CAF6CB28
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110509.jpgsave_picture_110509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110509.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Uplifting Only Top 15: April 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110510.jpgsave_picture_110510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110510.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Alborosie - Dub Pirate (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Reggae. New A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110511.jpgsave_picture_110511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110511.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:8F5472A55AE3D729B39201382833F2EC61E22710
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110512.jpgsave_picture_110512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110512.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Matney & Stevie Salas - The Red Neck & The Red Man (2024) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110513.jpgsave_picture_110513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110513.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Amerikan Kaos - Armageddon Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110514.jpgsave_picture_110514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110514.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psyched
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110515.jpgsave_picture_110515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110515.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:406C9F1B48184558C0433CBDB1D1A59845F09968
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110516.jpgsave_picture_110516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110516.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Lynyrd Skynyrd - Fyfty (2023) 4xCD, Compilation, Super Deluxe [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110517.jpgsave_picture_110517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110517.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A5171772EB7AADBC7874D22BFC970720FECC4910
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110518.jpgsave_picture_110518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110518.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:F19AC5847095D12C60904F647F0A8BECD8A14E4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110519.jpgsave_picture_110519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110519.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:070735885BB00321CE64DDEB4D9DAD3585B37629
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110520.jpgsave_picture_110520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110520.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:5912DC27D2C5B68046B99966231155B091DC79B7
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110521.jpgsave_picture_110521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110521.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:FD7D900175B65792C2AF898B11AA176FA37BCBAF
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110522.jpgsave_picture_110522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110522.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110523.jpgsave_picture_110523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110523.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:C31531544B38207368A7AE0A4E00CD327DB19186
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110524.jpgsave_picture_110524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110524.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:35D9BBB5BC88C7AE1A46989104B317B558D1D86B
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110525.jpgsave_picture_110525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110525.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:34A8E3E643D9DEFDCC7269D3C419F76878AD1BF5
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110526.jpgsave_picture_110526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110526.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110527.jpgsave_picture_110527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110527.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:0468220E3C85EFC2BB933CEB3E8BD44E235E7796
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110528.jpgsave_picture_110528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110528.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53549.jpgsave_picture_53549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53549.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Weather Underground - прогноз погоды 6.17.0 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53710.jpgsave_picture_53710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53710.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53722.jpgsave_picture_53722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53722.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windfinder Pro: Wind & Weather 3.30.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53730.jpgsave_picture_53730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53730.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53731.jpgsave_picture_53731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53731.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8C16495FCB4A06D1CF0A3717BC0D2A8DBD58E6F8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53734.jpgsave_picture_53734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53734.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Clime: Прогноз погоды и Радар / Clime: NOAA Weather Radar Liv
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53741.jpgsave_picture_53741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53741.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Weatherzone: Weather Forecasts 7.3.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53742.jpgsave_picture_53742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53742.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A224711D742D189B6B4BFCEAE3318628986CD40B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53745.jpgsave_picture_53745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53745.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windfinder Pro: Wind & Weather 3.33.1 ROOT-Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53749.jpgsave_picture_53749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53749.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WhatWeather - Метеостанция 1.18.6-pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53761.jpgsave_picture_53761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53761.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:C5D44580A0E60C5A6CAB05963D3108AB3A3A5A36
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53768.jpgsave_picture_53768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53768.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53826.jpgsave_picture_53826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53826.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:C8A60B95D1D4E0BE4C739D211E28C3EC613F8FA1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53833.jpgsave_picture_53833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53833.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SnapEdit - AI photo editor v6.4.4 Mod by Oflarm, 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53837.jpgsave_picture_53837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53837.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53848.jpgsave_picture_53848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53848.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Square Home Launcher 3.0.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53854.jpgsave_picture_53854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53854.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ YouTube ReVanced Extended 17.34.36 (RVP v2.160.10) Mod by Number one' + microG G
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53881.jpgsave_picture_53881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53881.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:B9322A1D04543FF8F4F3A9A21912DEEEB57C00C2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53961.jpgsave_picture_53961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53961.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54159.jpgsave_picture_54159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54159.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54399.jpgsave_picture_54399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54399.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54458.jpgsave_picture_54458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54458.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54549.jpgsave_picture_54549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54549.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54658.jpgsave_picture_54658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54658.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54661.jpgsave_picture_54661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54661.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ YouTube ReVanced Extended 19.16.39 (RVP v2.225.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54752.jpgsave_picture_54752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54752.jpg" />
 </div>
 
 

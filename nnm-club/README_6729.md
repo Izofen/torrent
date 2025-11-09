@@ -6,7 +6,7 @@ IObit Smart Defrag Pro 8.5.0.299 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231412.jpgsave_picture_231412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231412.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Antioch - Antioch VI: Molten Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231413.jpgsave_picture_231413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231413.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Crimson Fire - Another Dimension (2021) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231415.jpgsave_picture_231415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231415.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F84F64F5DC2742A0F8B259A919D58EFF8626C91B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231416.jpgsave_picture_231416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231416.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231417.jpgsave_picture_231417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231417.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Topaz Video AI 3.2.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231419.jpgsave_picture_231419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231419.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Thunder Horse - After The Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231420.jpgsave_picture_231420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231420.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Spiritual Void - Wayfare (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231421.jpgsave_picture_231421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231421.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Topaz Video AI 3.2.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231423.jpgsave_picture_231423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231423.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Cyberduck 8.6.0 Build 39818 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231425.jpgsave_picture_231425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231425.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ RAR Extractor Max-Unzip File 11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231426.jpgsave_picture_231426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231426.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Parity Boot - Fast Forward (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231427.jpgsave_picture_231427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231427.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Der Dobermann - Don't Be Afraid, You Already Dead (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231428.jpgsave_picture_231428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231428.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Feuerschwanz - Fegefeuer (2023) 3 x CD, Deluxe Album [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231429.jpgsave_picture_231429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231429.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:8835E383C57C3FAC45B5EAB3235BA6DCC94588B5
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231432.jpgsave_picture_231432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231432.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:9A1FBBF8FE57E05F913601A6A97C70794A72B9C6
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231433.jpgsave_picture_231433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231433.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Somnuri - Desiderium (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231434.jpgsave_picture_231434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231434.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Green Inferno - Trace the Veins (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231435.jpgsave_picture_231435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231435.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PDF Expert 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231436.jpgsave_picture_231436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231436.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Black Lemon Top 100 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231437.jpgsave_picture_231437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231437.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Zenon Records: 20 Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231439.jpgsave_picture_231439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231439.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ DP Animation Maker 3.5.18 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231440.jpgsave_picture_231440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231440.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ NIUBI Partition Editor 9.6.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231441.jpgsave_picture_231441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231441.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Crimson Fire - Fireborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231442.jpgsave_picture_231442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231442.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0E42E84399A1A2BEDA6CD71A2240C67D8312641B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231444.jpgsave_picture_231444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231444.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ PTE AV Studio Pro 11.0.6 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231446.jpgsave_picture_231446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231446.jpg" />
 </div>
 
 

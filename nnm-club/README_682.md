@@ -6,7 +6,7 @@ War Thunder: Hornet's Sting (2013) [Ru/Multi] (2.45.1.96) License (обновл�
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18055.jpgsave_picture_18055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C87E19543D834B0AF453D7DE59FCC955A31AF77
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18056.jpgsave_picture_18056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nightwish - 50 альбомов (1996-2016) Дискография [MP3|320 кб
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18057.jpgsave_picture_18057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2733881E08A193FF1B9FB70CBB7A254C8A726F20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18058.jpgsave_picture_18058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B6A79042BD933516DC8669B7274B88382A4CA44C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18059.jpgsave_picture_18059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18059.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1670F231CBBF1B9F49588286BFC82E348DA66718
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18060.jpgsave_picture_18060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18060.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:691976142C4751BAEFA6AA3E966F8BAEC9363246
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18061.jpgsave_picture_18061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18061.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18062.jpgsave_picture_18062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18062.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:05630046B617EE35948050B9CFEF41DB2AECFD8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18063.jpgsave_picture_18063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18063.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18064.jpgsave_picture_18064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18064.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9426D6680D12AB7A00C59E846DA35DB6BE1CD49D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18065.jpgsave_picture_18065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18065.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:327702A53639B7AD02DB756354A41E7EFEF1D3B8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18066.jpgsave_picture_18066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18066.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ UniTweaker 1.3 Portable By Komoliddin [Ru] (Авторская раздача)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18067.jpgsave_picture_18067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18067.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 11 Pro 24H2 (v.26100.2605) with AtlasOS Игровая сборка  [Ru
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18068.jpgsave_picture_18068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18068.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2BDC43B03EBB0A0255337F96AA4045F107D6B238
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18069.jpgsave_picture_18069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18069.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.3/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpgsave_picture_18070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D63A6DBA21FF78D5D8FB1009E356C2404C304F39
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18071.jpgsave_picture_18071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18071.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18072.jpgsave_picture_18072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18072.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18073.jpgsave_picture_18073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18073.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eurythmics - The Greatest Hits (1991) CD, Compilation, Club Edition [FLAC|Lossle
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18074.jpgsave_picture_18074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18074.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9913C8AC8E6F7AC6614978E396F8E508F66F6A22
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18075.jpgsave_picture_18075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18075.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8CE68B07E82268454BC914072F08FAEDD07A94F6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18076.jpgsave_picture_18076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18076.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:585E5C8C5F31458C12B1AF746CEFE5C3C4248FD0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18077.jpgsave_picture_18077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18077.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18078.jpgsave_picture_18078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18078.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:BEDF0893EEE18D5D81FF262D183CA1C758DBFDE9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18079.jpgsave_picture_18079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18079.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+559/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpgsave_picture_18080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpg" />
 </div>
 
 

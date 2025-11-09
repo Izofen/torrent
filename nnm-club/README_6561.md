@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209602.jpgsave_picture_209602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209602.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ReviverSoft Driver Reviver 5.42.2.10 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpgsave_picture_209604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft PowerToys 0.71.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209605.jpgsave_picture_209605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209605.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ByClick Downloader Premium 2.3.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209608.jpgsave_picture_209608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209608.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4631460AD526370B2C54B745AFAF7BCEAAE91B44
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209609.jpgsave_picture_209609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209609.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ZEDGE 8.10.4 Mod by Mixroot, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209611.jpgsave_picture_209611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209611.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 10 Manager 3.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209613.jpgsave_picture_209613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209613.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C21AA7650D032A6778B2DC641A48C0B9915105DB
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209615.jpgsave_picture_209615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209615.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows 11 Manager 1.2.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209617.jpgsave_picture_209617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209617.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:655066CC60C79772734E1ABD05A930F827715AB7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209620.jpgsave_picture_209620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209620.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Music News vol.278 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209621.jpgsave_picture_209621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209621.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:90105F625E4FB2D33560EC7301BD357222938404
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209623.jpgsave_picture_209623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209623.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:0F772C6EE898B8F036B72A886301EFB107F5F54D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209624.jpgsave_picture_209624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209624.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Macrorit Partition Expert 7.9.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209627.jpgsave_picture_209627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209627.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:86BFB4F44E7867C3011528F081B2FF862911F33E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209631.jpgsave_picture_209631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209631.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Perfectly Clear WorkBench 4.5.0.2541 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209634.jpgsave_picture_209634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209634.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Duolingo: изучай языки 5.111.3 Mod by Balatan, MRomario  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209635.jpgsave_picture_209635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209635.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:20C2D52FDD6CFDFF7459A75DD773725341AEAFB5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209637.jpgsave_picture_209637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209637.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Windows 11 Manager 1.2.8 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209639.jpgsave_picture_209639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209639.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ EarthView 7.7.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209642.jpgsave_picture_209642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209642.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ O&O DiskImage Professional 18.4 Build 305 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209644.jpgsave_picture_209644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209644.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Adobe InCopy 2023 18.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209648.jpgsave_picture_209648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209648.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ R-Studio Technician 9.2 Build 191161 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209649.jpgsave_picture_209649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209649.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3E7475B545DD9C05C9FCAADF2363F996410A9BFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209653.jpgsave_picture_209653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209653.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AOA: Always on Display 5.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209654.jpgsave_picture_209654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209654.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PC HelpSoft Driver Updater 6.4.984 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209657.jpgsave_picture_209657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209657.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176080.jpgsave_picture_176080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176080.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A4D4C7EB38F8C64504C5B96C5C8AE1623A43B1B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176081.jpgsave_picture_176081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176081.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VideoTag 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176082.jpgsave_picture_176082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176082.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Multitouch 1.20.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176083.jpgsave_picture_176083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176083.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C63D0D370E9A325E554174486B01909E695F87E2
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176084.jpgsave_picture_176084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176084.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DAFF10EFF5FD4B3EEC72C3DA3276164A6FDF6DD3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176086.jpgsave_picture_176086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176086.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Luca Turilli - King Of The Nordic Twilight / The Forest Of Elves (1999) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176088.jpgsave_picture_176088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176088.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D8069A2E86B2F8B2A275EC5745C99B042855FBF7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176089.jpgsave_picture_176089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176089.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:21A071558F632967428B50F8DFF09808FC5BD79F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176091.jpgsave_picture_176091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176091.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176092.jpgsave_picture_176092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176092.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:583DEBEB7FE6BA57284055E00CCF1CFA6D0D0B87
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176094.jpgsave_picture_176094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176094.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7D31676F037C4EB0D6A8A300B17A884B516B15A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176095.jpgsave_picture_176095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176095.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:D4183742C2C76BEE8697B8868E8AF69054F52CEE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176096.jpgsave_picture_176096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176096.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Bill Jennings & Jack McDuff - Legends Of Acid Jazz: Glide On (1959, 1960) 1999, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176098.jpgsave_picture_176098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176098.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B8A9DF6A3B5C4A34A9BE30D9C93D15E37285C8A7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176099.jpgsave_picture_176099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176099.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176100.jpgsave_picture_176100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176100.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Text Editor Pro 24.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176102.jpgsave_picture_176102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176102.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176103.jpgsave_picture_176103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176103.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176104.jpgsave_picture_176104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176104.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Delight - Last Temptation (2000) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176106.jpgsave_picture_176106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176106.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:3B26EA296A66742E1766CDF1E0314546A272941F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176107.jpgsave_picture_176107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176107.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:61A9AC00145DAD3F253F446E7743993B74EF9E17
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176108.jpgsave_picture_176108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176108.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:6AF0E7552B87A85F39ACC298374B7C695BB670B2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176110.jpgsave_picture_176110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176110.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:5CFA0A85798D0430DA484409B1914C45670FB523
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176111.jpgsave_picture_176111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176111.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:AF7486C0FE69FFC3BB847917C465F206E9C87A6D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176112.jpgsave_picture_176112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176112.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176114.jpgsave_picture_176114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176114.jpg" />
 </div>
 
 

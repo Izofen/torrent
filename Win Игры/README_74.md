@@ -6,7 +6,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21558.jpgsave_picture_21558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21560.jpgsave_picture_21560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FATE: Reawakened (2025) [Multi] (1.0.0-94fe67e9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21572.jpgsave_picture_21572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21572.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpgsave_picture_21573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21573.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Rogue Loops (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21574.jpgsave_picture_21574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21574.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Wigmund (2022) [En] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21578.jpgsave_picture_21578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21578.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Field of Glory II (2): Medieval (2021) [Multi] (1.05.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21580.jpgsave_picture_21580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21580.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21581.jpgsave_picture_21581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21581.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.1.3/dlc) Repack FitGirl [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21585.jpgsave_picture_21585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21585.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21586.jpgsave_picture_21586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21586.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21594.jpgsave_picture_21594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21594.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21595.jpgsave_picture_21595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21606.jpgsave_picture_21606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21606.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.9) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21612.jpgsave_picture_21612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21612.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Astrea: Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21614.jpgsave_picture_21614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21614.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21615.jpgsave_picture_21615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21615.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21616.jpgsave_picture_21616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21616.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21623.jpgsave_picture_21623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21623.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21624.jpgsave_picture_21624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21624.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21650.jpgsave_picture_21650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21650.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21653.jpgsave_picture_21653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21653.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21661.jpgsave_picture_21661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21661.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21662.jpgsave_picture_21662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21662.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21681.jpgsave_picture_21681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21714.jpgsave_picture_21714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21714.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21717.jpgsave_picture_21717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21717.jpg" />
 </div>
 
 

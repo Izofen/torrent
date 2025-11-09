@@ -6,7 +6,7 @@ PrivaZer 4.0.79 Donors Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171390.jpgsave_picture_171390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:287D3E137D3D41C4F5936344458D6B8E821F3B9D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171391.jpgsave_picture_171391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Privacy Eraser Free 6.0.0 Build 4760 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171392.jpgsave_picture_171392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171392.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171393.jpgsave_picture_171393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171393.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4672853CD1DC30E925FD67DFDAE00112DB1485FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171394.jpgsave_picture_171394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171394.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PeaZip 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171395.jpgsave_picture_171395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171395.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4F24D56A70DD7219CCBED43835E5A7A66EFD7556
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171396.jpgsave_picture_171396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171396.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:EBC3006C11B5E608DD062DA85E831BDBA73542FF
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171397.jpgsave_picture_171397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171397.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sellout - Любовь и панк-рок, а не… (2023) [MP3|320 Kbps] <Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171398.jpgsave_picture_171398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171398.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171399.jpgsave_picture_171399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171399.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9758D3ADD3B2AC8F0AD1F7CF30BC7BFEAEFF172A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171400.jpgsave_picture_171400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171400.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ P.H.A.T.T. - P.H.A.T.T. (2011) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171401.jpgsave_picture_171401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171401.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Derdian - New Era Part IV: Resurgence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171402.jpgsave_picture_171402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171402.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:0FEE2980F6D579210D0B14094877D75B48F81A78
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171403.jpgsave_picture_171403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171403.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ MacX Video Converter Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171404.jpgsave_picture_171404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171404.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:FA39C69DF466132B666CDF7C7CF4C53FC26C20B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171405.jpgsave_picture_171405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171405.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:7CD3ECF7E094B2457DDC7C803EC064406B5F7ACB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171406.jpgsave_picture_171406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171406.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171407.jpgsave_picture_171407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171407.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Mojo Men - There Goes My Mind (2003) Remaster, 2023, 	Sundazed Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171408.jpgsave_picture_171408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171408.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ iStatistica 6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171409.jpgsave_picture_171409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171409.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:8A8E4385ACDC63651AAEFB6EAC1909E31FD37334
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171410.jpgsave_picture_171410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171410.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:F34B8507FA4C8BF6635B805A23FEF23D53ABD2D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171411.jpgsave_picture_171411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171411.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:71A4D2CE523169C95470143716BC1B66CB84EB30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171412.jpgsave_picture_171412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171412.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ iStatistica Pro 5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171413.jpgsave_picture_171413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171413.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DE48A2D518C40F86791A51FAFBFB78742ED26AC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171414.jpgsave_picture_171414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171414.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:DC9AE19011EF6F805FBDA7B03E9C060ADA809518
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171415.jpgsave_picture_171415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171415.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Paul McCartney - The 7" Singles (2023) 2CD, Unofficial Release [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192654.jpgsave_picture_192654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192654.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ UFO - Hollywood '76 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192681.jpgsave_picture_192681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192681.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ UFO - Live In Vienna 1998 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192686.jpgsave_picture_192686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192686.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:471DCF8A0126153BCDBE285FC26A36754ADAE926
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192695.jpgsave_picture_192695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192695.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Various Artists - English Hard Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192697.jpgsave_picture_192697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192697.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192707.jpgsave_picture_192707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192707.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192709.jpgsave_picture_192709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192709.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cursed to Occult - Diary of a Broken Man (2023) [MP3|320 Kbps] <Sludge Metal, Cr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192712.jpgsave_picture_192712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192712.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192715.jpgsave_picture_192715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192715.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192717.jpgsave_picture_192717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192717.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192724.jpgsave_picture_192724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192724.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Far Beyond - The Moment Of Creation (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192727.jpgsave_picture_192727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192727.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bitter Breath - Oh How Carefully We Collapse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192731.jpgsave_picture_192731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192731.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jag Panzer - Thane to the Throne (2000) [FLAC|Lossless|image + .cue] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192735.jpgsave_picture_192735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192735.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Firewind - Still Raging (2023) 2CD 20th Anniversary Show [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192738.jpgsave_picture_192738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192738.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5FE237B56597009CC9328B1A83A6501051F3B931
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpgsave_picture_192740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mr. Myst - 7 Deadly Sins (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192747.jpgsave_picture_192747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192747.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Humulus - Flowers of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192755.jpgsave_picture_192755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192755.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192757.jpgsave_picture_192757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192757.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Eclipse - Megalomanium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192758.jpgsave_picture_192758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192758.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Far Beyond - A Frozen Flame of Ice (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192761.jpgsave_picture_192761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192761.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Vydro - V[Y]Idro (2023) [FLAC|Lossless|WEB-DL|tracks] <rapcore, nu metalcore, al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192763.jpgsave_picture_192763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192763.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Black Magic Six - Black Cloud Descending (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192765.jpgsave_picture_192765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192765.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Raven Banner - Rise Up Clan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192766.jpgsave_picture_192766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192766.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Whiskey Dilemma - The Angels Crave a Devil's Heart (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192769.jpgsave_picture_192769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192769.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192772.jpgsave_picture_192772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192772.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Спринт (05.10.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103807.jpgsave_picture_103807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103807.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103808.jpgsave_picture_103808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103808.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:40F8F97155C58C9A0A81B45931D7CDE554F8402F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103809.jpgsave_picture_103809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103809.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blue Moon Marquee - New Orleans Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103810.jpgsave_picture_103810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103810.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Doctor Velvet - New Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103811.jpgsave_picture_103811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103811.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Daniel Morais - Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103812.jpgsave_picture_103812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103812.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Carta Oro - Make a Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103813.jpgsave_picture_103813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103813.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103814.jpgsave_picture_103814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103814.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Anov Blues One - Self Titled 2019 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103815.jpgsave_picture_103815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103815.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:F086EC3858AE0737A41160CE55AFC458BB23D73C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103816.jpgsave_picture_103816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103816.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Andy Peake - Pocket Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103817.jpgsave_picture_103817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103817.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103818.jpgsave_picture_103818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103818.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BBA5F3A6430CFA6C671A9AB074A6921160CB5C47
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103819.jpgsave_picture_103819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103819.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103820.jpgsave_picture_103820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103820.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103821.jpgsave_picture_103821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103821.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2411D943077448F13CD40107078D764F883A4F1F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103822.jpgsave_picture_103822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103822.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Twisted Sister - Stay Hungry (40th Anniversary Edition)(2CD) (2024) [FLAC 24/96|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103823.jpgsave_picture_103823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103823.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:EDAF133704889C47BCF41C6FCAAB0FB96FD0901E
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103824.jpgsave_picture_103824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103824.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Tablacus Explorer 24.10.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103825.jpgsave_picture_103825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103825.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E0AB61E377C848BE1B9EA96493631BEBBC123339
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103826.jpgsave_picture_103826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103826.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103827.jpgsave_picture_103827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103827.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Mastodon - Crack the Skye (2009) 15th Anniversary Deluxe Edition, 2024, Reprise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103828.jpgsave_picture_103828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103828.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:26DC2D71511E865B64ABD78CDF4453976CEE3752
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103829.jpgsave_picture_103829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103829.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Canned Heat - Dog House Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103830.jpgsave_picture_103830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103830.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F9C230B58ED3181DF4CE8B8B3CF70E7CB66442D3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103831.jpgsave_picture_103831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103831.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Togu Audio Line - TAL-G-Verb 1.2.6 VST, VST 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103832.jpgsave_picture_103832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103832.jpg" />
 </div>
 
 

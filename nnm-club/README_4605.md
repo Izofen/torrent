@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144145.jpgsave_picture_144145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1755EBA0C0A5EADF7C5964078D69A9D6ADB4191E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144146.jpgsave_picture_144146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144146.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Mozilla Firefox 43.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144147.jpgsave_picture_144147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144147.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Berlitz | Финский язык. Курс изучения языка по м�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144148.jpgsave_picture_144148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144148.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:A88847960943C099A61F074B1D74419B6B1BCD65
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144149.jpgsave_picture_144149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144149.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:61315DFE876CFB96E33596BD11FB8F0BA6854DA6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144150.jpgsave_picture_144150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144150.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Wise Registry Cleaner Pro 10.3.3.692 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144151.jpgsave_picture_144151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144151.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:7C85739E3A2BF566512BB4A936F8D2BBE3D49417
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144152.jpgsave_picture_144152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144152.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:C3DD0D681D8680D10354173F09FEBC1196990CD3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144154.jpgsave_picture_144154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144154.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Apeaksoft DVD Creator for Mac 1.0.56 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144155.jpgsave_picture_144155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144155.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:CE16FA884E425E2942E50BA1321D80E26A0BA6BB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144156.jpgsave_picture_144156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144156.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D6480CDE858FB762D529FA08B8CAD1951D0D44ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144158.jpgsave_picture_144158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144158.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:B18F02FE66005749DC36A58434ABDB2AE2A3B96F
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144159.jpgsave_picture_144159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144159.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144160.jpgsave_picture_144160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144160.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ GoodbyeDPI.0.1.7. Launcher-4.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144161.jpgsave_picture_144161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144161.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:F702EA54D37F6B8295B0918BE06EF6AB73959EEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144162.jpgsave_picture_144162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144162.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:4D3D5C9931365A0C33CAD2733E08D71D02E5A8DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144163.jpgsave_picture_144163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144163.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144165.jpgsave_picture_144165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144165.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:95CECF57103E92C9281C23D3677DF802D269B020
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144166.jpgsave_picture_144166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144166.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:5F9C074953455E99B8DEE1FA08D3BDEA0D5F0177
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144167.jpgsave_picture_144167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144167.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Starry Night Pro Plus 8 v8.1.1.2078 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144168.jpgsave_picture_144168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144168.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C184FB69ACA6400B6DBFBF8D2868C11196B21078
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144169.jpgsave_picture_144169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144169.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F880CEF2680CC8DD187281D4A5E0F770553AF847
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144171.jpgsave_picture_144171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144171.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:9A5131262FC0064F076C04F7E0354C2190B12F82
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144173.jpgsave_picture_144173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144173.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ HandBrake 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144174.jpgsave_picture_144174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144174.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Interitus - Návrat (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144175.jpgsave_picture_144175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144175.jpg" />
 </div>
 
 

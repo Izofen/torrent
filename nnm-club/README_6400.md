@@ -6,7 +6,7 @@ Kareshi Kanojo no Jijou / His and Her Circumstances / С его стороны -
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203062.jpgsave_picture_203062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203062.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:78BC80FFBA9AE6D0B651F238E1A5D7374A63A30C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203063.jpgsave_picture_203063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203063.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Devo - Live In New York 1980 (2023) [MP3|320kbps] <Post Punk, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203064.jpgsave_picture_203064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203064.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:69DA4AC9AD1C7191FED8972C2EAAAC1119BC0465
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203065.jpgsave_picture_203065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203065.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ DirPrintOK 6.89 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203066.jpgsave_picture_203066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203066.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:17FACA36EAB795E328FD8BC4C036CD6C2436D44C
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203067.jpgsave_picture_203067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203067.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ RapidWeaver 9 v.9.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203068.jpgsave_picture_203068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203068.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A8E1B1D26A902C551CC9E3B516FC75E6CCE041E0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203069.jpgsave_picture_203069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203069.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9841EF998036190D8287D92C90B7A70977CCD959
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203070.jpgsave_picture_203070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203070.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ DRMare Audio Music Converter for Mac 2.8.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203071.jpgsave_picture_203071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203071.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:821F9C3EF71D508F7C1A116E478EC76DC6AE929E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203072.jpgsave_picture_203072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203072.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Duplicate File Finder Pro 7 v.7.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203073.jpgsave_picture_203073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203073.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC 24/44.1|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203074.jpgsave_picture_203074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203074.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:ADA9A4E6AAD8B9F2EC9DDC13CFB20AAB6BFF8491
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203075.jpgsave_picture_203075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203075.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2186830E79BAD6734885A11AE660719FA22D3638
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203076.jpgsave_picture_203076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203076.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Deserta - Don’t Dare Stop (2023) [Mp3|320kbps] <hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203077.jpgsave_picture_203077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203077.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F0094A295E65EB6968F12B4521CB39DA8EAA01DA
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203079.jpgsave_picture_203079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203079.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:DCF43F182AE154540C84EC40356C8CE5B1FAC316
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203080.jpgsave_picture_203080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203080.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ DxO ViewPoint 4 for Mac v.4.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203081.jpgsave_picture_203081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203081.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:5F58778980BE17A318D664701370CD7A11809AE7
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203082.jpgsave_picture_203082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203082.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203083.jpgsave_picture_203083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203083.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203084.jpgsave_picture_203084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203084.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:2CD6AE2BDA53691663811EE48BC7F9B3B513C501
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203085.jpgsave_picture_203085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203085.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sun Dweller - High Ride (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Grunge, Blues
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203086.jpgsave_picture_203086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203086.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:665CA676CBD3AA9BB3D4AA4430A6EC2E84B95D22
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203087.jpgsave_picture_203087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203087.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:3565471A207C36F9B6B42B75419A2C00CCA397E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203088.jpgsave_picture_203088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203088.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146723.jpgsave_picture_146723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146723.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146907.jpgsave_picture_146907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146907.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146961.jpgsave_picture_146961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146961.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147010.jpgsave_picture_147010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147010.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147016.jpgsave_picture_147016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147016.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147031.jpgsave_picture_147031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147031.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - HarDD NRG OverDoZZe 3 (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147083.jpgsave_picture_147083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147083.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147196.jpgsave_picture_147196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Музыка для машины Vol.40 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147255.jpgsave_picture_147255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147255.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147285.jpgsave_picture_147285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147285.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - не Громкие новинки недели 49 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147308.jpgsave_picture_147308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147308.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147384.jpgsave_picture_147384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147384.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147408.jpgsave_picture_147408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147408.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147447.jpgsave_picture_147447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147447.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - The Piano Lounge - Piano Bar Music for Romantic Dinner for Two (2015) [MP3|
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147464.jpgsave_picture_147464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147464.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147660.jpgsave_picture_147660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147660.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147715.jpgsave_picture_147715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147715.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0CEBA971AB7E34DE82317882B6CB2FCE4126D384
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147799.jpgsave_picture_147799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147799.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147864.jpgsave_picture_147864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147864.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147910.jpgsave_picture_147910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147910.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Дискотека "Белые розы" В Обработке DJ (2010) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147929.jpgsave_picture_147929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147929.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147936.jpgsave_picture_147936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147936.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147990.jpgsave_picture_147990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147990.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148015.jpgsave_picture_148015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148015.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148167.jpgsave_picture_148167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148167.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Acoustic Covers of Love Songs (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148206.jpgsave_picture_148206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148206.jpg" />
 </div>
 
 

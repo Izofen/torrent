@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162108.jpgsave_picture_162108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162108.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera GX 72.0.3815.454 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162109.jpgsave_picture_162109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162109.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3D5006EE74E6D175B9559FFE676CA6D6354EA52D
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162110.jpgsave_picture_162110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162110.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CD15AEFBD21C24248A3F714FF42244BD2097F280
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162111.jpgsave_picture_162111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162111.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Bark - Written in Stone (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162112.jpgsave_picture_162112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162112.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E47583F69AB30869C296582E47F3B3A1B02E2899
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162113.jpgsave_picture_162113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162113.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162114.jpgsave_picture_162114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162114.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Till Lindemann - Zunge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162115.jpgsave_picture_162115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162115.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:E828FC06A31BAD5C4A92EA70F0A0B2036A781E45
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162116.jpgsave_picture_162116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162116.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ BusyCal 2022.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162117.jpgsave_picture_162117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162117.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162118.jpgsave_picture_162118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162118.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:D28A6435BF99A84FB17E4A9BF16FDDF232D33033
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162119.jpgsave_picture_162119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162119.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Veritates - Killing Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162120.jpgsave_picture_162120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162120.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:DA59C1A91BBB0E6415A302AE82B69EE1476ACA90
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162121.jpgsave_picture_162121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162121.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Disco Is Alive 3 (2021) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162122.jpgsave_picture_162122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162122.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:0024BB831EE61BA558D0FF5B72F4D5354ECBEC82
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162123.jpgsave_picture_162123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162123.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Amadine 1.4.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162124.jpgsave_picture_162124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162124.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Days - Countdown for Menu Bar 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162125.jpgsave_picture_162125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162125.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9DB079A9BFD68868909F0EDBAAEFAB2458C00831
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162126.jpgsave_picture_162126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162126.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162127.jpgsave_picture_162127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162127.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162128.jpgsave_picture_162128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162128.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Philipp Fankhauser - Heebie Jeebies - The Early Songs of Johnny Copeland (2022) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162129.jpgsave_picture_162129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162129.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ PDFsam Basic 4.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162130.jpgsave_picture_162130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162130.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Entity Pro 1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162131.jpgsave_picture_162131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162131.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B5644CD6CD8CBFDAD4623E30CDC4BB033158EA33
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162132.jpgsave_picture_162132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162132.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:1741D90F294DC40D9E3409B13211906A49AEC93C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162133.jpgsave_picture_162133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162133.jpg" />
 </div>
 
 

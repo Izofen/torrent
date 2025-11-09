@@ -6,7 +6,7 @@ Ivanhoe - Healed By The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109359.jpgsave_picture_109359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109359.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Little Feat - Sam's Place (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109360.jpgsave_picture_109360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109360.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F20A475461ACBE0165C56C011390D5D5DB07A5AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109361.jpgsave_picture_109361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109361.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Scott Hamilton & Jesper Thilo - Scott Hamilton Meets Jesper Thilo (2011) Stunt R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109362.jpgsave_picture_109362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109362.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Joachim Caffonnette Extended - Bittersweet Times (2021) Hypnote Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109363.jpgsave_picture_109363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109363.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Cardiac Arrest - The Stench of Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109364.jpgsave_picture_109364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109364.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Franck Agulhon, Vincent Bidal - NoLaDiK (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109365.jpgsave_picture_109365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109365.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Universe III - Universe III (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109366.jpgsave_picture_109366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109366.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ben Gailer - Monolith (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109367.jpgsave_picture_109367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109367.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Barney Kessel Trio - Jellybeans (1981) 1996, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109368.jpgsave_picture_109368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109368.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Collective Soul - Here To Eternity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109369.jpgsave_picture_109369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109369.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cutz of Ama - Reverie Cinematica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109370.jpgsave_picture_109370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109370.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ El Moono - The Waking Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109371.jpgsave_picture_109371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109371.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bat - Under The Crooked Claw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109372.jpgsave_picture_109372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109372.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Cardiac Arrest - A Parallel Dimension of Despair (2018) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109373.jpgsave_picture_109373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109373.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Cardiac Arrest - The Day That Death Prevailed (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109374.jpgsave_picture_109374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109374.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:3114D8A7F8F93C52421C7EBC23482A884C8591BA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109375.jpgsave_picture_109375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109375.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pain - I Am (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109376.jpgsave_picture_109376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109376.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Jeff Kollman - 2023 A.D. (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Guit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109377.jpgsave_picture_109377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109377.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:70BDFB07078EF9B172456763EC3A52758AA73D7F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109378.jpgsave_picture_109378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109378.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Deep-House Heaven, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109379.jpgsave_picture_109379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109379.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Soul Browser 1.4.17 Mod by ateuffel [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109380.jpgsave_picture_109380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109380.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cage The Elephant - Neon Pill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109381.jpgsave_picture_109381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109381.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ PhotoDirector v19.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109382.jpgsave_picture_109382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109382.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:64F0F6E6D7A03324B9B09BBBC8BD1766A802BB4E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109383.jpgsave_picture_109383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109383.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:F95717A749D078DEBFEAA2CC2FEF885C216A3F48
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109384.jpgsave_picture_109384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109384.jpg" />
 </div>
 
 

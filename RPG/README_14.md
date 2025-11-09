@@ -6,7 +6,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22298.jpgsave_picture_22298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22298.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Master Key (2024) [Ru/Multi] (1.7.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22317.jpgsave_picture_22317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22317.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22320.jpgsave_picture_22320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22320.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22345.jpgsave_picture_22345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22345.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22443.jpgsave_picture_22443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22443.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpgsave_picture_22632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22632.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpgsave_picture_22633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22633.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Avowed (2025) [Ru/Multi] (1.3.1.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22712.jpgsave_picture_22712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22712.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpgsave_picture_22734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpgsave_picture_22749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.3d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22826.jpgsave_picture_22826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22826.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Miryam The Polluted Land (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpgsave_picture_22889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22996.jpgsave_picture_22996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22996.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.75033/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23002.jpgsave_picture_23002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23002.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23026.jpgsave_picture_23026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23026.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23077.jpgsave_picture_23077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23077.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23094.jpgsave_picture_23094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23094.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23111.jpgsave_picture_23111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23111.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Matchless Kungfu (2023) [Ru/Multi] (1.1.5.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23139.jpgsave_picture_23139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23139.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23160.jpgsave_picture_23160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23160.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23167.jpgsave_picture_23167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23167.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+556/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23168.jpgsave_picture_23168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23168.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23223.jpgsave_picture_23223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23223.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23228.jpgsave_picture_23228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23228.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23275.jpgsave_picture_23275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23275.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.12/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23372.jpgsave_picture_23372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23372.jpg" />
 </div>
 
 

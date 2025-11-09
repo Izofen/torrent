@@ -6,7 +6,7 @@ Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99343.jpgsave_picture_99343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99343.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Best Of 2012 vol. 1 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99348.jpgsave_picture_99348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99348.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:7D5940FF58BB811BF30A044A3DF2FDC32D700D05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99350.jpgsave_picture_99350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99350.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99352.jpgsave_picture_99352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99352.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99353.jpgsave_picture_99353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99353.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99354.jpgsave_picture_99354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99354.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99355.jpgsave_picture_99355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99355.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Powe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99356.jpgsave_picture_99356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99356.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99357.jpgsave_picture_99357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99357.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99359.jpgsave_picture_99359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99359.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vulture - Oblivious To Ruin (2012) [MP3|~240 кб/с]<Stoner, Sludge, Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99362.jpgsave_picture_99362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99362.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2108B47F67D905CCC550D7F03DCD1E8686AAB5F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99364.jpgsave_picture_99364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99364.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C51AA3828AD950F3DA05A7AF570E7F08846498A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99368.jpgsave_picture_99368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99368.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Хиты на радио клубнячек и попса vol.5 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99369.jpgsave_picture_99369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99369.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Spade - On The Fast Lane (2011) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99373.jpgsave_picture_99373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99373.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:001C374020C899DD10C41868D74ACC17EC883081
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99374.jpgsave_picture_99374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99374.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:D5C54D8CC1B554610313D5B4263D353792362ED5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99380.jpgsave_picture_99380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99380.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99385.jpgsave_picture_99385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99385.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Tritonal - Piercing The Quiet (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99386.jpgsave_picture_99386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99386.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Eleftheria Arvanitaki - Mirame (2009) [MP3|320 кб/с]<Pop, Ethnic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99388.jpgsave_picture_99388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99388.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:1C6D08F49E12D51893D01F0766529E8A8B19B704
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99392.jpgsave_picture_99392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99392.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99394.jpgsave_picture_99394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99394.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99396.jpgsave_picture_99396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99396.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99400.jpgsave_picture_99400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99400.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99401.jpgsave_picture_99401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99401.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Curtis Stigers - Let's Go Out Tonight (2012) [MP3|~245 кб/с (V0)]<Vocal Jazz,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99404.jpgsave_picture_99404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99404.jpg" />
 </div>
 
 

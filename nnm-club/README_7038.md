@@ -6,7 +6,7 @@ QOwnNotes 23.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241182.jpgsave_picture_241182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241182.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BSFOE - The Siege on Phobos and Deimos (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241183.jpgsave_picture_241183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241183.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Red Nichols - Wail Of The Winds (1939 - 1940) 1998, Hep Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241184.jpgsave_picture_241184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241184.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Burning Leather - New World Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241186.jpgsave_picture_241186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241186.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Serial 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241187.jpgsave_picture_241187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241187.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:8B4D3309F8E5A0B4BDCAC6EA1A74F0C79C9A8D8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241188.jpgsave_picture_241188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241188.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241189.jpgsave_picture_241189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241189.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crop Any Video 2.0.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241190.jpgsave_picture_241190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241190.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:EDCED8A4108B775EAEE0415A5BA538534D05AA5C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241191.jpgsave_picture_241191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241191.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Transfer 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241192.jpgsave_picture_241192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241192.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Perfectly Clear WorkBench 4.4.0.2482 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241193.jpgsave_picture_241193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241193.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:44A8DA03389F7FD4D9673DA8A10141EB2AA1C551
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241194.jpgsave_picture_241194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241194.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Armin Marmolejo - Boarding Pass (1994) 1997, Igmod [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241195.jpgsave_picture_241195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241195.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A0EC390F8316540E230B9392153A7A009A8AD486
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241196.jpgsave_picture_241196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241196.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Elysion - Bring Out Your Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241198.jpgsave_picture_241198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241198.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2937153CEC6A33E98C40C71CBFB82C40BE8ECA7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241199.jpgsave_picture_241199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241199.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Jazz: i grandi classici (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241200.jpgsave_picture_241200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241200.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Dreams In Stereo - Chapter 2- Foreign Man (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241201.jpgsave_picture_241201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241201.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Corpses Conductor - Corpse's Conductor (1997) 2022 Reissue, Huangquan Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241202.jpgsave_picture_241202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241202.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Yoink 3.6.82 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241203.jpgsave_picture_241203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241203.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Red Norvo - Wigwammin' (1938) 1996, Hep Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241204.jpgsave_picture_241204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241204.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Firefox Browser 112.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241206.jpgsave_picture_241206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241206.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241207.jpgsave_picture_241207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241207.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241208.jpgsave_picture_241208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241208.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Contrarian - Sage of Shekhinah (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241209.jpgsave_picture_241209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241209.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Uncertain Chillout Nights (2016) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241210.jpgsave_picture_241210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241210.jpg" />
 </div>
 
 

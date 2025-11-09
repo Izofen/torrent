@@ -6,7 +6,7 @@ VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumen
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55720.jpgsave_picture_55720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55720.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - РАДИО БАТЯ - 007 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55743.jpgsave_picture_55743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55743.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Music News vol.378 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56029.jpgsave_picture_56029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56029.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Electronic compilation part 78 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56030.jpgsave_picture_56030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56030.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - A State of Trance 2024 (DJ Mix) [Mixed by Armin Van Buuren] (2024) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56032.jpgsave_picture_56032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56032.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - РАДИО БАТЯ - 006 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56080.jpgsave_picture_56080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56080.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - РАДИО БАТЯ - 005 (2024) [MP3|320 Kbps] <Поп, Рок, Шансо
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56083.jpgsave_picture_56083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56083.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Smooth Relaxing Jazz (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56141.jpgsave_picture_56141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56141.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.05.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56188.jpgsave_picture_56188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56188.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Music News vol.377 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56234.jpgsave_picture_56234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56234.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56551.jpgsave_picture_56551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56551.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Electronic compilation part 77 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56563.jpgsave_picture_56563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56563.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - РАДИО БАТЯ - 004 (2024) [MP3|320 Kbps] <Different genres>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56584.jpgsave_picture_56584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56584.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Workout Motivation (2018-2024) Mixed by Sergey Sychev [MP3|320 Kbps] <Club,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56642.jpgsave_picture_56642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56642.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Music News vol.375 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56654.jpgsave_picture_56654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56654.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Merab Amzoevi - This is Merab Amzoevi (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56789.jpgsave_picture_56789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56789.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - РАДИО БАТЯ - 002 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56969.jpgsave_picture_56969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56969.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - РАДИО БАТЯ - 003 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56976.jpgsave_picture_56976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56976.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - РАДИО БАТЯ - 001 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57001.jpgsave_picture_57001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57001.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Music News vol.373 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57187.jpgsave_picture_57187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57187.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Electronic compilation part 76 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57407.jpgsave_picture_57407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57407.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Music News vol.372 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57503.jpgsave_picture_57503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57503.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Cardio (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57614.jpgsave_picture_57614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57614.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Music News vol.371 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57808.jpgsave_picture_57808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57808.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 08 (2023) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57811.jpgsave_picture_57811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57811.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 09 (2023) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57829.jpgsave_picture_57829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57829.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Majestica - A Christmas Carol (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163130.jpgsave_picture_163130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163130.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FD2B7BA59D5E94FCE611FC068516F04BF953647D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163132.jpgsave_picture_163132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163132.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cancer Bats - You'll Never Break Us (2020) Separation Sessions, Vol. 1 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpgsave_picture_163138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CC959A362C56C01F4F3D2E1B381D05C452BA254D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163150.jpgsave_picture_163150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163150.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163175.jpgsave_picture_163175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163175.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163178.jpgsave_picture_163178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163178.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:38DE3A9AFE2A6815CF8581418A6DE3AB256FEFEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163209.jpgsave_picture_163209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163209.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:F92C9D7E9DC0F3279DD98EE5502AB3FB14CEA438
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163210.jpgsave_picture_163210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163210.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Iced Earth - Iced Earth (1990) 30th Anniversary Edition, 2020 [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163211.jpgsave_picture_163211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163211.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ George Lynch and Jeff Pilson - Heavy Hitters (2020) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163220.jpgsave_picture_163220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163220.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Big J - Above (2020) [MP3|320 Kbps] <Atmospheric Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163244.jpgsave_picture_163244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163244.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Seether - Disclaimer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpgsave_picture_163245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Savatage / Trans-Siberian Orchestra - 30 albums, 2 Box-sets, 71CD (1983-2016) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163248.jpgsave_picture_163248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163248.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kansas - Another Fork in the Road: 50 Years of Kansas (2022) 3xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163250.jpgsave_picture_163250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163250.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Return To Void - Infinite Silence (2020) [MP3|320 Kbps] <Heavy-Metal, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163275.jpgsave_picture_163275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163275.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shattered Hope - Vespers (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163279.jpgsave_picture_163279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163279.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SaviorSkin - Omnipotence of the Absolute (2020) [FLAC|Lossless|tracks + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163286.jpgsave_picture_163286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163286.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Def Leppard - High ’n’ Dry (1981) Japanese Edition, Reissue, Remastered, 202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163287.jpgsave_picture_163287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163287.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Theragon - Where the Stories Begin (2020) [MP3|320 Kbps] <Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163290.jpgsave_picture_163290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163290.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ If Not for Me - Eulogy (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpgsave_picture_163332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Sonic Death - 4 Albums (2020-2022) [MP3|320 Kbps] <Garage Rock, Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163337.jpgsave_picture_163337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163337.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6691D1251B3F7D409BB4F73A264BE5D2E97A4FD4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163353.jpgsave_picture_163353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163353.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Def Leppard - On Through the Night (1980) Japanese Edition, Reissue, Remastered,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163357.jpgsave_picture_163357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163357.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ C.I.T.A. - Heat Of Emotion (1996) Japan [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163364.jpgsave_picture_163364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163364.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ ManDoki Soulmates - Magyar kepek (2022) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163367.jpgsave_picture_163367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163367.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpgsave_picture_163377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpg" />
 </div>
 
 

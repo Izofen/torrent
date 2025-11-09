@@ -6,7 +6,7 @@ UctoX 2 v2.8.15 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129519.jpgsave_picture_129519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129519.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2BE6F53048A47499B68CBA9A927A6CD1B9F67FA4
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129520.jpgsave_picture_129520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129520.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3AA4631A5493D35F6BC13B46C7F3CF415F18BCB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129521.jpgsave_picture_129521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129521.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129522.jpgsave_picture_129522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129522.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ MacCleaner 2 PRO 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129524.jpgsave_picture_129524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129524.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:561A853780D80574B69D22F3C0E91693CD94AB9E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129526.jpgsave_picture_129526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129526.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:336C793A7FFC80C192578D7012E109B75FB5F2F8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129528.jpgsave_picture_129528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129528.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:01EFE88139FB550400A1BA3BFAF758014E07C24E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129530.jpgsave_picture_129530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129530.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Bonde Do Role - With Lasers (2007) [FLAC|Lossless|image + .cue] <Breakbeat, Hip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129532.jpgsave_picture_129532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129532.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Zillo Vol. 4 (2012) [MP3|320 кб/с]<Electro, EBM, Industrial, Gothic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129533.jpgsave_picture_129533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129533.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Bootstrap Studio 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129534.jpgsave_picture_129534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129534.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpgsave_picture_129536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ AnyMP4 DVD Creator for Mac 6.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129538.jpgsave_picture_129538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129538.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129541.jpgsave_picture_129541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129541.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditio
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129543.jpgsave_picture_129543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129543.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5D6B0E18EB63B5EA1A64D931D6EE17AD45B547F2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129545.jpgsave_picture_129545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129545.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129546.jpgsave_picture_129546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129546.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129547.jpgsave_picture_129547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129547.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:6E4D9CA35DD4CD9FFD9E83C9BD627000F9B6E585
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129548.jpgsave_picture_129548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129548.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Disk Space Analyzer Pro 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129549.jpgsave_picture_129549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129549.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Duplicate File Finder Pro 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129551.jpgsave_picture_129551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129551.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129552.jpgsave_picture_129552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129552.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ashes Of Ares - Emperors And Fools (2022) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpgsave_picture_129554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129556.jpgsave_picture_129556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129556.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:6A37AD469CB98E0BDBAB0719215E449874A234B8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129557.jpgsave_picture_129557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129557.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129558.jpgsave_picture_129558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129558.jpg" />
 </div>
 
 

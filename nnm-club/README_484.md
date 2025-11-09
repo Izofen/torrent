@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12842.jpgsave_picture_12842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Geneious Pro 4.8.5 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12843.jpgsave_picture_12843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F2151786F125E89507C59F5CA3639836E6E92E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12844.jpgsave_picture_12844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Compilation Part 171 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12845.jpgsave_picture_12845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12845.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9F0F1FF6B84652984A424BEB29AAFD31522D1CEA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12846.jpgsave_picture_12846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12846.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:ACC2722977A170E69A615AC66F0770AB04AAC3D6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12847.jpgsave_picture_12847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12847.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Genius Art: Image AI Generator v1.3.8 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12848.jpgsave_picture_12848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12848.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BBE2E84D4774979A7CDE2A5B70A3DF50A4EA4DDC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12849.jpgsave_picture_12849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12849.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AAD4B96A830679FB02328F7CF2A06835AEAF5A05
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12850.jpgsave_picture_12850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12850.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:275EB3EB6110E70F0722E99BADB931F85A3F1579
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12851.jpgsave_picture_12851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12851.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5CDFC522AC92368774F7610E86A6C431E6A927F6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12852.jpgsave_picture_12852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12852.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:ADEC10D1067587426A6156FFA7A99B94999889C6
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12853.jpgsave_picture_12853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12853.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B45758163FB1C4E6F3BC6ED205A1C88B468AC0A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12854.jpgsave_picture_12854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12854.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:23040EC9A975761CE47094872AE76E00E835F0F4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12855.jpgsave_picture_12855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12855.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:01A6A3BA782585FF44D85ED4AD225FDA0FCB8479
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12856.jpgsave_picture_12856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12856.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3A94171BA9499DF3E8E47EE2C4B4A7F28F6D0162
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12857.jpgsave_picture_12857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12857.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5D399380B2EFCDE344338AF2DE4CE0E5976BB867
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12858.jpgsave_picture_12858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12858.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3270B0EE059FFC0D80122C0ACDF8BCC5BE465176
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12859.jpgsave_picture_12859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12859.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:5ADA581AEB29F59503E568715C2820C8FD704000
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12860.jpgsave_picture_12860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12860.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:CE9FC35E9F1C2F539E27BC9230DC9E268667DD48
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12861.jpgsave_picture_12861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12861.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:52300C3FBE796227BC213993776BD4EB44AE1C61
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12862.jpgsave_picture_12862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12862.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Dishonored (2012) [Ru/Multi] (334700) Repack EXROW [RHCP Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12863.jpgsave_picture_12863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12863.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D392D0E76AD10CE15FE7E14F92C50AB8BCF709F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12864.jpgsave_picture_12864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12864.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:94D7068418193DD9ACC4E9C720321A28CE3C107A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12865.jpgsave_picture_12865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12865.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:1623551A4E57A41AED48BC83A51959755C14AB90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12866.jpgsave_picture_12866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12866.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12867.jpgsave_picture_12867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12867.jpg" />
 </div>
 
 

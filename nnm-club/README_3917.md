@@ -6,7 +6,7 @@ SnippetsLab 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122322.jpgsave_picture_122322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122322.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122323.jpgsave_picture_122323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122323.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BatchOutput PDF 3.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122324.jpgsave_picture_122324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122324.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ EazyDraw 11.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122325.jpgsave_picture_122325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122325.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpgsave_picture_122326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Boinx FotoMagico Pro 6 v.6.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122327.jpgsave_picture_122327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122327.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MarkMyWords 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122328.jpgsave_picture_122328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122328.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpgsave_picture_122329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpgsave_picture_122330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122331.jpgsave_picture_122331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122331.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ GM CHM Reader Pro for Mac 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122332.jpgsave_picture_122332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122332.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122333.jpgsave_picture_122333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122333.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Lilith’s Black Lotus - Triple Six Revolution (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpgsave_picture_122334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:2A865901FD2DCB1355D649266316D7FDF49BA016
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122335.jpgsave_picture_122335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122335.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpgsave_picture_122336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpgsave_picture_122337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122338.jpgsave_picture_122338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122338.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:583B17F0D3A121D470484583DCA22C28EF7EB266
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122339.jpgsave_picture_122339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122339.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PaintCode 3 v.3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122340.jpgsave_picture_122340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122340.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpgsave_picture_122341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122342.jpgsave_picture_122342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122343.jpgsave_picture_122343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122343.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122344.jpgsave_picture_122344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122344.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122345.jpgsave_picture_122345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122345.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122346.jpgsave_picture_122346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122346.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpgsave_picture_122347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpg" />
 </div>
 
 

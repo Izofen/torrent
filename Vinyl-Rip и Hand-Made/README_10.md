@@ -6,7 +6,7 @@ Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpgsave_picture_40998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41198.jpgsave_picture_41198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41198.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Judas Priest - Дискография (26 releases) (1974-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41235.jpgsave_picture_41235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41235.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7F55956A2292477FEDF48CE1C6B37BF4ACB58AF7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpgsave_picture_41834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpgsave_picture_41886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpgsave_picture_42076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42190.jpgsave_picture_42190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42190.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42304.jpgsave_picture_42304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42304.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpgsave_picture_42500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42513.jpgsave_picture_42513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42513.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Metal Church - Studio Albums (14+1 releases) (1985-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpgsave_picture_42559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpgsave_picture_42600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42838.jpgsave_picture_42838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42838.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Nightwish - Studio Albums (11 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpgsave_picture_42908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E2B454931F661457F8BBD54FDDD5D26682C69FCA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43175.jpgsave_picture_43175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43175.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpgsave_picture_43251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Flotsam And Jetsam - Studio Albums (15 releases) (1986-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43263.jpgsave_picture_43263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43263.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dark Tranquillity - Studio Albums (14 releases) (1993-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpgsave_picture_43309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Threshold - Studio Albums (22 releases) (1993-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43838.jpgsave_picture_43838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43838.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Edge of Sanity - Studio Albums (12 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43972.jpgsave_picture_43972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43972.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:AEA51837582D69D011DD82B2499482A76BE7DFDF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44400.jpgsave_picture_44400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44400.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpgsave_picture_44407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpgsave_picture_44419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:77AB372A6A44E0C752A935ADD592B244EA89D09B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44760.jpgsave_picture_44760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44760.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:2F4CB191865CD41FE093FB36623E3283DB3DBA64
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45039.jpgsave_picture_45039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45039.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45242.jpgsave_picture_45242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45242.jpg" />
 </div>
 
 

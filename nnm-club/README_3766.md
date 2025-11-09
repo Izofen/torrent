@@ -6,7 +6,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118296.jpgsave_picture_118296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118296.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:921E5BFE35C29D1ED2DAAA4277FEF54D03499386
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118297.jpgsave_picture_118297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118297.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118298.jpgsave_picture_118298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118298.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118299.jpgsave_picture_118299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118299.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:744D701B24B2FBD9FD798A220DFCB419855210D9
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118300.jpgsave_picture_118300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118300.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118301.jpgsave_picture_118301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118301.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Fatboy Slim - Fatboy Slim Loves Carnival (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118302.jpgsave_picture_118302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118302.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:CE084AB6C4F6A4523B47DADF378D9E2E14837B5B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118303.jpgsave_picture_118303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118303.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Elle & The Pocket Belles - Compilation (2024) [MP3|320 Kbps] <Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118304.jpgsave_picture_118304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118304.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:FFB195FC0D2925847145AC00AD599ED729A51508
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118305.jpgsave_picture_118305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118305.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B7F327652C1032796EE67E62CA76BAA23B31CF24
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118306.jpgsave_picture_118306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118306.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118307.jpgsave_picture_118307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118307.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118308.jpgsave_picture_118308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118308.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:8D625AC58EB4D09872CC9B0E59C3FBC60855DA15
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118309.jpgsave_picture_118309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118309.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118310.jpgsave_picture_118310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118310.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118311.jpgsave_picture_118311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118311.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118312.jpgsave_picture_118312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118312.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118313.jpgsave_picture_118313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118313.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpgsave_picture_118314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118315.jpgsave_picture_118315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118315.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ FreeCommander XE 2024 (public x32 build 901 & donor x64 build 903) +portable [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118316.jpgsave_picture_118316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118316.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:D2D32371DA0C5835A084B63C9B91DD54EB3636AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118317.jpgsave_picture_118317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118317.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9B05D2AD6057C1BD5F511B8D8361F8B8A51CC527
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118318.jpgsave_picture_118318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118318.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Freemake Video Converter 4.1.13.167 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118319.jpgsave_picture_118319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118319.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Infected Mushroom - Re:born (2024) [MP3|320 Kbps] <Psy-Trance, Electro-House>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118320.jpgsave_picture_118320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118320.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:F9C6FF8D8335C28F1E9DD05AAB8C5DA9F847DC9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118321.jpgsave_picture_118321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118321.jpg" />
 </div>
 
 

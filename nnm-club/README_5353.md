@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166032.jpgsave_picture_166032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166032.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2DBAAEC350D4DD877A0175A786981F2E88335F52
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166033.jpgsave_picture_166033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166033.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166034.jpgsave_picture_166034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166034.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kerygmatic Project - Dreams World (2022) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166035.jpgsave_picture_166035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166035.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0F68730DF4600B46337D364EDF356700DEF8AF65
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166036.jpgsave_picture_166036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166036.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ G-Force / Миссия Дарвина (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166037.jpgsave_picture_166037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166037.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Razorlight - Razorwhat? The Best Of Razorlight (2022) [FLAC 2.0|48/24|tracks|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166038.jpgsave_picture_166038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166038.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4DEA8A8962E085F695BEE062F70D766A3ECEBAFB
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166039.jpgsave_picture_166039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166039.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:8F0D42695951FE687778CA591E5EFC1DD395F182
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166040.jpgsave_picture_166040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166040.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Mozilla Thunderbird 78.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166041.jpgsave_picture_166041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166041.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:17FA31AF89E1DA96ADD607994D91B2D941D1CD86
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166042.jpgsave_picture_166042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166042.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:DFB653313343D4D74B1CF92EF1E44A068EB98500
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166043.jpgsave_picture_166043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166043.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:AE712448A2CD1779DBF31AF44526154F0AE40A78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166044.jpgsave_picture_166044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166044.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:201524F1398A945C501DBEEF87D4719DE11A2E5E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166045.jpgsave_picture_166045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166045.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:BC1B3EA8E8734424BF2DF667FF65FBE3D85EFC7C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166046.jpgsave_picture_166046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166046.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:537670DF98DD345C932905FFCE1DC0EE112DF8A3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166047.jpgsave_picture_166047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166047.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166048.jpgsave_picture_166048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166048.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166049.jpgsave_picture_166049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166049.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Miranda Lambert - Palomino (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166050.jpgsave_picture_166050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166050.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ RogueKiller Anti-Malware 14.8.1 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166051.jpgsave_picture_166051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166051.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Psycho-Pass 3 | Психопаспорт [ТВ-3][2019, TV, 8 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166052.jpgsave_picture_166052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166052.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:CA1EE05CB9C1E0E790521767B7887C8F33FDE7F5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166053.jpgsave_picture_166053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166053.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Skaльпель - ВОВРЕМЯ (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166054.jpgsave_picture_166054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166054.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Aimp v4.02.1368 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166055.jpgsave_picture_166055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166055.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Phantom cross - Платиновый (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166057.jpgsave_picture_166057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166057.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PDF24 Creator 10.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166058.jpgsave_picture_166058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166058.jpg" />
 </div>
 
 

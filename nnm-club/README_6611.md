@@ -6,7 +6,7 @@ The Modern Jazz Quartet - Four Classic Albums (1953 - 1957) 2CD, 2008, Avid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212447.jpgsave_picture_212447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212447.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nancy Wilson - Four Classic Albums Plus (1959 - 1962) 2CD, 2019, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212449.jpgsave_picture_212449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212449.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E5C52C08B6643CA0BFC77AF0654A31D051263B84
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212451.jpgsave_picture_212451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212451.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3286323A7B92367DBD7B6A63AC099DEBFD105DA5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212453.jpgsave_picture_212453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212453.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A025897EAA811A662A4FF2E6F036B8EADF65E9E2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212455.jpgsave_picture_212455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212455.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ FurMark 2.10.2.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212457.jpgsave_picture_212457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212457.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212459.jpgsave_picture_212459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212459.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:76765DB4638853443BBCDE5F6A2DCD133417198B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212461.jpgsave_picture_212461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212461.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212463.jpgsave_picture_212463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212463.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:0F7CED7C68E87B9EFCA542408F9DEAC30F437AA3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212465.jpgsave_picture_212465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212465.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:8200442A2A4A4734C429C5D72A4D95D7316092D4
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212467.jpgsave_picture_212467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212467.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7280BD34231504D8942B4290691E96ECA6C1B28A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212475.jpgsave_picture_212475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212475.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D0F20E736E76F6BC9D24A0962479BAEF1EB72B48
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212477.jpgsave_picture_212477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212477.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3D3D62B425F9F0809171E51028E565BCC4EEDCB8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212479.jpgsave_picture_212479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212479.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ JetBrains RustRover 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212481.jpgsave_picture_212481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212481.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ JetBrains CLion 2025.2.4 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212483.jpgsave_picture_212483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212483.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A259356711AF37B29E87EA9F65BC9197554DF947
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212485.jpgsave_picture_212485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212485.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ JetBrains DataSpell 2025.2.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212487.jpgsave_picture_212487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212487.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Jetbrains WebStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212489.jpgsave_picture_212489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212489.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:5050B97B93767FFAE02EC0CD8B009E344D52C4EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212491.jpgsave_picture_212491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212491.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:57F24406B3EEF2F50E706734FB4E23B877EC514A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212493.jpgsave_picture_212493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212493.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FD92B4CDB2119FB732E6A2A40815501349980E77
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212495.jpgsave_picture_212495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212495.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ TechSmith SnagIt 2025.4.0 Build 8498 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212497.jpgsave_picture_212497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212497.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212499.jpgsave_picture_212499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212499.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:EB2504EAF4A74CC9DD6F1ECE060D36EFD4E1A49E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212501.jpgsave_picture_212501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212501.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:3665DE95E4083348B099101F05E8625626A85D36
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212503.jpgsave_picture_212503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212503.jpg" />
 </div>
 
 

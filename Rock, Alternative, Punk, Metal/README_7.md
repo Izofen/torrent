@@ -6,7 +6,7 @@ Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9661.jpgsave_picture_9661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9748.jpgsave_picture_9748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9748.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9947.jpgsave_picture_9947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9947.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pretty Maids - Original Album Classics (2015) Japanese Edition, Box Set, 5XCD, C
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10058.jpgsave_picture_10058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10058.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10095.jpgsave_picture_10095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10095.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10262.jpgsave_picture_10262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10262.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:0147282421E68EA2BBA9FE38700FB949B975C940
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10406.jpgsave_picture_10406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10406.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10520.jpgsave_picture_10520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10520.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10562.jpgsave_picture_10562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10562.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10771.jpgsave_picture_10771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10771.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11093.jpgsave_picture_11093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11093.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11276.jpgsave_picture_11276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11276.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11280.jpgsave_picture_11280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11280.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11286.jpgsave_picture_11286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11286.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11299.jpgsave_picture_11299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11299.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11310.jpgsave_picture_11310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11310.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11311.jpgsave_picture_11311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11311.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Yngwie Malmsteen - Tokyo Live (2025) 2 x CD [MP3|320 Kbps] <Neoclassical Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11488.jpgsave_picture_11488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11488.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11497.jpgsave_picture_11497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11497.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11502.jpgsave_picture_11502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11502.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11512.jpgsave_picture_11512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11512.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Black Sabbath - The End (4 February 2017 - Birmingham) (2017) Box Set, 3XCD, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11520.jpgsave_picture_11520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11520.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11590.jpgsave_picture_11590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11590.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11605.jpgsave_picture_11605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11605.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Queen - Anthems (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Gl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11774.jpgsave_picture_11774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11774.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11818.jpgsave_picture_11818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11818.jpg" />
 </div>
 
 

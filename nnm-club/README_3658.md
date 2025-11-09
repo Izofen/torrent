@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115483.jpgsave_picture_115483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115484.jpgsave_picture_115484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115484.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Tablacus Explorer 24.2.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115485.jpgsave_picture_115485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115485.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3FC5E02F9B1FBE2EDBFF6F1A6A4A4E797FBF9711
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115486.jpgsave_picture_115486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115486.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115487.jpgsave_picture_115487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115487.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:35C7A3CAF4DCCFFFD081725454B197EA1A9D2EB2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115488.jpgsave_picture_115488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115488.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AEE47564D3A52FD7ADE0A36B0D44852ADC15BA80
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115489.jpgsave_picture_115489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115489.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A7C54D17390262957E8C13AEAC3E13BC7E102C92
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115490.jpgsave_picture_115490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115490.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FM-84 - Maverick (Atlas B-sides) (2020) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115491.jpgsave_picture_115491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115491.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4475FFECFB6851451D13D5CE41D5AA837264955E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115492.jpgsave_picture_115492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115492.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:28307B90A83699CF59CD29E830E53921BAEB1099
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115493.jpgsave_picture_115493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115493.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:5EFA4FDC4369C6CEA21A552158702E521351977E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115494.jpgsave_picture_115494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115494.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:700844FACFE8C7502DF7B7FD7F9756B5259E66E2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115495.jpgsave_picture_115495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115495.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:50B5FD7A44D54EBD74DF00DF984D4461F4927B8F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115496.jpgsave_picture_115496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115496.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:301C6EF1ED35F8E8183D9AA8F53480D682DF7303
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115497.jpgsave_picture_115497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115497.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:99E6E290071132B6475A29C3875031785B14C9FC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115498.jpgsave_picture_115498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115498.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115499.jpgsave_picture_115499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115499.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FM-84 - Los Angeles EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115500.jpgsave_picture_115500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115500.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:E20B14F7CDBF32DB18A6D059E8E25C637C34BF49
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115501.jpgsave_picture_115501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115501.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Motorhead - The Lost Tapes - The Collection (Vol. 1-5) (2024) 5CD, (Live) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpgsave_picture_115502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115503.jpgsave_picture_115503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115503.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ K-Lite Codec Pack Update 18.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115504.jpgsave_picture_115504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115504.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:345DC81B2C6CF218BFA9C6BF28023AC6D26A44D9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115505.jpgsave_picture_115505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115505.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115506.jpgsave_picture_115506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115506.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpgsave_picture_115507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:0A5928A18402E482DBF14FAF8379F41CF783D244
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115508.jpgsave_picture_115508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115508.jpg" />
 </div>
 
 

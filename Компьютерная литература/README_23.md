@@ -6,7 +6,7 @@ Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178710.jpgsave_picture_178710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178710.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mark Simon | Getting Started with SQL and Databases (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178722.jpgsave_picture_178722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpgsave_picture_178822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178822.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179145.jpgsave_picture_179145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0530CB3FB5FE683DF8495E59E4FA3780746E0A94
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpgsave_picture_179299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179299.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C51CEDF5B4E011D74C6D371B1EC59ED51410376B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179634.jpgsave_picture_179634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179634.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E225BF1A9FD807E9A20B46E04AB0D8B9497C16FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179773.jpgsave_picture_179773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179773.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpgsave_picture_179885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179885.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179915.jpgsave_picture_179915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179915.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180271.jpgsave_picture_180271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180271.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180620.jpgsave_picture_180620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180620.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180657.jpgsave_picture_180657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180657.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:CA8413DDC0DA0037E9EFA9EAA0F16ABB98D24DB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180707.jpgsave_picture_180707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180707.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:897017D0342150CEB3A631E7E985BF3C31CB1817
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181786.jpgsave_picture_181786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181786.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181802.jpgsave_picture_181802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181802.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181813.jpgsave_picture_181813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181813.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181820.jpgsave_picture_181820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181820.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Matt Frisbie | Professional JavaScript for Web Developers, 5th Edition (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182038.jpgsave_picture_182038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182038.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:0AACE089FDD267F1FF20A89BFA532AA04EEBF27D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182410.jpgsave_picture_182410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182410.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1B5E80DDB39AC1C7BE60486F9526101D4092A113
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182662.jpgsave_picture_182662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182662.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:7D3BB7A516D78008EFD0CFD99F3A7BC4F2FD225D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182695.jpgsave_picture_182695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182695.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182703.jpgsave_picture_182703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182703.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Tiago Rodrigues Antao | Fast Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182992.jpgsave_picture_182992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182992.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:A84736047DC6C66430FF88455B780D531B210BD3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183656.jpgsave_picture_183656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183656.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FDC3E0BB2DAE4E5C64D5E73AA507E173927414C0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183736.jpgsave_picture_183736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183736.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Christian Ullenboom | Java: The Comprehensive Guide to Java Programming for Prof
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184032.jpgsave_picture_184032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184032.jpg" />
 </div>
 
 

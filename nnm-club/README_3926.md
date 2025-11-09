@@ -6,7 +6,7 @@ EarthView 7.8.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122558.jpgsave_picture_122558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C5D44DBAC946D17596CDDA74ACB5CFF0ED8DEF2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122559.jpgsave_picture_122559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122559.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122560.jpgsave_picture_122560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122560.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:16FE845F4C59C6509D3355A86AB50BDFA1C297D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122561.jpgsave_picture_122561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122561.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C76DB575EBDFEB09ABF95F8868FADFBFB139AC95
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122562.jpgsave_picture_122562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122562.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8B988EBFECC15E22C4BCF233FE0F3ABBB59D51D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122563.jpgsave_picture_122563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122563.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Nuro Audio - Xvox Pro 1.0.3 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122564.jpgsave_picture_122564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122564.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8A78B354831360BCBB0CD7E76C24BA68B61696F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122565.jpgsave_picture_122565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122565.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Glarysoft Malware Hunter PRO 1.178.0.798 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122566.jpgsave_picture_122566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122566.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122567.jpgsave_picture_122567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122567.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:00CD58652F87F494BC61307C3F291C00067FA3B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122568.jpgsave_picture_122568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122568.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B932B90D29AD93708208201602CA5991F98C1209
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122569.jpgsave_picture_122569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122569.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3CBFBD474CCC08EAB5CB797DE57C1ADABDBD4A54
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122570.jpgsave_picture_122570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122570.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:EDE651B7F84F10C6F60FC13C6206134FF0E97F08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122571.jpgsave_picture_122571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122571.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Vov Sticky Notes 8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122572.jpgsave_picture_122572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122572.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Plexim Plecs 4.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122573.jpgsave_picture_122573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122573.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122574.jpgsave_picture_122574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122574.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122575.jpgsave_picture_122575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D55133DC2CF8F47FF764400BFD1FC70F87D4C042
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122576.jpgsave_picture_122576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122576.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Morgenstern - Zeitgeist (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122577.jpgsave_picture_122577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122577.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Music News vol.331 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122578.jpgsave_picture_122578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122578.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Nuro Audio - Xrider 1.0.1 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122579.jpgsave_picture_122579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122579.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:CFDE90E41261223F6D6B803030C14640AF257FDC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122580.jpgsave_picture_122580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122580.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ KingStation 0.3a [x86-64] (AppImage)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122581.jpgsave_picture_122581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122581.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:3525E1082514EB684E9DC19EC6FC0495B17A576E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122582.jpgsave_picture_122582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:6BAAEFC053084D94FF8C6BD6E3646FD5723A7326
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122583.jpgsave_picture_122583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122583.jpg" />
 </div>
 
 

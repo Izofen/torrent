@@ -6,7 +6,7 @@ AutoKrypt 13 for Mac 13.09 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117355.jpgsave_picture_117355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117355.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Folder-Factory 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117356.jpgsave_picture_117356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117356.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117357.jpgsave_picture_117357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117357.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Automize13 Enterprise for Mac 13.09 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117358.jpgsave_picture_117358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117358.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ EazyDraw 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117359.jpgsave_picture_117359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117359.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ EdgeView 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117360.jpgsave_picture_117360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117360.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117361.jpgsave_picture_117361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117361.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8A19CDEF1D52ABC0F2011465F52715C4C2C12E5B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117362.jpgsave_picture_117362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117362.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117363.jpgsave_picture_117363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117363.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117364.jpgsave_picture_117364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117364.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117365.jpgsave_picture_117365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117365.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Zataban - Naturally Seasoned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117366.jpgsave_picture_117366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117366.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ MediaMate for Mac 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117367.jpgsave_picture_117367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117367.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ doubleTake 2.6.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117368.jpgsave_picture_117368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117368.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117369.jpgsave_picture_117369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117369.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:4F4A796F750B48E023CF19F6B9FE83EB949DCDFD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117370.jpgsave_picture_117370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117370.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117371.jpgsave_picture_117371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117371.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117372.jpgsave_picture_117372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117372.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Vellum 3.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117373.jpgsave_picture_117373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117373.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D05E8B2256C3C7F9336CEBFDFE1E871D3CCA8C3A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117374.jpgsave_picture_117374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117374.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Smack Dabs - The Smack Dabs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117375.jpgsave_picture_117375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117375.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ DiskCatalogMaker 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117376.jpgsave_picture_117376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117376.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ One Dime Band - Side Hustle - One Dime Band - Side Hustle (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117377.jpgsave_picture_117377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117377.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:23B615BE1A0681E8C3E1F205812D9C4C110BC672
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117378.jpgsave_picture_117378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117378.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Patrick Mautner - Uptown Downtown (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117379.jpgsave_picture_117379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117379.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Donald Byrd - Four Classic Albums (1958 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117380.jpgsave_picture_117380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117380.jpg" />
 </div>
 
 

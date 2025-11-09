@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.51.423 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156456.jpgsave_picture_156456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156456.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Empire Records - Guitar Pro (2016) [MP3|320 Kbps] <Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156458.jpgsave_picture_156458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156458.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D1E04CD51FA10201FC2FA660BA762556BECDAAE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156459.jpgsave_picture_156459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156459.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FD8FE686D83B376EA6B41ED22103D2955632D300
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156460.jpgsave_picture_156460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156460.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Spiral Timer 1.1 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156461.jpgsave_picture_156461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156461.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ IObit Driver Booster Pro 7.2.0.580 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156462.jpgsave_picture_156462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156462.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DxO PureRAW 3.7.0 Build 28 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156463.jpgsave_picture_156463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156463.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ HTML Academy | Git и GitHub (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156464.jpgsave_picture_156464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156464.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Slimjet 12.0.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156465.jpgsave_picture_156465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156465.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Lunistice (2022) [Multi] (1.05a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156466.jpgsave_picture_156466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156466.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Tixati 2.78 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156468.jpgsave_picture_156468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156468.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Endzone - A World Apart (2020) [Ru] (1.1.8019.42692/dlc) License GOG [Save the W
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156469.jpgsave_picture_156469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156469.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:58A732298AD137A348B028F7E30AF80A2DA1D522
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156471.jpgsave_picture_156471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156471.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156472.jpgsave_picture_156472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156472.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E7DEBC73AC1C032EA197B26BBB72C1A52A371CD4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156473.jpgsave_picture_156473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156473.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:875A9C0FEC8725EC95EBDC025687F278CA01DD40
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156474.jpgsave_picture_156474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156474.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Co
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156476.jpgsave_picture_156476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156476.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156477.jpgsave_picture_156477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156477.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Voitixler, Екатерина Векслер | Практический онла
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156478.jpgsave_picture_156478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156478.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156480.jpgsave_picture_156480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156480.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156481.jpgsave_picture_156481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156481.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:67A93654E7A8040761FD84AF3502B4B5863CCB97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156482.jpgsave_picture_156482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156482.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:EBEC8026DDCD57E67781EB8C1486F12229C2D34B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156483.jpgsave_picture_156483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156483.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:0D1C527CD1C32FEF28BDB9890B3C9B6BFB552989
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156486.jpgsave_picture_156486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156486.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:4FDE293F5319CDE5F40E8A3F4D6A13067B19BE39
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156488.jpgsave_picture_156488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156488.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4B9EC6EA5899190DC20FDEEE9694C9725E23C522
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156489.jpgsave_picture_156489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156489.jpg" />
 </div>
 
 

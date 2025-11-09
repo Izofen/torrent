@@ -6,7 +6,7 @@ Plants vs. Zombies [Ru/En] (RePack/3.1) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133311.jpgsave_picture_133311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133311.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ magnet:?xt=urn:btih:D77D100B9C34627D4ACC9A5D1EE0259C288D0EC3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133312.jpgsave_picture_133312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133312.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AIMP 5.30 Build 2530 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133313.jpgsave_picture_133313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133313.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5E8DF0E238FEBA11E81AF481E261873D813C9BC6
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133314.jpgsave_picture_133314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133314.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Linux Mint 14.1 - MATE, Cinnamon [x32, x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133315.jpgsave_picture_133315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133315.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Linux Mint 14.1 - MATE, Cinnamon [x32, x64] (4xDVD)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133316.jpgsave_picture_133316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133316.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:81D4334CFBBF8641492A1C9F763D2289295A2FD4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133317.jpgsave_picture_133317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133317.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:98F56AE102299CA7C80050E6800D8DF3C821D040
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133318.jpgsave_picture_133318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133318.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ IObit Malware Fighter Pro 1.7.0.0 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133319.jpgsave_picture_133319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133319.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ LDPlayer 9.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133320.jpgsave_picture_133320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133320.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133321.jpgsave_picture_133321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133321.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133322.jpgsave_picture_133322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133322.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9F1E06F5B94635D2F90833944AAB727A62404467
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133323.jpgsave_picture_133323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133323.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:7EB9B97F2FE94715A2A9D5BEE873E2F329F557DE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133324.jpgsave_picture_133324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133324.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133325.jpgsave_picture_133325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133325.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133327.jpgsave_picture_133327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133327.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133328.jpgsave_picture_133328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133328.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Dead Island. Game of The Year Edition [Ru/En/Multi8] (Steam-Rip/1.3.0) 2012 | R.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133330.jpgsave_picture_133330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133330.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:13BAA53F9C177ABFC177DAB2ABF7C2129426B1AF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133331.jpgsave_picture_133331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133331.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Motion 5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133332.jpgsave_picture_133332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133332.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:49139F520A8FF8E20D9DBD238093A70663ADF9E5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133334.jpgsave_picture_133334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133334.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За сте
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133335.jpgsave_picture_133335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133335.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5D1158ED923486A0803D869E3A862236C19DE742
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133336.jpgsave_picture_133336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133336.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:5D1158ED923486A0803D869E3A862236C19DE742
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133337.jpgsave_picture_133337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133337.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:7DEED3707501FA328DCB9C235643A9669821F20A
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133338.jpgsave_picture_133338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133338.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ NetPolice Lite 1.9.3.45 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133339.jpgsave_picture_133339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133339.jpg" />
 </div>
 
 

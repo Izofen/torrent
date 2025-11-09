@@ -6,7 +6,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38029.jpgsave_picture_38029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38030.jpgsave_picture_38030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38030.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38031.jpgsave_picture_38031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38032.jpgsave_picture_38032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38032.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38033.jpgsave_picture_38033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38033.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38034.jpgsave_picture_38034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A759A4EBFE190BF0108AE8D0198A22C48850923F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38035.jpgsave_picture_38035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38035.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ v2rayN 7.0.7 Portable Pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38036.jpgsave_picture_38036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38036.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38037.jpgsave_picture_38037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38037.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34433.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38038.jpgsave_picture_38038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38038.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BC7FADC0C4790055B637BED84333D24006E8779E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38039.jpgsave_picture_38039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38039.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:15408554076E621B6F9380D6EFFAF20000D7CF02
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38040.jpgsave_picture_38040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38040.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38041.jpgsave_picture_38041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38041.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:0A2BCFC0C9987740BA8CAA65091916FB84B028CB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38042.jpgsave_picture_38042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38042.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38043.jpgsave_picture_38043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F19FE2E602CB3429CB436DE61EB15941A1E42732
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38044.jpgsave_picture_38044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38044.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F19FE2E602CB3429CB436DE61EB15941A1E42732
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38045.jpgsave_picture_38045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38045.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Serious Sam Classic (2002) [Ru/En] (1.07/dlc) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38046.jpgsave_picture_38046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38046.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Far Cry (2004) [Ru/En] (1.4) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38047.jpgsave_picture_38047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38047.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Clive Barker's Undying (2001) [Ru/En] (1.1hf) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38048.jpgsave_picture_38048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38048.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:294E52B75AE67825190C8BFF4055463CC19EDCB3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38049.jpgsave_picture_38049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38049.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:443D6E88736E0CB16E992D2DE8C0CD5AA5BEC4A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38050.jpgsave_picture_38050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38050.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.41/1.42d) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38051.jpgsave_picture_38051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38051.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Will Rock (2003) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38052.jpgsave_picture_38052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38052.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:DEA9370ACBCE69735590A740A44619D098DEF319
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38053.jpgsave_picture_38053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38053.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38054.jpgsave_picture_38054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38054.jpg" />
 </div>
 
 

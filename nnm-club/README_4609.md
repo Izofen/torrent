@@ -6,7 +6,7 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144267.jpgsave_picture_144267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144268.jpgsave_picture_144268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:45F29CE541895949EA525EF4302191E93D3766AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144270.jpgsave_picture_144270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144270.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:24D4DF2DBDDC2B2900D54034C40A1A3887CC478E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144271.jpgsave_picture_144271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144271.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Mozilla Thunderbird 52.5.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144272.jpgsave_picture_144272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144272.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:59FE659398EB3664FFE63BB2B1F823D2B0EDB6B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144273.jpgsave_picture_144273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144273.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144274.jpgsave_picture_144274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144274.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1B5E464AEE40425F0E61F7A202BC0D8A525C75A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144276.jpgsave_picture_144276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144276.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4A57F118FA0205B8C6ADAAFB7087D66E5D5A6135
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144277.jpgsave_picture_144277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144277.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Project Logical: Progressive House (2018) [MP3|320 Kbps] <Progressive, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144278.jpgsave_picture_144278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144278.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:8B30279ED2D8D764A78C0B09A6C3BC0A69D155D0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144279.jpgsave_picture_144279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144279.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F0B1F1A34CB61D29FE366CB10E7101CBECE6972E
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144280.jpgsave_picture_144280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144280.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:DA0F9F0C253D3973C8DC754C0B40970F1AE85064
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144281.jpgsave_picture_144281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144281.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Vermillion Watch 5: London Howling (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144282.jpgsave_picture_144282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144282.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Billie Holiday - The Essential Brunswick Recordings (1935 - 1939) 3CD, 2014, Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144283.jpgsave_picture_144283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144283.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144285.jpgsave_picture_144285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144285.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Video Enhance AI 2.6.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144286.jpgsave_picture_144286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144286.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:AE03638698080F5BF02FB8E0A5DE334A93EE0DE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144287.jpgsave_picture_144287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144287.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:16AFA181C090E1C692B60C9CB25F9F7B35E107B7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144288.jpgsave_picture_144288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144288.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1082761FA2FA2E3200A341E37E73CA37F5BB484F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144289.jpgsave_picture_144289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144289.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:5D1FC1436E546FBE63323B10404D7A8D2F494526
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144290.jpgsave_picture_144290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144290.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:826D3497C95298E42B51D91D64669B95BB21B014
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144291.jpgsave_picture_144291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144291.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144293.jpgsave_picture_144293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144293.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144294.jpgsave_picture_144294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144294.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:FDB28A1B8D4232AAC6D92AF3185DFB2B833E6CBF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144295.jpgsave_picture_144295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144295.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3FDA4E07F510B92B545DC1410E0598A6B2FDA5BF
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144296.jpgsave_picture_144296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144296.jpg" />
 </div>
 
 

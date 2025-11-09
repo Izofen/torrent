@@ -6,7 +6,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45201.jpgsave_picture_45201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45201.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45207.jpgsave_picture_45207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45207.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45211.jpgsave_picture_45211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45211.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ inZOI: Character Studio (2024) [Ru/Multi] (15485995) Repack Meadwey [Early Acces
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45217.jpgsave_picture_45217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45217.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45256.jpgsave_picture_45256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45256.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45297.jpgsave_picture_45297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45297.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45302.jpgsave_picture_45302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45302.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45322.jpgsave_picture_45322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45322.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45325.jpgsave_picture_45325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45325.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45327.jpgsave_picture_45327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45327.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45372.jpgsave_picture_45372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45372.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45386.jpgsave_picture_45386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45386.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45403.jpgsave_picture_45403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45403.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45406.jpgsave_picture_45406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45406.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chromosome Evil 2 (2024) [Ru/En] (1.77) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45423.jpgsave_picture_45423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45423.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45471.jpgsave_picture_45471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45471.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45509.jpgsave_picture_45509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45509.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45515.jpgsave_picture_45515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45515.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45525.jpgsave_picture_45525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45525.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Landlord's Super (2023) [Multi] (1.0.09) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpgsave_picture_45530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45530.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45537.jpgsave_picture_45537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45537.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45602.jpgsave_picture_45602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45602.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpgsave_picture_45609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45614.jpgsave_picture_45614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45614.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45621.jpgsave_picture_45621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45621.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpgsave_picture_45622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpg" />
 </div>
 
 

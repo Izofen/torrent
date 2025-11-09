@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70248.jpgsave_picture_70248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Cruel Intentions - No Sign of Relief (2018) [MP3|320 Kbps] <Glam Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70249.jpgsave_picture_70249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70249.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70250.jpgsave_picture_70250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70250.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70251.jpgsave_picture_70251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70251.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:8FC331E3184F006ADD5AC8CCC3C8C7A4D3E26E66
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70252.jpgsave_picture_70252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70252.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Julian Sas - Miles And Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70253.jpgsave_picture_70253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70253.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F51079D3510D42F0E3DE52178E50E8A16105ED93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70254.jpgsave_picture_70254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70254.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70255.jpgsave_picture_70255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70255.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:124DAA82B85DBC3BADB6009A43E27B1138BCD2E6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70256.jpgsave_picture_70256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70256.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:C5ABC872E7C969FF91478FEEE0ED0310C6669B7E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70257.jpgsave_picture_70257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70257.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:74881C29E5F02CD12F76C92975E2386C0DDEC1FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70258.jpgsave_picture_70258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70258.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:BFFA06946536336F78E9959697B51A17C009AA3A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70259.jpgsave_picture_70259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70259.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:D821E825290DA1021DC57AF31018FA56D79A24AD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70260.jpgsave_picture_70260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70260.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Judas Priest - Rocka Rolla (1974) Japanese Edition, 50th Anniversary, Remixed, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70261.jpgsave_picture_70261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70261.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:1FA41F471B331851E0EFFB73289332781DF00C21
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70262.jpgsave_picture_70262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70262.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:4958E9DFF3D141EBC41275174ACB42ABB4149BE4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70263.jpgsave_picture_70263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70263.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:1C3E8B17FEE1A68FD68A0B4E10D1A8DC1AFA213C
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70264.jpgsave_picture_70264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70264.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:41D44B3A86FDA554A0AA33B79E4247301032085B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70265.jpgsave_picture_70265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70265.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C8744EFE723FCC5951CC4B4890071A1C6E8838E1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70266.jpgsave_picture_70266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70266.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:184A60D5702E5622F66FAC715861B750D413AEB3
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70267.jpgsave_picture_70267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70267.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:50FA3AD8DE27EEDC7156762E6C8D1A98BA93CEEB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70268.jpgsave_picture_70268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70268.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D87322DCEC5E588B96340F694CF4AFD69354A041
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70269.jpgsave_picture_70269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70269.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Alter Ego Records - Best Of 2024 Compilation Album (2024) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70270.jpgsave_picture_70270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70270.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:FD458C4996F4C209DA80A8C40FB7CBBAC4C67752
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70271.jpgsave_picture_70271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70271.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:092FE67910FF9DC35F7783059A12A1C0A3515018
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70272.jpgsave_picture_70272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70272.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:6581CD1B9EC986ABC694DFDF09B288C05B998D7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70273.jpgsave_picture_70273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70273.jpg" />
 </div>
 
 

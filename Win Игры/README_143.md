@@ -6,7 +6,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41653.jpgsave_picture_41653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpgsave_picture_41655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41656.jpgsave_picture_41656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41656.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41715.jpgsave_picture_41715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41715.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41735.jpgsave_picture_41735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41735.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41736.jpgsave_picture_41736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41749.jpgsave_picture_41749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41749.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41751.jpgsave_picture_41751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41751.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41752.jpgsave_picture_41752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41752.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41756.jpgsave_picture_41756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41756.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41814.jpgsave_picture_41814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41814.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpgsave_picture_41831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpgsave_picture_41836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41840.jpgsave_picture_41840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41840.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41844.jpgsave_picture_41844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41844.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41846.jpgsave_picture_41846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41846.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pneumata (2024) [Multi] (1.05) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41940.jpgsave_picture_41940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41940.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41945.jpgsave_picture_41945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41945.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nigate Tale (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41949.jpgsave_picture_41949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41949.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41957.jpgsave_picture_41957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41957.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41962.jpgsave_picture_41962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41962.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41968.jpgsave_picture_41968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41968.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4432E8B46B6B6754B56C28CB7BEDCF3688990D43
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42021.jpgsave_picture_42021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42021.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42023.jpgsave_picture_42023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42023.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Chained Together (2024) [En] (1.8.6) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42029.jpgsave_picture_42029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42029.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dwarven Realms (2022) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpgsave_picture_42045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpg" />
 </div>
 
 

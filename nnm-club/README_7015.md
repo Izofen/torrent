@@ -6,7 +6,7 @@ ShredIt X 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240552.jpgsave_picture_240552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240552.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E491D6F27E78484413C76D7C865E733E1DB40AB2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240553.jpgsave_picture_240553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240553.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240554.jpgsave_picture_240554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240554.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ OU - one (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Metal, China Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240555.jpgsave_picture_240555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240555.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Centinex - Death in Pieces (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240556.jpgsave_picture_240556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240556.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:61C32683F04B4F939AD82105F399F8E82FF2C105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240557.jpgsave_picture_240557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240557.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:18DE69F53EC6BB32D88D97A05C1E432F10D86676
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240558.jpgsave_picture_240558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240558.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240559.jpgsave_picture_240559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240559.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:87AC0EBFBC77F2BE1915FE505189F1100C1D0CC7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240560.jpgsave_picture_240560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240560.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Dick Oatts - All Of Three album (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240561.jpgsave_picture_240561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240561.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:574622AD0841B7F7BC57B24B714F69656DF94A26
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240562.jpgsave_picture_240562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240562.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:76F4EEF872D0CF9147E7410AE88FA1235BA12F10
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240563.jpgsave_picture_240563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240563.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:CC17CFFD088C372A19D3F93F072EB8C9A929BB4F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240564.jpgsave_picture_240564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240564.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Dodsferd (Dødsferd) - Diseased Remnants of a Dying World (2018) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240565.jpgsave_picture_240565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240565.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:A92DE52743938C720755E5E34870E0F55A9AF4C4
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240566.jpgsave_picture_240566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240566.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Fame on Fire - LEVELS (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240567.jpgsave_picture_240567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240567.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Giant Brain - Grade A Gray Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240568.jpgsave_picture_240568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240568.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Malwarebytes AdwCleaner 8.3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240569.jpgsave_picture_240569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240569.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.26 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240570.jpgsave_picture_240570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240570.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:ED2900A15B11458D66CBF2712014A57F09BEFE4B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240571.jpgsave_picture_240571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240571.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Find Any File (FAF) 2.3 b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240572.jpgsave_picture_240572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240572.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ HWiNFO 7.47 Build 5120 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240573.jpgsave_picture_240573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240573.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Arcanum Sanctum - Ad Astra (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240574.jpgsave_picture_240574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240574.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Richard Andersson's Space Odyssey - Embrace The Galaxy (2003) [MP3|320 Kbps] <Ne
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240575.jpgsave_picture_240575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240575.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:1F5CAF9D86FB514FCAF9F643866989B700C1C18F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240576.jpgsave_picture_240576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240576.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:DDF208FD20C2C2A0096DA1AA7A88D7F5E1F1418C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240577.jpgsave_picture_240577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240577.jpg" />
 </div>
 
 

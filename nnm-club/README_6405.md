@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203198.jpgsave_picture_203198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203198.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E23FC85D273A3D132F7DB025773D3DB2145DFD2B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203199.jpgsave_picture_203199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203199.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F69EA88BE1475840ED6C5071F6838EE777806B8B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203200.jpgsave_picture_203200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203200.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kate 23.08.0 Build 2141 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203201.jpgsave_picture_203201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203201.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C09C1926F3892A1FB65FD78062F2B6C2A8DA6846
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203202.jpgsave_picture_203202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203202.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:02ACA2BEC7BB5404F036F3790E13FB10C420AB71
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203203.jpgsave_picture_203203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203203.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C27972A824427FDCC2514C1E83D6EF3A17630198
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203204.jpgsave_picture_203204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203204.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9B8C9A22E5B9AA8B835BE4F057FE09ECEAFA1A12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203205.jpgsave_picture_203205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203205.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3E3044DB8425FA1CEA18BBFB937355F71B4708FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203206.jpgsave_picture_203206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203206.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bandizip 7.31 Build 64426 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203207.jpgsave_picture_203207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203207.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:84A29196B56FC1EFBDFA520E2E17CFB620C76247
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203208.jpgsave_picture_203208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203208.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D05BE5B4AF2EDD6949FFB9938A1FBE7B634DD687
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203209.jpgsave_picture_203209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203209.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:D056F760F76C6D86D6D8348D0AFDF90F53ACB304
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203210.jpgsave_picture_203210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203210.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:83C44D491D13A4185E2C9FBB52F95DFE9AD10E19
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203211.jpgsave_picture_203211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203211.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:53F5A0728749AF52D843E84BF9998FFA9FF91CAF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203212.jpgsave_picture_203212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203212.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ RAM Saver Professional 23.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203213.jpgsave_picture_203213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203213.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:F50C2EC9FB5083A07B0D6F321DD46FCC0D859EA0
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203214.jpgsave_picture_203214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203214.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:468DDCDA4BA414D9F2CDAF27ED18985893FC43C9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203215.jpgsave_picture_203215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203215.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3B54E8B7AE91E4617D58C5A79E9E522B5E3AE309
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203216.jpgsave_picture_203216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203216.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PotPlayer 230831 (1.7.21993) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203218.jpgsave_picture_203218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203218.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1A7C75EF396E4569756E182F0786FA890A33AA13
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203219.jpgsave_picture_203219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203219.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ PotPlayer 230831 (1.7.21993) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203220.jpgsave_picture_203220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203220.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203221.jpgsave_picture_203221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203221.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D6C787907FEFC7F142A789FFA90E146C27C2F5CF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203222.jpgsave_picture_203222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203222.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:924D6B5FA598FD531523634E64C3598A88C47459
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203223.jpgsave_picture_203223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203223.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.34.31938.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203224.jpgsave_picture_203224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203224.jpg" />
 </div>
 
 

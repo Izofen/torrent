@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154186.jpgsave_picture_154186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154186.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIMP 4.12 Build 1877 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154187.jpgsave_picture_154187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154187.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - 80s Disco Forever (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154188.jpgsave_picture_154188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154188.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Лучшие хитовые треки в стиле Industral Rock & Nu Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154189.jpgsave_picture_154189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154189.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154190.jpgsave_picture_154190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154190.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ SolarFlow - Infinity (2020) [AAC|~320 Kbps] <Electronic, Lounge, Chill Out, Enig
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154191.jpgsave_picture_154191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154191.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:0D622F21959A02FC21B10DE5DCEDB01926645F29
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154192.jpgsave_picture_154192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154192.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:C88E0FB24CFCF37AC5C28BE63EF322008CF6D5BF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154193.jpgsave_picture_154193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154193.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:EA03E62F09A8EA96CF8881ED8DF398B35499EEF3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154194.jpgsave_picture_154194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154194.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A1197C6423A3C8BF12A64B9D6C349488B7292CED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154195.jpgsave_picture_154195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154195.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Foldor-Design Your Folder Icon 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154196.jpgsave_picture_154196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154196.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:5399744692CA8B8D66DD65116EB2598D2B5E9949
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154197.jpgsave_picture_154197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154197.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:BB2CBDC1B9939E5B173D7B0FD54A753DCDAF23FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154198.jpgsave_picture_154198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154198.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154199.jpgsave_picture_154199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154199.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ ePageCreator 5.9.9.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154200.jpgsave_picture_154200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154200.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154201.jpgsave_picture_154201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154201.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154202.jpgsave_picture_154202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154202.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ AppPolice 1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154203.jpgsave_picture_154203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154203.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:AFD90AE2A4B694BF9B7694AB76E2D617AC8C77F1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154204.jpgsave_picture_154204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sun Drivers - Blues Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154205.jpgsave_picture_154205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154205.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ FreeCommander XE 2021 Build 840 public x32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154206.jpgsave_picture_154206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154206.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2C7479EBDDF875A841F7B8B57A98A0B6D1F10BDE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154207.jpgsave_picture_154207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154207.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:1680EAEF08A26F31023B5EFBE69CF815CA3B93F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154208.jpgsave_picture_154208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154208.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:745AB59F3959C38A10C0FAA103B848FE64DB409F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154209.jpgsave_picture_154209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154209.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:7CCEDD2A5A34699638D003B5108C06161981BB92
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154210.jpgsave_picture_154210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154210.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154211.jpgsave_picture_154211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154211.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dominia - Timeless (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpgsave_picture_119424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mental Destruction - Road of Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpgsave_picture_119425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Minenwerfer - Feuerwalze (2023) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpgsave_picture_119426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pandora's Key - Yet I Remain (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119429.jpgsave_picture_119429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119429.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lethargy of Death - Necrology (2010) [FLAC|Lossless|image + .cue] <Funeral Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119436.jpgsave_picture_119436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119436.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119440.jpgsave_picture_119440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119440.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:28EBCBF5E5131229F44A4BBF37E81493C39ED155
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119441.jpgsave_picture_119441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119441.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:34E56D1B82524AC5A3CFEFDDEC89BDFC482C8544
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119442.jpgsave_picture_119442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpgsave_picture_119445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Batushka - Black Rituals (Liturgy in Budapest – Live 2021) (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpgsave_picture_119448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpgsave_picture_119449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Olhava - Sacrifice (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpgsave_picture_119451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nekonomicon - Choose Your Fighter! (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpgsave_picture_119453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stone Horns - Chimaira (2024) [FLAC|Lossless|tracks] <Groove Metal, Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119455.jpgsave_picture_119455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119455.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:C8A72463C9DA15CC7B1EF06212FBA5D4F922B20A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119462.jpgsave_picture_119462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119462.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Being As An Ocean - Death Can Wait (2024) [MP3|320 Kbps] <Post-Hardcore, Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119467.jpgsave_picture_119467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119467.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F21E43B0C6509F96E0BB096AC11A92F1C871DA58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119491.jpgsave_picture_119491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119491.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6EE31106F8BC2080E1B528594010386866F04D9F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119492.jpgsave_picture_119492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119492.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ David Byron - Baby Faced Killer (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119496.jpgsave_picture_119496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119496.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Striker - Ultrapower (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119603.jpgsave_picture_119603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119603.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119606.jpgsave_picture_119606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119606.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Bombarder - Sa Dna Groba (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119608.jpgsave_picture_119608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119608.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:7B8BB8E4042457F93017ECDC2F17D4ACEDB5AA9E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119630.jpgsave_picture_119630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119630.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:0252C29ECFFE71B9C204B80D5086DF140B2654B0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119635.jpgsave_picture_119635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119635.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:62565C5A54E1CE4098D885577BEDDAE84F2CEB7C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119669.jpgsave_picture_119669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119669.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:3A007F4C8D52E3CFAA780ACB9FAA6F9E382BADE9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119727.jpgsave_picture_119727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119727.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Pet Shop Boys - Relentless (1993) Reissue, Remastered, 2023, Parlophone [FLAC|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160243.jpgsave_picture_160243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160243.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7EAFD1209FF2CF1287F3970D1B3155855CC3CE7C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160244.jpgsave_picture_160244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160244.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ K-Lite Codec Pack Update 17.9.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160245.jpgsave_picture_160245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160245.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Roman Messer - For All Time (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160246.jpgsave_picture_160246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160246.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7B4CD02BDE243E3CA89647F480E00915CCBA854B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160247.jpgsave_picture_160247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160247.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Brave Browser 1.60.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160248.jpgsave_picture_160248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160248.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E2EE7937986838CEE52D62319C0B3B24EC628E02
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160249.jpgsave_picture_160249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160249.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160250.jpgsave_picture_160250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7E6DCB5884F7682F9C96BB6D25749B60B6600020
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160251.jpgsave_picture_160251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160251.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Dancing Services, Vol. 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160252.jpgsave_picture_160252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160252.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.1 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160253.jpgsave_picture_160253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160253.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:FCEB7D311CF3D601D6535B21A4445FFE7CF9B5D0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160254.jpgsave_picture_160254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160254.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:CF719DEE5F1D5FEEB8F393D09AE84F7F76E67CE5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160255.jpgsave_picture_160255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160255.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B9EFCB6701E28805FA3B6CD442A76A7B3A7C2B68
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160256.jpgsave_picture_160256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160256.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1C800CFD7057F1883342AC9BEDCDA1F8802BE41A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160257.jpgsave_picture_160257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160257.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Native Instruments Komplete Kontrol 2.9.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160258.jpgsave_picture_160258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160258.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160259.jpgsave_picture_160259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160259.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Perfectly Clear WorkBench 4.6.0.2613 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160260.jpgsave_picture_160260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160260.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:89A00C435DD2BC9C587BD30C0CF6AC2FD1A02DC7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160261.jpgsave_picture_160261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160261.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160262.jpgsave_picture_160262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160262.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160263.jpgsave_picture_160263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160263.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160264.jpgsave_picture_160264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160264.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160265.jpgsave_picture_160265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160265.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B26523FEE289A930E8E0C4A448A83829451BDF1B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160266.jpgsave_picture_160266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160266.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:6DD2EA0BC8DB42B293B10E32C3378AD5E575D97E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160267.jpgsave_picture_160267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160267.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpgsave_picture_160268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpg" />
 </div>
 
 

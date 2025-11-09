@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161036.jpgsave_picture_161036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FEC4BFE1633683143574F6DBF12174808F056041
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161037.jpgsave_picture_161037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B95C88AAB9D3D05BC2C96A9941DE5034100B5E36
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161038.jpgsave_picture_161038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161038.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:932519FA56C17606311F400A6A282B8CCE8788D9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161039.jpgsave_picture_161039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161039.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161040.jpgsave_picture_161040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161040.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BDC27AC697BC3D4D09FB24D1BE25B206AE11D91B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161041.jpgsave_picture_161041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161041.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2D7D1A86E83D00DA459AC7B677F9A5530DB52BD5
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161042.jpgsave_picture_161042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161042.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Peter Wolf - Come As You Are (1987) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161043.jpgsave_picture_161043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161043.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161044.jpgsave_picture_161044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6770B41E7FD04329F9A89C1E454791FB9CB4801C
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161045.jpgsave_picture_161045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161045.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E930ED8B2AFBED85C54BC922D7497F326FBA667C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161046.jpgsave_picture_161046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161046.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161047.jpgsave_picture_161047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161047.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Google Play промаркирует VPN, прошедшие проверку б
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161048.jpgsave_picture_161048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161048.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161049.jpgsave_picture_161049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161049.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Smultron 12 v12.5.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161050.jpgsave_picture_161050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161050.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpgsave_picture_161051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161052.jpgsave_picture_161052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161052.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:279079DCF9EC4643726BCCB9E126C9F9AF6C20E5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161053.jpgsave_picture_161053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161053.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161054.jpgsave_picture_161054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161054.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:B203C0EF5713AF8C9A6FE341953692017DAFC03B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161055.jpgsave_picture_161055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161055.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:0FFE8BC31A859DF7F29672C63EE8C505203CD86C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161056.jpgsave_picture_161056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161056.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:EBDB2D4C9BED618F490ECF66A0EC3D859BE99C22
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161057.jpgsave_picture_161057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161057.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161058.jpgsave_picture_161058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161058.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:F71AB8A95C643D57D118F563E88042FB97D08F83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161059.jpgsave_picture_161059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161059.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D77A8ABD8C4DD7D809C200A2543DA91A7FEDD91F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161060.jpgsave_picture_161060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161060.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:1E497ADA633474515A177BCD582EE18E4D8E221B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161061.jpgsave_picture_161061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161061.jpg" />
 </div>
 
 

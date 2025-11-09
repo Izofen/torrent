@@ -6,7 +6,7 @@ Jack Russell & Tracii Guns - Medusa (2024) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpgsave_picture_121260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121260.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpgsave_picture_121265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dark Oath - Ages of Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpgsave_picture_121271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpgsave_picture_121272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Abysmal Grief - Reveal Nothing (2016) Compilation [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpgsave_picture_121274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpgsave_picture_121277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpgsave_picture_121280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121282.jpgsave_picture_121282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121282.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpgsave_picture_121293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Abysmal Grief - Strange Rites of Evil (2015) [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpgsave_picture_121294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Broke on Payday - Switching Colors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121308.jpgsave_picture_121308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121308.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Royal Hunt - 31 Releases (1992-2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121365.jpgsave_picture_121365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121365.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B500AECB12875DD12A74BA830B59704843B2901F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121421.jpgsave_picture_121421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121421.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121446.jpgsave_picture_121446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121446.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Haunt - Chariot  Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121452.jpgsave_picture_121452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121452.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Pirate Hymn - Explorer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121491.jpgsave_picture_121491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121491.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Femme Fatale - Femme Fatale (1988) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121506.jpgsave_picture_121506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121506.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121519.jpgsave_picture_121519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121519.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Bayside - The Walking Wounded (2007) Gold Edition [FLAC|Lossless]<Rock / Punk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121593.jpgsave_picture_121593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121593.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Horrorgraphy - A Knight's Tale (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121664.jpgsave_picture_121664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121664.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Mosh-Pit Justice - Fighting the Poison (2019) [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121667.jpgsave_picture_121667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121667.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Abysmal Grief - Misfortune (2009) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121669.jpgsave_picture_121669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121669.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Hellwell - Beyond The Boundaries Of Sin (2012) [FLAC|Lossless|image + .cue] <Epi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121670.jpgsave_picture_121670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121670.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Bloodlost - Discover the Hell (2006) Demo [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121671.jpgsave_picture_121671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121671.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bloodlost - Diary of Death (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121672.jpgsave_picture_121672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121672.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ahumado Granujo - Splatter-Tekk (2003) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121673.jpgsave_picture_121673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121673.jpg" />
 </div>
 
 

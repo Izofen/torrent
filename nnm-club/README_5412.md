@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167603.jpgsave_picture_167603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167603.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:57649A665449FDB542B47B13ADED1649FC90BDF2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167605.jpgsave_picture_167605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F915BAD3CE31DE5BF88F3B77646FA6FB6EEA655C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167606.jpgsave_picture_167606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167606.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E91FE2024C2BB9735F315872BAA5BB71DD41E824
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167607.jpgsave_picture_167607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167607.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ OCCT 10.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167608.jpgsave_picture_167608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167608.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2E5CCE4ED5DEEB65CAEC709053C4D9C9443E4A87
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167609.jpgsave_picture_167609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167609.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Trance Party 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167610.jpgsave_picture_167610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167610.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ ESET NOD32 Antivirus 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167611.jpgsave_picture_167611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167611.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ BELOFF [dp] 2021.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167612.jpgsave_picture_167612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167612.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:29AA48EDEB59ADD2D7F77E56F167B10AAF800327
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167613.jpgsave_picture_167613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167613.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Off The Road - OTR Open World Driving v1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167614.jpgsave_picture_167614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167614.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F8363DCBF7E44344E0B79F5AA51C5DEC0BA7DFC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167615.jpgsave_picture_167615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167615.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167616.jpgsave_picture_167616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167616.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167617.jpgsave_picture_167617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167617.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Downie 4 v.4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167618.jpgsave_picture_167618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167618.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:DF187A2BE021899765253162561E07DD88E15D2D
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167619.jpgsave_picture_167619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167619.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:0848CFD36636115BE6F0C55CB94D158C2FD32526
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167620.jpgsave_picture_167620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167620.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sweet Connection - Need Your Passion (2008) CD, Compilation [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167621.jpgsave_picture_167621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167621.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:A791E52337CAB506E8078CF99F0C98B9AE49DAC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167622.jpgsave_picture_167622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167622.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:03B10BB1DB7392843D604399E3C477800AB690D4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167623.jpgsave_picture_167623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167623.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:EAE0187F821D39DB69D6FA18013F953404611079
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167624.jpgsave_picture_167624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167624.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EFE756C5A109D36EC42F8FBF81B8A0AE73A6D422
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167625.jpgsave_picture_167625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167625.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:91A272180CF54A3094A9D3E9A211C9D3C0EC1782
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167626.jpgsave_picture_167626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167626.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ GreedFall (2019) [Ru/Multi] (1.0/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167627.jpgsave_picture_167627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167627.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Mastering The Mix Collection 2021.12 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167628.jpgsave_picture_167628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167628.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:695C510B899370F5B262AC5A71F24E6CF0EA3374
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167629.jpgsave_picture_167629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167629.jpg" />
 </div>
 
 

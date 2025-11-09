@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243773.jpgsave_picture_243773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Motive Black - Auburn (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243777.jpgsave_picture_243777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243777.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Grafting The Vine - Beneath The Redwood (2020) [MP3|320 Kbps] <Instrumental Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243779.jpgsave_picture_243779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243779.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Misery - Misery Loves Company (1991) Remastered, 2022, Eonian Records [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243792.jpgsave_picture_243792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243792.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:47525FAE07EAFC71E17ED5237841DD607BEFE80F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243803.jpgsave_picture_243803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243803.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Barr & Don Cromwell - A Story Unfolds (2022) 2xCD [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243812.jpgsave_picture_243812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243812.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Treponem Pal - Screamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243846.jpgsave_picture_243846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243846.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Clouds Of Clarity - Superficial Society (2022) [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243848.jpgsave_picture_243848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243848.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Voelker - How The Other Half Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243854.jpgsave_picture_243854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243854.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:571376AF510D6A84EFE0C1AB9BF34E957565498B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243862.jpgsave_picture_243862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243862.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243865.jpgsave_picture_243865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243865.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243874.jpgsave_picture_243874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243874.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Tarmat - Out Of The Blue (2022) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243885.jpgsave_picture_243885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243885.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243886.jpgsave_picture_243886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243886.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243893.jpgsave_picture_243893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243893.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243895.jpgsave_picture_243895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243895.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243901.jpgsave_picture_243901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243901.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:145797BF4BD729C0ED8400B79418A3097F68E9BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243905.jpgsave_picture_243905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243905.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DevilDriver - Dealing with Demons Vol. II (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243909.jpgsave_picture_243909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243909.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Witchmaster - Kaźń (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243922.jpgsave_picture_243922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243922.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Gengis Khan - Possessed By The Moon (2022) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243929.jpgsave_picture_243929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243929.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Zac Leaser - Empty Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243930.jpgsave_picture_243930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243930.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ City Kings - Steel Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243941.jpgsave_picture_243941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243941.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:7D7A59FF61BDB42CE2B3184910E5DD9C2FD98262
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243952.jpgsave_picture_243952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243952.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243960.jpgsave_picture_243960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243960.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243998.jpgsave_picture_243998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243998.jpg" />
 </div>
 
 

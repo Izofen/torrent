@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129857.jpgsave_picture_129857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vladimir Bozar 'n' Ze Sheraf Orkestar - Universal Sprache (2010 Re-release) (200
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129859.jpgsave_picture_129859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129859.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:CEE0FEAEDE406BDA810AB9C4CB28F8EF7C99753C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129860.jpgsave_picture_129860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129860.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpgsave_picture_129862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129864.jpgsave_picture_129864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129864.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Skype 8.110.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129866.jpgsave_picture_129866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129866.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:B09BAF983CBED5EF8D5199FD474D1CD9BCAE85BD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129868.jpgsave_picture_129868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129868.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpgsave_picture_129869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Windows 10.0.19044.1466, Version 21H2 (Updated January 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129870.jpgsave_picture_129870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129870.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpgsave_picture_129871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129872.jpgsave_picture_129872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129872.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3CC79A24ED54446C8DD203DE5EA2C173CD73D1AB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129874.jpgsave_picture_129874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129874.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ AlimkhanOV A. - Way to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129875.jpgsave_picture_129875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129875.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129877.jpgsave_picture_129877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129877.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:12418446B9C69870DB09ED979C3B6D6A95D955D3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129878.jpgsave_picture_129878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129878.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8FCE04F2AEBB0E97E395588C97D0336265ED18F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129880.jpgsave_picture_129880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129880.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpgsave_picture_129881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A7D28D100B8C73B4F5C96EE055830CEE98158618
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129882.jpgsave_picture_129882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129882.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1384953C11F271BF8D21FB1D0CDA7DE1FF57D0D3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129884.jpgsave_picture_129884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129884.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D3A062BDC9375A68242B41CCC51D5F6D44A316AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129885.jpgsave_picture_129885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129885.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129887.jpgsave_picture_129887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129887.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C3477823AEAFC1A4852355CDC4BD137F641AFDF7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129888.jpgsave_picture_129888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129888.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - A Very Metal Christmas (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpgsave_picture_129889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:CED10E367EA5D3EC74244526B8DB242D996EF344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129890.jpgsave_picture_129890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129890.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7885F8632A25C59654CADE22113881792D401DF1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129891.jpgsave_picture_129891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129891.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:56C3E2B00A35C500AEA13FAEC097D04C4CF1518A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129892.jpgsave_picture_129892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129892.jpg" />
 </div>
 
 

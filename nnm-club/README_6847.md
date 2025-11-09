@@ -6,7 +6,7 @@ The Banishment - Machine and Bone (2023) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235298.jpgsave_picture_235298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235298.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LightX v2.1.6  [Ru/Multi] - продвинутый фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235299.jpgsave_picture_235299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235299.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PassMark RAMMon 2.4 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235300.jpgsave_picture_235300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235300.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:27B5D7931E09A9F6408867690977856BE181BB01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235301.jpgsave_picture_235301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235301.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ DEVONthink Pro Office/Server 3 v3.8.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235302.jpgsave_picture_235302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235302.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Roads - Simple Man (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235303.jpgsave_picture_235303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235303.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VueScan Pro 9.7.99 (07.05.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235304.jpgsave_picture_235304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235304.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8F94CB40178948C2D6F23F91B7E1768BE1FF9DA8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235305.jpgsave_picture_235305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235305.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Pixelmator Pro 3.3.7[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235306.jpgsave_picture_235306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235306.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235307.jpgsave_picture_235307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235307.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Phase One Capture One 22 Enterprise 15.3.3.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235308.jpgsave_picture_235308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235308.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7DDD51D1EFBD2A9BA7FBB7418D8EDA831DD6B631
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235309.jpgsave_picture_235309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235309.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:73F27A4FADC9132231202C26BADB7685527E0B36
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235310.jpgsave_picture_235310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235310.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ FastStone Capture 10.0 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235311.jpgsave_picture_235311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235311.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:8D4FE390B50087D9675DDE4D466E6D42444C30BA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235312.jpgsave_picture_235312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235312.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ RTG. Главный Ботанический сад Российской ака�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235313.jpgsave_picture_235313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235313.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:EF60C00B0E453CB3ECA00496D73C6474D049879F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235314.jpgsave_picture_235314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235314.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Jessica Williams - The Next Step (1993) Hep Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235315.jpgsave_picture_235315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235315.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:0841BD9F9E27961CB2A12F49D80F8DF93FD6D754
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235316.jpgsave_picture_235316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235316.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:FFC7BD3D5D1C7360F109D7326E8CB60E5DC59E2E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235317.jpgsave_picture_235317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235317.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FFA87565780BBF357CB8E08D015646533737E9BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235318.jpgsave_picture_235318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235318.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:A79AB95D622F044BC33C69F00B9F9815CDA65EAB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235319.jpgsave_picture_235319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235319.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5ACF65AC49CEE9EF4AAE8F0588801E3EF02DEC6C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235320.jpgsave_picture_235320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235320.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Fogg - Dancin' To The Music: The Singles And More (2023) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235321.jpgsave_picture_235321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235321.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:EFB82096A86141D4042E20CEFE272DA7BA3C2933
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235322.jpgsave_picture_235322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235322.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Wyatt Earp - Gods & Bullets (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235323.jpgsave_picture_235323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235323.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130431.jpgsave_picture_130431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130431.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 10.0.19043.1466, Version 21H1 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130432.jpgsave_picture_130432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130432.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:762C3360FCD62C65CDB0DD5403E9E006EFFF66D1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130435.jpgsave_picture_130435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130435.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Q: Загадка женщины / Q (2011) DVD5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130436.jpgsave_picture_130436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130436.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Q: Загадка женщины / Q (2011) DVD5
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130438.jpgsave_picture_130438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130438.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130439.jpgsave_picture_130439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130439.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130441.jpgsave_picture_130441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130441.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ UPlayer Pro v2.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130442.jpgsave_picture_130442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130442.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2BD785DB788868722EC7EAF5E5C519820B99DDDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130443.jpgsave_picture_130443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130443.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Sanctum {1.4.13334 + 9DLC} [Multi12\+] 2011 | UltraISO [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130445.jpgsave_picture_130445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130445.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:E6AA1F1BF30BF67A8662A6BFC3308F139ECC243F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130446.jpgsave_picture_130446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130446.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F407730F0E54EE0F6207F0292C9FB65ED55DEF4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130448.jpgsave_picture_130448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130448.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:DD9C96A9DE4D74EF10B45B1763580D6572EB2F5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130449.jpgsave_picture_130449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130449.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:DD9C96A9DE4D74EF10B45B1763580D6572EB2F5B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130450.jpgsave_picture_130450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130450.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E49D5DAA3BF71DC06F76D1BDA090A78F24C1BC0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130451.jpgsave_picture_130451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130451.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:64596C1B13F224F0289A078BE9219936B534F178
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130452.jpgsave_picture_130452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130452.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2A80ED483B48A6EF6A3A250D43589B3E3566C3FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130453.jpgsave_picture_130453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130453.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F0C9426781F639FA282F5ECC4E47EF498F0725EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130454.jpgsave_picture_130454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130454.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:F0C9426781F639FA282F5ECC4E47EF498F0725EC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130455.jpgsave_picture_130455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130455.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:42AA8833A34A716265AD6E4A5AD3B33CBDDA0864
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130456.jpgsave_picture_130456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130456.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Microsoft Windows 10.0.19042.1466, Version 20H2 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130457.jpgsave_picture_130457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130457.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ UPlayer Pro v2.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130458.jpgsave_picture_130458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130458.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Music Folder Player v2.6.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130459.jpgsave_picture_130459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130459.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130460.jpgsave_picture_130460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130460.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Speedtest от Ookla 4.6.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130462.jpgsave_picture_130462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130462.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:CF33C269129BF29148C0CBBB64D5EDF2740D1524
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130463.jpgsave_picture_130463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130463.jpg" />
 </div>
 
 

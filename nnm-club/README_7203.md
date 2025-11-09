@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246234.jpgsave_picture_246234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LEX LIVE 10 RC v.26.0.15 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246235.jpgsave_picture_246235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246235.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack FitGirl [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpgsave_picture_246236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C5211AFCF242634A982C50077686DFB4432CEBA5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246237.jpgsave_picture_246237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246237.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B0FC32519180084DC0DF0E82E6CECDE26A29BA03
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246238.jpgsave_picture_246238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246238.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D32341CEDAF9A034288A459B67B65CE4047010B8
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246239.jpgsave_picture_246239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246239.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:326EEF77926AD22DB1C24915809B771B78A72A88
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246240.jpgsave_picture_246240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246240.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E7247851567A8E708C9E7C8273580AC6863ED8FD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246241.jpgsave_picture_246241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246241.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2CD24AB966C093EEBEAE4593B970715AE6AA9814
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246242.jpgsave_picture_246242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246242.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Telegram в России тестирует отправку SMS-кодов че
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246243.jpgsave_picture_246243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246243.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Telegram начал предлагать россиянам стать учас�
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpgsave_picture_246244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:508BB1110DF49B31128E0250F056D1A5322F9055
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246245.jpgsave_picture_246245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246245.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246246.jpgsave_picture_246246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246246.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpgsave_picture_246247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246248.jpgsave_picture_246248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246248.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246249.jpgsave_picture_246249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246249.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpgsave_picture_246250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpgsave_picture_246251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpgsave_picture_246252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Avernum 4: Greed and Glory (2025) [En] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpgsave_picture_246253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Beyond Compare Pro 5.1.6.31527 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246254.jpgsave_picture_246254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246254.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Allavsoft Video Downloader Converter 3.28.5.9427 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpgsave_picture_246255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpgsave_picture_246256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246257.jpgsave_picture_246257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246257.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0E820801A55AA767C3BB71EF83B74C0024B68DBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246258.jpgsave_picture_246258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246258.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:79D681B56F6916D6DBC5E6D220D137E8D9A47B2D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246259.jpgsave_picture_246259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246259.jpg" />
 </div>
 
 

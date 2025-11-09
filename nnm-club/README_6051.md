@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190485.jpgsave_picture_190485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AA39A509465B5F8994C2BA33DD51853471BECDB9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190488.jpgsave_picture_190488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190488.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190490.jpgsave_picture_190490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190490.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190492.jpgsave_picture_190492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190492.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B6979B5AFF1EC6BDC22327AFF9A045425A37446C
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190493.jpgsave_picture_190493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190493.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Don't Sleep 9.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190496.jpgsave_picture_190496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190496.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VueScan Pro 9.8.16 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190497.jpgsave_picture_190497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190497.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:316841406F07E1D07A5C1B0127B9C2914C65FBFF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190500.jpgsave_picture_190500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190500.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:846ECB16C7A0A8357C579DD5228FD214F63AA432
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190502.jpgsave_picture_190502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190502.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4D5F2311BEAE2C7BDC511F8F62F7CA80483415E7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190504.jpgsave_picture_190504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190504.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:421681B12F8C6BFF95039DB4DEE7049CE2684366
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190506.jpgsave_picture_190506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190506.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ App Builder 2023.50 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190508.jpgsave_picture_190508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190508.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:88C9E80FD53BBCC8AAF242D93AC3AECD1D99DB88
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190509.jpgsave_picture_190509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190509.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fleetwood Mac - Rumours Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190513.jpgsave_picture_190513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190513.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190516.jpgsave_picture_190516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190516.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:81B61DC01531CC9F279A00F6A3E01AC3A37495D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190518.jpgsave_picture_190518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190518.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:02AB54EF0B772BF43CDCB88C0AC5AD2C2A2D5AD7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190519.jpgsave_picture_190519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190519.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:01BAA77CE058F29255E8BCC9F900125A7EDB446F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190521.jpgsave_picture_190521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190521.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190524.jpgsave_picture_190524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190524.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FanControl V170 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190525.jpgsave_picture_190525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190525.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ OOMPH! - Richter und Henker (2023) [MP3|320 Kbps] <Industrial Metal, Neue Deutsc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190528.jpgsave_picture_190528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190528.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XY VPN - Security Proxy VPN 4.7.022 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190530.jpgsave_picture_190530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190530.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Patti Smith - 4 Albums (2023) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190532.jpgsave_picture_190532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190532.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3E5B36BA8CE8B148C2624EAF4F582C56E8EF3405
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190534.jpgsave_picture_190534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190534.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:B4145FFBB76AAB6F37B1B1B6AF9477067A499FF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190535.jpgsave_picture_190535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190535.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ FanControl V169 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190538.jpgsave_picture_190538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190538.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dиверсант - Ненависть и отчаяние (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242831.jpgsave_picture_242831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242831.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:05E7720B88EE1BC4F2C8C70A7C95D688EDCC9358
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242835.jpgsave_picture_242835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242835.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1A2BED469B01352A391F25307E17B86B1646EB3D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242836.jpgsave_picture_242836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242836.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Andy Qunta - Legend In A Loungeroom (2021) 2xCD [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242837.jpgsave_picture_242837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242837.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Paul Smith Quartet - Softly, Baby (1957) Remaster, 2011, Capitol[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242841.jpgsave_picture_242841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242841.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:4A1E40BE02430F9BCD5937B8C58602BE24C37842
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243064.jpgsave_picture_243064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243064.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4B54AE811FDF2F80988C7994AE3867D818FD33AE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243066.jpgsave_picture_243066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243066.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Esoctrilihum - Consecration of the Spiritus Flesh (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243067.jpgsave_picture_243067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243067.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:EFF4287457A2B6A4CD3286EA1BB4256BA70C3B7B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243068.jpgsave_picture_243068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243068.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243069.jpgsave_picture_243069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243069.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7862076949F5DA2926909A56433DA85BC43C0347
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243070.jpgsave_picture_243070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243070.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Artstudio Pro 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243071.jpgsave_picture_243071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243071.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ BusyCal 3 v3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243072.jpgsave_picture_243072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243072.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2286DCC1AE2BABC927FCDA31215CD57989823AE9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243073.jpgsave_picture_243073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243073.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Beatport Electro House: Sound Pack #259 (2021) [MP3|320 Kbps] <Electro, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243075.jpgsave_picture_243075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243075.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243076.jpgsave_picture_243076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243076.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Chilling Atmosphere (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243077.jpgsave_picture_243077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243077.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:53C6B4914A85E8835A2E9852A702173153F4C1F6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243078.jpgsave_picture_243078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243078.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ UniBook - Аудиокниги v0.5.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243079.jpgsave_picture_243079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243079.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Syn
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243080.jpgsave_picture_243080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243080.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243082.jpgsave_picture_243082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243082.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Misery - Risk It All (1992) Reissue, 2023, Eonian Records [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243083.jpgsave_picture_243083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243083.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Alfred 4 Powerpack 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243084.jpgsave_picture_243084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243084.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ GoodNotes 5 v5.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243085.jpgsave_picture_243085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243085.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AquaSoft Stages 14.2.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243086.jpgsave_picture_243086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243086.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:FE761D0A9D1409FB5716C03DEAF0E246C53499B1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243087.jpgsave_picture_243087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243087.jpg" />
 </div>
 
 

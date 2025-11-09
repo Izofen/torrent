@@ -6,7 +6,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114599.jpgsave_picture_114599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114599.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A47D60E692706A0DA18D48919DE215E773B7998B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114600.jpgsave_picture_114600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114600.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E696DC6F789BAE4074E5ABABEF8E98028321C657
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114601.jpgsave_picture_114601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114601.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Activation Scripts (MAS) 2.5 (03.03.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114602.jpgsave_picture_114602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114602.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6A7D55772610269FC4ED60EC8E7490D799C103AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114603.jpgsave_picture_114603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114603.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:09A5D755F69728F9AF558528945973B5FCD44743
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114604.jpgsave_picture_114604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114604.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:490D1FAB1B7F295B6C23A462817A9B2A749B9567
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114605.jpgsave_picture_114605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114605.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D8C54E30C7A361BC40A29A2867904D05F44ABE32
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114606.jpgsave_picture_114606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114606.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114607.jpgsave_picture_114607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114607.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114608.jpgsave_picture_114608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114608.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:8E5C79DB10B740FD1CB7B0DBE5EDE72C9EACC15F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114609.jpgsave_picture_114609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114609.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:51C512893B13384D3CC872F799A7F2A30C224208
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpgsave_picture_114610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114611.jpgsave_picture_114611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114611.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114612.jpgsave_picture_114612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114612.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:6748444E67E5A63A94EAD9E67656BF0D427D6003
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114613.jpgsave_picture_114613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114613.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114614.jpgsave_picture_114614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114614.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blood Opera - Songs in the Key of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114615.jpgsave_picture_114615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114615.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Blind Channel - Exit Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114616.jpgsave_picture_114616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114616.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114617.jpgsave_picture_114617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114617.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114618.jpgsave_picture_114618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114618.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Big Big Train - The Likes of Us (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114619.jpgsave_picture_114619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114619.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114620.jpgsave_picture_114620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114620.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Elevenwire - Blood Red Sun (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114621.jpgsave_picture_114621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114621.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114622.jpgsave_picture_114622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114622.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:7F0C31C4F493C314C79B028398CFA76CD5D71D52
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114623.jpgsave_picture_114623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114623.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114624.jpgsave_picture_114624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114624.jpg" />
 </div>
 
 

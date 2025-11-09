@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59517.jpgsave_picture_59517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Backupper Technician Plus 7.3.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59518.jpgsave_picture_59518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 11.4.0.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59519.jpgsave_picture_59519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AlmaLinux 9.3 [x86_64] 8xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59520.jpgsave_picture_59520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59521.jpgsave_picture_59521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:51388FB4E3A02741D6401571E9DD88535D6636E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59522.jpgsave_picture_59522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B7CE892C78014DB5D17F1CD8D4B7D8E2552D468C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59523.jpgsave_picture_59523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cent Browser 5.1.1130.82 (x86/x64) Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59524.jpgsave_picture_59524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59524.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:ABEFD6FD289AEAEC32CF2CCD401A2FD8A2376A01
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59525.jpgsave_picture_59525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59525.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A05BABCC037C9023FABBF6B5AD4CD14EEB9107B5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59526.jpgsave_picture_59526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59526.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:8D8B7831A26426290E3B76CB3112BE04828593B4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59527.jpgsave_picture_59527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59527.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:8E5A74F290ACBB59A760D0FF77EC44952464D8FC
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59528.jpgsave_picture_59528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59528.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Acolyte of the Altar (2024) [En] (1.0.69) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59529.jpgsave_picture_59529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59529.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:A7CA43EC1CEC9F09A21FE3E6272B5951AA7793E8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59530.jpgsave_picture_59530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59530.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:977605D0A1838302813216618FE8E4E370AC509F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59531.jpgsave_picture_59531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59531.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:7263D05CE0C2DD5F23B6B573741FCC05DA9AAE24
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59532.jpgsave_picture_59532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59532.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ My Life: Farm Vet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59533.jpgsave_picture_59533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59533.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:53F1ADB27768F3AC8613AED01DED8947B1804F1F
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59534.jpgsave_picture_59534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59534.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:8B31CEE51A6E4B8253E63F58AB32A144A214F901
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59535.jpgsave_picture_59535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59535.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:AF7BEAA64745BD9333FF0C56596B979D3926AB9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59536.jpgsave_picture_59536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59536.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59537.jpgsave_picture_59537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59537.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:F1EEBD668BDFDBDAA5E06A992E3016A3A275EDD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59538.jpgsave_picture_59538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59538.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:467256E78297E5B668593EB3E800D8061E5BA1FD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59539.jpgsave_picture_59539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59539.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Rainlendar Lite 2.20.1 Build 176 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59540.jpgsave_picture_59540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59540.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Windows 11 [10.0.22621.3447], Version 22H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59541.jpgsave_picture_59541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59541.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:82A119CD4D36807A0210AF4A8D80AB47D2056838
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59542.jpgsave_picture_59542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59542.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185233.jpgsave_picture_185233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185233.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stellarium 23.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185235.jpgsave_picture_185235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185235.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7CB9C3CCE6E062AABBCC2E921484A0A3A41AC27E
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185236.jpgsave_picture_185236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185236.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:69C54D624FDF5C6744A4ACFE2D1C2DAC12201D70
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185237.jpgsave_picture_185237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185237.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Windows 11 Manager 1.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185239.jpgsave_picture_185239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185239.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The Smashing Pumpkins - CYR (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185241.jpgsave_picture_185241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185241.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ScreenFlow 10 v10.0.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185243.jpgsave_picture_185243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185243.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:12A99A2B97AF173AFFA188472F0C75CEC2F4245C
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185244.jpgsave_picture_185244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185244.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Parov Stelar - Voodoo Sonic (The Album) (2020) [AAC|~310 Kbps] <Electro, Jazz, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185247.jpgsave_picture_185247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185247.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6315E28F9419F661CF8ED842F14C5E688A01291F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185248.jpgsave_picture_185248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185248.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:BE3282ED871367646362886E52A8D559A6F694B4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185249.jpgsave_picture_185249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185249.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Morbid Angel - Abominations Of Desolation (1991) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185251.jpgsave_picture_185251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185251.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Keka 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185253.jpgsave_picture_185253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185253.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:4CE72CD35C20EA10B3D7DF40426906048F392F45
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185254.jpgsave_picture_185254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185254.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:150D06AB7AF617CA853CD5B08E4FE2F1BE42718E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185256.jpgsave_picture_185256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185256.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ FastCopy 5.4.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185258.jpgsave_picture_185258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185258.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:AB6BA4D3C5E3E2FE905664A13049D33C70728D6A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185259.jpgsave_picture_185259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185259.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:D6683FD9F7F452EEBD3800CFD7174960321D134A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185262.jpgsave_picture_185262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185262.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:62E4DAFF65D3D486C13B185130C296FD8F1A9673
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185263.jpgsave_picture_185263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185263.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:22B19955C8FA055A2117CECDD4630FA974795ACD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185264.jpgsave_picture_185264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185264.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185266.jpgsave_picture_185266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185266.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:C4C4F3877F6ECC977ED75C6F65328339AA9B26A1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185268.jpgsave_picture_185268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185268.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:033BA0C6F9A50FB36057CBE1BA0048C85DEC8EA0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185269.jpgsave_picture_185269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185269.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:E203DFF352790593C276698E1A66A3E27AE2F309
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185272.jpgsave_picture_185272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185272.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Topaz Video AI 3.5.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185273.jpgsave_picture_185273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185273.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ FBackup 9.8.693 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185274.jpgsave_picture_185274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185274.jpg" />
 </div>
 
 

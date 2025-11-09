@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164165.jpgsave_picture_164165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164165.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CCC2C420033C01F7615A627734D5D1833B5DD60B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164166.jpgsave_picture_164166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164166.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F58B64BDE7A5F166778D370D84E001B2F4350B07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164167.jpgsave_picture_164167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164167.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Q-Dir 9.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164168.jpgsave_picture_164168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164168.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:CF63EE3AEB4C76A2846AC6297E2B0679133138B3
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164169.jpgsave_picture_164169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164169.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164170.jpgsave_picture_164170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164170.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:8637FD589624FC3D817EB322756B05D9DCE48895
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164171.jpgsave_picture_164171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164171.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Clipboard Fusion Pro 6.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164172.jpgsave_picture_164172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164172.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ K-Lite Codec Pack 15.3.0 Mega_Full_Standard_Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164173.jpgsave_picture_164173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164173.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:354E8C5F3358404C40F1FDCA57941426FA2F0456
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164174.jpgsave_picture_164174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164174.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Fransiz AIFilter #1 Professional  v1.11.03926 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164175.jpgsave_picture_164175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164175.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ PrivaZer 4.0.60 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164176.jpgsave_picture_164176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164176.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:EEA4A7853693D7073EC49F255A9F0957E17543DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164177.jpgsave_picture_164177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164177.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0000263F459A8A7DF1F4BB5C2C43ECE9713DA532
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164178.jpgsave_picture_164178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164178.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:329FFFB9C9A954ED9A7F27BB24BA1DA32B752EED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164179.jpgsave_picture_164179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164179.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:C7836F600F80413F56316D1272B3D7F339143E54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164180.jpgsave_picture_164180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164180.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FiLMiC Pro: Mobile Cine Camera v6.13.2 Mod by EasyApk Team, biN32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164181.jpgsave_picture_164181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164181.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PotPlayer 231102 (1.7.22031) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164182.jpgsave_picture_164182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164182.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3BA9D85CE911EB60B63854EB7B388A10E2AAC706
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164183.jpgsave_picture_164183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164183.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:DCF416FB8356FD28C43EDA168733C9617C0ED328
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164184.jpgsave_picture_164184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164184.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Topaz Video AI 4.0.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164185.jpgsave_picture_164185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164185.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164186.jpgsave_picture_164186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164186.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Indigo Baby: Rap Theme Music (2020) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164187.jpgsave_picture_164187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164187.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Classic Rock Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164188.jpgsave_picture_164188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164188.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Easy Data Transform 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164189.jpgsave_picture_164189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164189.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8CC73376853987D9A513B8BA6E06BDE8AC7EC38E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164190.jpgsave_picture_164190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164190.jpg" />
 </div>
 
 

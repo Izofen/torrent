@@ -6,7 +6,7 @@ Snow Patrol - Final Straw (2004) 2CD, 20th Anniversary Edition, 2023, UMC [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223260.jpgsave_picture_223260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223260.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AC60C6FC5877DCD6EC49BEF08E7F5BC906FDC374
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223267.jpgsave_picture_223267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223267.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Swish 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223277.jpgsave_picture_223277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223277.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Cash Box Kings - Oscar's Motel (2023) [FLAC|Lossless|tracks + .cue] <Modern 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223291.jpgsave_picture_223291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223291.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Amon Amarth - Heidrun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223299.jpgsave_picture_223299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223299.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:4312D49A8C9A919144A844394A8B69D1C8420484
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223309.jpgsave_picture_223309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223309.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:64AB99AD29B738785FE28F4765C7D06F0CC697F2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223317.jpgsave_picture_223317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223317.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Wondershare UniConverter for Mac 15.0.1 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223356.jpgsave_picture_223356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223356.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sleep Token - Take Me Back To Eden (2023) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223365.jpgsave_picture_223365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223365.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ MotoGP. Этап 09. Гран-при Великобритании. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223370.jpgsave_picture_223370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223370.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223375.jpgsave_picture_223375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223375.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Teenage Wrist - Still Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223383.jpgsave_picture_223383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223383.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Edward Reekers - The Liberty Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223399.jpgsave_picture_223399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223399.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Concealer 1.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223412.jpgsave_picture_223412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223412.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Induction - The Power Of Power (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223421.jpgsave_picture_223421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223421.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223428.jpgsave_picture_223428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223428.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223432.jpgsave_picture_223432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223432.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CADintosh X 8.8.5 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223441.jpgsave_picture_223441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223441.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dark Sky - Signs Of The Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223447.jpgsave_picture_223447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223447.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Any Given Sin - War Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223455.jpgsave_picture_223455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223455.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Ocean - Holocene (2023) 3 x CD, BOX Set [FLAC|Lossless|tracks + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223463.jpgsave_picture_223463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223463.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Owlbear - Chaos To The Realm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223473.jpgsave_picture_223473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223473.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Integrity - 4 Albums (1991-2001) Deluxe Edition, 2022, 2023, Relapse Records [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223483.jpgsave_picture_223483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223483.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223494.jpgsave_picture_223494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223494.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Rain Parade - Last Rays of a Dying Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223503.jpgsave_picture_223503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223503.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ iCompta 6.0.68 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223512.jpgsave_picture_223512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223512.jpg" />
 </div>
 
 

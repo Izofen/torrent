@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101080.jpgsave_picture_101080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101080.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C7B8CDAF757D64D9D780BC35222E0FFB1557E7AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101081.jpgsave_picture_101081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101081.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FacePic - AI Face App v3.0.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101082.jpgsave_picture_101082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101082.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ SplitCam 10.8.60 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101083.jpgsave_picture_101083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101083.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BA7555920D220229F07D9073B2B5FCD9546867EB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101084.jpgsave_picture_101084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101084.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:93F1640D866615578120B1AE781B19C242CDD765
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101086.jpgsave_picture_101086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101086.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101089.jpgsave_picture_101089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101089.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D12D19D2C6DB6069734ACEC065C0977033903964
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101090.jpgsave_picture_101090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101090.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B9126C6F50F4F0F1F6EC702919AE38772ECCA18E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101091.jpgsave_picture_101091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101091.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:9376B0B7D9A5EA7CCE86B6A58E6740EB042E13BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101093.jpgsave_picture_101093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101093.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:961C9CCB3CA3DBDF0F15F575536D180DB7BBA3E9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101096.jpgsave_picture_101096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101096.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6B82B11BACB95BECC951042894832C04DCBF32FB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101098.jpgsave_picture_101098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101098.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:15272820614AC38C094B2BD940097C1488BDE6DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101099.jpgsave_picture_101099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101099.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F792E492BDE65D19AB141C7C91CC74C55DD3D3D1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101100.jpgsave_picture_101100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101100.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101101.jpgsave_picture_101101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101101.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101102.jpgsave_picture_101102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101102.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101103.jpgsave_picture_101103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101103.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101104.jpgsave_picture_101104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101104.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101105.jpgsave_picture_101105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101105.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101106.jpgsave_picture_101106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101106.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101107.jpgsave_picture_101107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101107.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101108.jpgsave_picture_101108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101108.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101109.jpgsave_picture_101109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101109.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101110.jpgsave_picture_101110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101110.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101111.jpgsave_picture_101111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101111.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101112.jpgsave_picture_101112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101112.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169393.jpgsave_picture_169393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169393.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8BD6532782DB69F8DC65C39F87F74B1AD28635CD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169394.jpgsave_picture_169394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169394.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D18F808056AA67971AEC350EFEC71877FEEBBDDA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169395.jpgsave_picture_169395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169395.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Tool - Lateralus (2001) [AAC|~302 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169396.jpgsave_picture_169396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169396.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:6F781E49C035E7916FF292571D2B718241C0C672
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169397.jpgsave_picture_169397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169397.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:EB38898A23DAEE6669A857098FAE7BD3ED36BCEA
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169399.jpgsave_picture_169399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169399.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpgsave_picture_169400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169400.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169401.jpgsave_picture_169401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169401.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.06 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169402.jpgsave_picture_169402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169402.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169403.jpgsave_picture_169403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169403.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ QLab 4 v4.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169404.jpgsave_picture_169404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169404.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Nothing But... Trancetopia, Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169405.jpgsave_picture_169405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169405.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:BABBF2832D55529A5BE52843C7F94E6D91CBD065
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169406.jpgsave_picture_169406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169406.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:DCE775772E6447D64B0905C66B2273EEB5208390
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169407.jpgsave_picture_169407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169407.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9FD4C2E9497FA50183E36ABC4D1B645AD807870C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169408.jpgsave_picture_169408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169408.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:9B9F2B7D71C480C0AD1ECC397D5714D87717BF96
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169409.jpgsave_picture_169409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169409.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ PotPlayer 1.7.21091 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169410.jpgsave_picture_169410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169410.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ bliss for Mac 20230927 U2B Intel/ARM [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169411.jpgsave_picture_169411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169411.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:B3F5C9946C4E98D3D2DE7F1B67491C9A3188924E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169412.jpgsave_picture_169412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169412.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:5AC6F36A107114512131C8B36CE0B9DA1D3E3E8D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169413.jpgsave_picture_169413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169413.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Loop Mash Up - Music Maker for Mac 1.2.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169414.jpgsave_picture_169414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169414.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:F4ADC3464EC04AAAC48A9632F319B82104C99898
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169415.jpgsave_picture_169415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169415.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A37913BAF12903EE6116936C99373A016E8832B4
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169416.jpgsave_picture_169416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169416.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:54F7D9D958958027123FFDBC6256DDDCE6384A4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169417.jpgsave_picture_169417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169417.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Iron Savior - Firestar (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169418.jpgsave_picture_169418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169418.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:36351C0B4E4BE01F629C17AFFC8530489FDD27F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169419.jpgsave_picture_169419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169419.jpg" />
 </div>
 
 

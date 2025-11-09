@@ -6,7 +6,7 @@ WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105121.jpgsave_picture_105121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105121.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7CA16C00E311D227214578BB5F54561814F42256
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105122.jpgsave_picture_105122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105122.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare PDFelement Pro 11.0.5.3099 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105123.jpgsave_picture_105123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105123.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinTools.net Premium 24.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105124.jpgsave_picture_105124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105124.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Double Commander 1.1.17 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105125.jpgsave_picture_105125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105125.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ R-Studio Network / Technician 9.4 Build 191349 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105126.jpgsave_picture_105126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105126.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5ADC3E4DB2791BC5B4A2BA1D8E39E2481F77184D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105127.jpgsave_picture_105127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105127.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C4D8DFC99D785FBA3C3A2E5B5EE7FDDADDAEF688
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105128.jpgsave_picture_105128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105128.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105129.jpgsave_picture_105129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105129.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105130.jpgsave_picture_105130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105130.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105131.jpgsave_picture_105131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105131.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sugar Bytes - DrumComputer 1.3.5 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105132.jpgsave_picture_105132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105132.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:715A1D27B8EF15F9AC292002B6611A40510ECF94
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105133.jpgsave_picture_105133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105133.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CareUEyes 2.4.3.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105134.jpgsave_picture_105134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105134.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:84894B1EC4BF82DCA150E449A6D9BE970D537151
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105135.jpgsave_picture_105135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105135.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F238308496D90168EBF3AA4A6F57F11EDA51B81A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105136.jpgsave_picture_105136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105136.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PrivaZer Pro 4.0.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105137.jpgsave_picture_105137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105137.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:BFCCDE664046B1B36A11F8F7D2A2F5874DD1A542
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105138.jpgsave_picture_105138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105138.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ashampoo UnInstaller 15.00.00 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105139.jpgsave_picture_105139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105139.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0D5B77FF19D25284C07AABFB2305DF476FE5A584
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105140.jpgsave_picture_105140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105140.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:73CAC5AAF235530D3AEF11EC0FC1635C465F6F1D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105141.jpgsave_picture_105141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105141.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 RePack (& Portable) by TryRooM [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105142.jpgsave_picture_105142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105142.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:1E9BC96957FEE953FEE51A24671E8A0E58AEA4F0
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105143.jpgsave_picture_105143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105143.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Balabolka 2.15.0.878 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105144.jpgsave_picture_105144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105144.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.13 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105145.jpgsave_picture_105145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105145.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:52383FFDAAEC2654F17791530D7528054677DB00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105146.jpgsave_picture_105146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105146.jpg" />
 </div>
 
 

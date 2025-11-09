@@ -6,7 +6,7 @@ OneCommander Pro 3.90.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103861.jpgsave_picture_103861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103861.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6FD46935DFAE6690288FA884B86444651B6AD3DE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103862.jpgsave_picture_103862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103862.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103863.jpgsave_picture_103863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103863.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Eric Clapton - Meanwhile (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpgsave_picture_103864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Draw.io 24.7.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103865.jpgsave_picture_103865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103865.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3909CB18B5F956380F3163D25A2B2455A3B0AB06
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103866.jpgsave_picture_103866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103866.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ XtraTools Professional 24.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103867.jpgsave_picture_103867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103867.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4548AB374E3AE84E63D76072E32D2DC9010182C4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103869.jpgsave_picture_103869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103869.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B9908CCF1ED3DC65B1CAF0F99A0E773FA854160D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103870.jpgsave_picture_103870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103870.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Firefox Browser ESR 128.3.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103871.jpgsave_picture_103871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103871.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103872.jpgsave_picture_103872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103872.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:C4BA2958B73372417D6E85941160619B71D6DA9C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103873.jpgsave_picture_103873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103873.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ K-Lite Codec Pack Update 18.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103875.jpgsave_picture_103875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103875.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpgsave_picture_103876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:61B9D37E5E3D7F24BE024C79A42453E8D13F4622
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103877.jpgsave_picture_103877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103877.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Presti
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103878.jpgsave_picture_103878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103878.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:613DE630808AB96057332009A619561CC8E0AF8B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103879.jpgsave_picture_103879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103879.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Soul Asylum - Slowly But Shirley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103880.jpgsave_picture_103880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103880.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:CA3A67547012775AF8CC97C93C1FA208DACF03C7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103881.jpgsave_picture_103881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103881.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Wayback Machine - Future History (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103882.jpgsave_picture_103882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103882.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103883.jpgsave_picture_103883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103883.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Randall Bramblett - Paradise Breakdown (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103884.jpgsave_picture_103884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103884.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103885.jpgsave_picture_103885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103885.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103886.jpgsave_picture_103886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103886.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103887.jpgsave_picture_103887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103887.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103888.jpgsave_picture_103888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103888.jpg" />
 </div>
 
 

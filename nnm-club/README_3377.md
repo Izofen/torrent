@@ -6,7 +6,7 @@ Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108163.jpgsave_picture_108163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ilya Serov - Colors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108164.jpgsave_picture_108164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108164.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108165.jpgsave_picture_108165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108165.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A7B9980A056A7015BC2C77FD1C8048788F3044ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108166.jpgsave_picture_108166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108166.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Parker James & Paul DeFiglia & Caleb Breaux - Afterglow (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108167.jpgsave_picture_108167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108167.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Orbium - Ouroboros (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, stoner, pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108168.jpgsave_picture_108168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108168.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108169.jpgsave_picture_108169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108169.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Folkrim - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108170.jpgsave_picture_108170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108170.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Gangruel - The Harvest Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108171.jpgsave_picture_108171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108171.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpgsave_picture_108172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brut
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpgsave_picture_108173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Euge Valovirta - Hardtones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108174.jpgsave_picture_108174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108174.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Huntsmen - The Dry Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108175.jpgsave_picture_108175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108175.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BE1C511DA6E18DE9E760FFA11768EBA5A008790B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108176.jpgsave_picture_108176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108176.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Rikard From - In My Own Time (2024) [FLAC 24/48|Lossless|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108177.jpgsave_picture_108177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108177.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Clan of Xymox - Exodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108178.jpgsave_picture_108178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108178.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:A2F4B9ADE383EADFA52BB6A05C1EE391BBD7EB12
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108179.jpgsave_picture_108179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108179.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:0ACFF50459CF2802FB0202E76556E3137CDD064C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108180.jpgsave_picture_108180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108180.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E464CB061CB4DBC843A609E61B759E4CA836CAEB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108181.jpgsave_picture_108181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108181.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:438F97EF7A4AB24C11BB8A214AA1BB049BBC8C21
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108182.jpgsave_picture_108182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108182.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Haldun Lenger - Chaos War (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108183.jpgsave_picture_108183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108183.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Relaxing Jazz Music, Cuban Latin Collection - Nostalgic Cuban Nights: Soft Instr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108184.jpgsave_picture_108184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108184.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:AF15E0BCF14A22A8D584444907968A759F5876D5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108185.jpgsave_picture_108185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108185.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108186.jpgsave_picture_108186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108186.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108187.jpgsave_picture_108187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108187.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108188.jpgsave_picture_108188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108188.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aura - Underwater (2022) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233302.jpgsave_picture_233302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233302.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233308.jpgsave_picture_233308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233308.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233311.jpgsave_picture_233311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233311.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wizard Master - Ablanathanalba (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233317.jpgsave_picture_233317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233317.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:80EBB57AEDAD3B12D98A93922E49888E76634E01
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpgsave_picture_233318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ XO Armor - Nublar (2023) [FLAC|24/44.1|WEB-DL|tracks] <Nu Metalcore, Rapcore, Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233319.jpgsave_picture_233319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233319.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233324.jpgsave_picture_233324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233324.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpgsave_picture_233332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tiger Moth Tales - A Song Of Spring (2022) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233333.jpgsave_picture_233333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233333.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233339.jpgsave_picture_233339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233339.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Genesis - BBC Broadcasts (2023) Бокс-сет, 5 x CD, Compilation [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233342.jpgsave_picture_233342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233342.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233346.jpgsave_picture_233346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233346.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233351.jpgsave_picture_233351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233351.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Omophagia - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233354.jpgsave_picture_233354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233354.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rites of Sin - Rites of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233356.jpgsave_picture_233356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233356.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233359.jpgsave_picture_233359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233359.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Little Villains - Battle of Britain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233362.jpgsave_picture_233362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233362.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233363.jpgsave_picture_233363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233363.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233368.jpgsave_picture_233368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233368.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:7EA596474AD2E4AF7A7FAF5A77D7619E135A8522
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233370.jpgsave_picture_233370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233370.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233375.jpgsave_picture_233375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233375.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Necromancers - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233376.jpgsave_picture_233376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233376.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:35E4E24CFA45F5484AD8261A64F90069F7D5866D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpgsave_picture_233378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Stallion - Rise And Ride (2014) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233382.jpgsave_picture_233382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233382.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233383.jpgsave_picture_233383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233383.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Irist - 2 Albums (2020-2022) [MP3|320 Kbps] <Sludge, Groove, Post Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233388.jpgsave_picture_233388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233388.jpg" />
 </div>
 
 

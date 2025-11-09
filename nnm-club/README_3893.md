@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121679.jpgsave_picture_121679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121679.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Horskh - Body (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121680.jpgsave_picture_121680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpgsave_picture_121681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121682.jpgsave_picture_121682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121682.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ South Of Salem - Death Of The Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121683.jpgsave_picture_121683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121683.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bolts of Melody - Film Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121684.jpgsave_picture_121684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121684.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121685.jpgsave_picture_121685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121685.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:96906B7FCCFFBA2999FA7257EB08183AA67AA9BD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121686.jpgsave_picture_121686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121686.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Avenger - Steel On Steel: The Complete Avenger Recordings (2024) 3CD [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121687.jpgsave_picture_121687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121687.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121688.jpgsave_picture_121688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121688.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Square One - Supersonic (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121689.jpgsave_picture_121689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121689.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DVD-Cloner 2024 for Mac v.11.00.740  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121690.jpgsave_picture_121690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121690.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ OmniReader Pro for Mac 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121691.jpgsave_picture_121691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121691.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Marked 2 - Markdown Preview 2.6.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121692.jpgsave_picture_121692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121692.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Death Level - The Era of Religion's Demise (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121693.jpgsave_picture_121693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121693.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Al Harlow - Now! (2023) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121694.jpgsave_picture_121694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121694.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sam Millar - More Cheese Please (2023) [FLAC|Lossless|image + .cue] <Arena Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121695.jpgsave_picture_121695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121695.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Cadacross - So pale is the Light (2001) Reissued 2005 [APE|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121696.jpgsave_picture_121696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121696.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121697.jpgsave_picture_121697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121697.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121698.jpgsave_picture_121698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121698.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:F68DC6E452BBA56D0E0D083DC547D49C505FFC25
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121699.jpgsave_picture_121699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121699.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121700.jpgsave_picture_121700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121700.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [MP3|320 Kbps] <Jazz, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121701.jpgsave_picture_121701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121701.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Cartesian Ghost - Lux Arcana (2023) [MP3|320 Kbps] <Heavy Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121702.jpgsave_picture_121702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121702.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - TOP 10 Trance 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121703.jpgsave_picture_121703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121703.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:19930663C7CF348013FED2F8CF01275B68757B46
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121704.jpgsave_picture_121704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121704.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198768.jpgsave_picture_198768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198768.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B76BA58F59FEFD59A25C01E7F2650C56A1744970
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198769.jpgsave_picture_198769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198769.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:09374292031F0E4CD24275F01FD796EFE33B9A69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198770.jpgsave_picture_198770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198770.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Memtest86+ 6.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198771.jpgsave_picture_198771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198771.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4ABF79E292036E18F69006AFB1078924AE0D8AED
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198773.jpgsave_picture_198773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198773.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AD65D4C31608982036E4235E099B577B295E8A71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198775.jpgsave_picture_198775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198775.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2557D9A5C19989785C34530910FAC6706CD84968
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198777.jpgsave_picture_198777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198777.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Defender Remover Portable 12.4.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198778.jpgsave_picture_198778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198778.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0DBD0F026D7F939B9237259A1C4537EC9DB1AFF6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198779.jpgsave_picture_198779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198779.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:A6DF2A66CA78518358260F3433076B3CCEA0694B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198780.jpgsave_picture_198780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198780.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Various Artists - Ballads Classic Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198781.jpgsave_picture_198781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198781.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:410F365820A21785CB21DFB3D671B0B981C9B504
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198783.jpgsave_picture_198783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198783.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:16A04F716FC9F6C91AC12906448BE7508A9E10DA
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198785.jpgsave_picture_198785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198785.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:DC012B2F2CA553F917759F3E2B9F051B83CEFF74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198786.jpgsave_picture_198786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198786.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198787.jpgsave_picture_198787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198787.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fast Video Cutter Joiner 2.7.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198789.jpgsave_picture_198789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198789.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ uTorrent Pack 1.2.3.68 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198790.jpgsave_picture_198790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198790.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A088023C3E3A7DB18BC5A924A9B693CD717F7D81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198791.jpgsave_picture_198791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198791.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:648C03461396085384FC731935399B224DE55C27
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198792.jpgsave_picture_198792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198792.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ PortScan & Stuff 1.92 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198793.jpgsave_picture_198793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198793.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198795.jpgsave_picture_198795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198795.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Cinema 4D Studio 2023.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198796.jpgsave_picture_198796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198796.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:42C52C52BD0D8871E887023389B0ABB31ED4CA3C
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198797.jpgsave_picture_198797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198797.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:08DB82505F9A1957DDB8ABDD344C839EBEC81FBC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198802.jpgsave_picture_198802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198802.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:E5A15C26CA124C9C667B5E1117F07782988E6AC5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198806.jpgsave_picture_198806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198806.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:08D5386F9DA8708C3E2BF806B73C5A1B83281EA3
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198808.jpgsave_picture_198808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198808.jpg" />
 </div>
 
 

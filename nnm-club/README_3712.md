@@ -6,7 +6,7 @@ Text Editor Pro 28.4.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116887.jpgsave_picture_116887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116887.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116888.jpgsave_picture_116888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116888.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpgsave_picture_116889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116890.jpgsave_picture_116890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116890.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116891.jpgsave_picture_116891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116891.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vanir - Epitome (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Heavy Metal, V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116892.jpgsave_picture_116892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116892.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Total Video Player for Mac 3.1.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116893.jpgsave_picture_116893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116893.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:3C86AC9A2803253F0592D223523FE93FBFE874F7
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116894.jpgsave_picture_116894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116894.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Ambient Winter Feeling (2024) [MP3|320 Kbps] <Ambient, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116895.jpgsave_picture_116895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116895.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:1972D4DEFCEA6BEC557FCA2B9229FD5A3426AC96
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116896.jpgsave_picture_116896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116896.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ PingPlotter Pro for Mac 5.24.3.7253 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116897.jpgsave_picture_116897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116897.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Song Keepers: A Music Maker Foundation Anthology (2024) 4CD [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116898.jpgsave_picture_116898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116898.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116899.jpgsave_picture_116899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116899.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Serene Vibrations: Deep House Mix (2024) [MP3|320 Kbps] <Deep, House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116900.jpgsave_picture_116900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116900.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0B5ACCBED383F8E6C5026823208A17CB7DEB4E25
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116901.jpgsave_picture_116901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116901.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ WPS Office + PDF v18.7.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116902.jpgsave_picture_116902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116902.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8773E5395AF52D14259704C36AE709C043AD93D7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116903.jpgsave_picture_116903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116903.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:EDF247199101999B7C212316B305ABE2B5AF552E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116904.jpgsave_picture_116904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116904.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Darktable 4.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116905.jpgsave_picture_116905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116905.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:1F9091896845EA5078C203C342E481BE25FAEC90
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116906.jpgsave_picture_116906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116906.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116907.jpgsave_picture_116907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116907.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpgsave_picture_116908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:DCBAD59CDE49762999F7BC226ADE0A7FD1039BEA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116909.jpgsave_picture_116909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116909.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FBackup 9.9.855 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116910.jpgsave_picture_116910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116910.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116911.jpgsave_picture_116911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116911.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FreeFileSync 13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116912.jpgsave_picture_116912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116912.jpg" />
 </div>
 
 

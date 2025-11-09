@@ -6,7 +6,7 @@ Sunbomb - Light Up The Sky (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106896.jpgsave_picture_106896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106896.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Isle of the Cross - Faustus The Musical (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106898.jpgsave_picture_106898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106898.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Big Sun - Rite De Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106899.jpgsave_picture_106899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106899.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Harpazo - The Crucible (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106900.jpgsave_picture_106900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106900.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sear Bliss - Heavenly Down (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106903.jpgsave_picture_106903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106903.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sunbomb - Light Up The Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106904.jpgsave_picture_106904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106904.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chris Boudreaux - Who Made Who (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106905.jpgsave_picture_106905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106905.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpgsave_picture_106915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Triddana - Breaking From The Fold (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpgsave_picture_106916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Isle of the Cross - Faustus The Musical (2024) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpgsave_picture_106917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Big Sun - Rite De Passage (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpgsave_picture_106921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106928.jpgsave_picture_106928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106928.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Triddana - Breaking From The Fold (2024) [MP3|320 Kbps] <Celtic Folk, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpgsave_picture_106941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nitetime Drive - NTD 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpgsave_picture_106943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Count Pariah - Count Pariah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpgsave_picture_106944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Duel - Breakfast (with) Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpgsave_picture_106945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amongst Liars - By Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106957.jpgsave_picture_106957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106957.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Young Medicine - Cold Blooded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106959.jpgsave_picture_106959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106959.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Rumours - Kill Or Be Killed (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106960.jpgsave_picture_106960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106960.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Born to Rise - Along for the Ride (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106963.jpgsave_picture_106963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106963.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mystery - Mind Pollution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106964.jpgsave_picture_106964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106964.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Normal Like Us - The Devil and the Whipping Post (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106965.jpgsave_picture_106965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106965.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106966.jpgsave_picture_106966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106966.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Payback - Never Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpgsave_picture_106967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saltatio Mortis - Finsterwacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Medieval Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpgsave_picture_106969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Shattered - Darker Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpgsave_picture_106970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpg" />
 </div>
 
 

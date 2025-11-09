@@ -6,7 +6,7 @@ CCleaner 6.25.11131 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51421.jpgsave_picture_51421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51421.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C5E4E2A7101357565B3EEAAEB93CDCEC796316DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51422.jpgsave_picture_51422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51422.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:915A3F4288CAC1DD70C04DDF3FD652DE7484BE0A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51423.jpgsave_picture_51423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51423.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C3C7C061CC79418C20C763C1207ECD6675C8015F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51424.jpgsave_picture_51424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51424.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:97B219AA357CA34299FA58B40044474FEE975746
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51425.jpgsave_picture_51425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51425.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51426.jpgsave_picture_51426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51426.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A82EA343670848D38828E1AF5406CE2FB4345CCF
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51427.jpgsave_picture_51427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51427.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ IM-Magic Partition Resizer 7.2.0 Professional |Server | Unlimited Edition RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51428.jpgsave_picture_51428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51428.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8AA7F3B69BEE47F2E2D37B33E101A2A1A7F3829D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51429.jpgsave_picture_51429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51429.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PotPlayer 240618 (1.7.22266) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51430.jpgsave_picture_51430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51430.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:278045A6B28493A4793D2CA0FAAC2FBFF4586FD3
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51431.jpgsave_picture_51431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51431.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Driver Easy Pro 6.0.0.25691 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51432.jpgsave_picture_51432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51432.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wondershare UniConverter 15.5.14.110 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51433.jpgsave_picture_51433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51433.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:A4A4C2B2AADBE02890B3F04EADECFD48A57AF4C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51434.jpgsave_picture_51434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51434.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:5D2D51453F7A184FA79DF892BE0BDB99A722D8FB
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51435.jpgsave_picture_51435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51435.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:63F4819A16123DC6AA73FA335CAE62BB294600A6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51436.jpgsave_picture_51436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51436.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CB62EF8608A0F092E2394B11915E8208BA1DA1CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51437.jpgsave_picture_51437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51437.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:CB62EF8608A0F092E2394B11915E8208BA1DA1CA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51438.jpgsave_picture_51438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51438.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4A1F2F5C4A97A786A1C64C1B7B7559C5E2BBBC69
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51439.jpgsave_picture_51439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51439.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Reg Organizer 9.45 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51440.jpgsave_picture_51440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51440.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Date a Live V | Рaндeву с жизнью [ТВ-5] [2024, TV, 12 из 12] WEB
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51441.jpgsave_picture_51441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51441.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:03A03E54C640614BFD4E078CC0788724BD4850F9
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51442.jpgsave_picture_51442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51442.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:03A03E54C640614BFD4E078CC0788724BD4850F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51443.jpgsave_picture_51443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51443.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F74C7F1135926C071DDABB2F491F9DB40EA68F42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51444.jpgsave_picture_51444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51444.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:F74C7F1135926C071DDABB2F491F9DB40EA68F42
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51445.jpgsave_picture_51445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51445.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 43 Public Beta 4 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51446.jpgsave_picture_51446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51446.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153558.jpgsave_picture_153558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo Burning Studio 19.0.1.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153559.jpgsave_picture_153559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E94E715B3ECBD566D1B5C107B5CBBEA5331DBAA
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153560.jpgsave_picture_153560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153560.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:28CDB1FB820FEB7F5E9FD8F57A886D9B7327714C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153561.jpgsave_picture_153561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153561.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153562.jpgsave_picture_153562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153562.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C8C13987115339A16675A4B416A2553E65BE642D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153563.jpgsave_picture_153563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153563.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:12B31FD4ECD406C82BDED0ACB1C0C99FCCE2B76E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153564.jpgsave_picture_153564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153564.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FF2E071C5A2D63AA9D6232687D98BA4C160E53B3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153565.jpgsave_picture_153565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153565.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E56EC482AC5B57A9E10002E688CF1A18BA2B5F0C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpgsave_picture_153567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153568.jpgsave_picture_153568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153568.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153569.jpgsave_picture_153569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153569.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Wallpapers Sexy Girls (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153570.jpgsave_picture_153570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153570.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153571.jpgsave_picture_153571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153571.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153572.jpgsave_picture_153572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153572.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153574.jpgsave_picture_153574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153574.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:FE4FED2F6913350FD936FA320544BFD679D87D6A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153575.jpgsave_picture_153575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153575.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5ADA549183A4808DD12C2708C563A34754D14317
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153576.jpgsave_picture_153576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153576.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:30C893DD8E76393A6E00F9F60CD2B9902D70D39D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153577.jpgsave_picture_153577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153578.jpgsave_picture_153578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153578.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:AD40DC063C985CA29EB57B5519FA4B866F291720
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153579.jpgsave_picture_153579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153579.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:41C228882E6AB13B5E0618CADF3186E1F4EB4517
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153580.jpgsave_picture_153580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153580.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Yummy 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153581.jpgsave_picture_153581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153581.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Poisonblack - Nothing Else Remains (2CD) (2020) Japanese Edition [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153582.jpgsave_picture_153582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153582.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153583.jpgsave_picture_153583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153583.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153584.jpgsave_picture_153584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153584.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153585.jpgsave_picture_153585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153585.jpg" />
 </div>
 
 

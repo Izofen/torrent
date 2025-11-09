@@ -6,7 +6,7 @@ Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127773.jpgsave_picture_127773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127774.jpgsave_picture_127774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127774.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127775.jpgsave_picture_127775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127775.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:7386BE25F02DF2B373515A1D937C51873A5FEAED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127776.jpgsave_picture_127776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127776.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127777.jpgsave_picture_127777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127777.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Grafvitnir - Venenum Scorpionis (2019) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127778.jpgsave_picture_127778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127778.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:934444BE3464DE0477896905F69F7FFD51502085
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127779.jpgsave_picture_127779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127779.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:934444BE3464DE0477896905F69F7FFD51502085
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127780.jpgsave_picture_127780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127780.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Noage - From Darkness To Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127781.jpgsave_picture_127781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127781.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127782.jpgsave_picture_127782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127782.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E1CBB802208FE532F0931B5F1BB3BA956219D174
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127783.jpgsave_picture_127783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127783.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Opera GX 105.0.4970.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127784.jpgsave_picture_127784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127784.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:9F034DF1F83D4B2EC6B45DB07EB525DD28475F5F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127785.jpgsave_picture_127785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127785.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Sinisa Petric - Please Come Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127786.jpgsave_picture_127786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127786.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Op
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127787.jpgsave_picture_127787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127787.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F1B8735A905C8F5BBC21B61DD52AA32C55AAA022
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127788.jpgsave_picture_127788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127788.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:B5491B35682AA6B3C5A20E8DDEE9120E3A331129
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127789.jpgsave_picture_127789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127789.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3C665C3F1300005670545F934C1F41562E102F97
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127790.jpgsave_picture_127790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127790.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5E1FBA460C192363FC3A52B1FFEABA382D272492
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127791.jpgsave_picture_127791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127791.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:391C698175B4C25EB339F1192C2883EB12133600
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127792.jpgsave_picture_127792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127792.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpgsave_picture_127793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Astral Experience - Clepsidra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127794.jpgsave_picture_127794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127794.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Men Eater - Men Eater (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpgsave_picture_127795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:47E52619D4B9D3315AA8836A1BA55558539AE4FF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127796.jpgsave_picture_127796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127796.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpgsave_picture_127797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127798.jpgsave_picture_127798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127798.jpg" />
 </div>
 
 

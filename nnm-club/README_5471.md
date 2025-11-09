@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169177.jpgsave_picture_169177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169177.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F953BD98B79E1C95E482AD6EE80690622482EFAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169178.jpgsave_picture_169178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169178.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D3AF77C8B7EA499F5F1F54DF4BE1FFDEA534B931
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169179.jpgsave_picture_169179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169179.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Soothing Harmonies (2023) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169180.jpgsave_picture_169180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169180.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3D321D295E95B49EDF3CE2AE988567DD2BA0A5BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169181.jpgsave_picture_169181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169181.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1F5FD86BD1CE5472FFF18497103FD4DAAB2D4924
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169182.jpgsave_picture_169182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169182.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:23153211DE811AABF8162D89E89386A9F50E256C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169183.jpgsave_picture_169183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169183.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E9C1C64BA56A356DB9C47F97E2D774052E132EA5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169184.jpgsave_picture_169184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169184.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Skype 8.79.0.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169185.jpgsave_picture_169185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169185.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Objectif Running: Rock (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169186.jpgsave_picture_169186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169186.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ PopClip 2022.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169187.jpgsave_picture_169187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169187.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169188.jpgsave_picture_169188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169188.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169189.jpgsave_picture_169189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Reido - Anātman (2019) [FLAC|Lossless|image + .cue] <Sludge/Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169190.jpgsave_picture_169190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169190.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:FB1EFDCD9F488D916C78976E7C2EB7E9F3E2F111
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169191.jpgsave_picture_169191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169191.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Rectangle Pro 2.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169192.jpgsave_picture_169192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169192.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Leviathan - Scoring The Chapters (1997) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169193.jpgsave_picture_169193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169193.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:BE0C65E0BC94897717C897C01A10E4B893C7E26B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169194.jpgsave_picture_169194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169194.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:388C637D6184411D8DAE29A7BBA336C392367626
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169195.jpgsave_picture_169195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169195.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Windows 7 SP1 with Update [7601.24563] AIO 44in2 (x86-x64) by adguard (v20.12.09
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169196.jpgsave_picture_169196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169196.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SnapMotion 4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169197.jpgsave_picture_169197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169197.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Overloud TH-U Premium 1.4.6 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169198.jpgsave_picture_169198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169198.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Borknagar - True North (2019) [FLAC|Lossless|image + .cue] <Black Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169199.jpgsave_picture_169199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169199.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Shokugeki no Souma | Food Wars | Кулинарные поединки Сомы 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169200.jpgsave_picture_169200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169200.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:55B42E3A969F0BB53048B58DC886953238C583CC
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169201.jpgsave_picture_169201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169201.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169202.jpgsave_picture_169202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169202.jpg" />
 </div>
 
 

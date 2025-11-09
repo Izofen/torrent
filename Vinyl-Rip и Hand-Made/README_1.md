@@ -6,7 +6,7 @@ Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5934.jpgsave_picture_5934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5934.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6182.jpgsave_picture_6182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6182.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpgsave_picture_6367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpgsave_picture_6475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpgsave_picture_6484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpgsave_picture_6498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpgsave_picture_6505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpgsave_picture_6584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6771.jpgsave_picture_6771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6771.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6893.jpgsave_picture_6893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6893.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Rain Of Acid - Studio Albums (2 releases) (2011-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6895.jpgsave_picture_6895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6895.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpgsave_picture_7028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpgsave_picture_7032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpgsave_picture_7037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7053.jpgsave_picture_7053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7053.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpgsave_picture_7083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7083.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7330.jpgsave_picture_7330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7330.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7390.jpgsave_picture_7390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7390.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Halestorm - Дискография (19 releases) (1997-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7562.jpgsave_picture_7562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7562.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tomarum - Ash in Realms of Stone Icons (2022) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7611.jpgsave_picture_7611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7611.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7636.jpgsave_picture_7636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7636.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7836.jpgsave_picture_7836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7836.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpgsave_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8044.jpgsave_picture_8044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8044.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpgsave_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8231.jpgsave_picture_8231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8231.jpg" />
 </div>
 
 

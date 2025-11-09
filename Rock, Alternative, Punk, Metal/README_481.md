@@ -6,7 +6,7 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247790.jpgsave_picture_247790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247790.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Vazeline - Кризис Кроссоверов (2025) [MP3|320 Kbps] <Punk r
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247815.jpgsave_picture_247815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247815.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247823.jpgsave_picture_247823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247823.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247840.jpgsave_picture_247840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247840.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247850.jpgsave_picture_247850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247850.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Fallen Lillies - Cran (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Metal, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247906.jpgsave_picture_247906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247906.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247916.jpgsave_picture_247916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247916.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248170.jpgsave_picture_248170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248170.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Gothic Romance vol.1-4 (The Best Goth Love Songs) (2009-2011) [MP3|151-320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248260.jpgsave_picture_248260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248260.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248421.jpgsave_picture_248421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248421.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248465.jpgsave_picture_248465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248465.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jane Air - 9 (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248547.jpgsave_picture_248547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248547.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248548.jpgsave_picture_248548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248548.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248549.jpgsave_picture_248549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248549.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248551.jpgsave_picture_248551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248551.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248553.jpgsave_picture_248553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248553.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248555.jpgsave_picture_248555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248555.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248560.jpgsave_picture_248560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248560.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpgsave_picture_248590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpgsave_picture_248592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition, Prospect Park [FLA
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248604.jpgsave_picture_248604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248604.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [FLAC 24/48
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248606.jpgsave_picture_248606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248606.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248756.jpgsave_picture_248756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248756.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248817.jpgsave_picture_248817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248817.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249140.jpgsave_picture_249140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249140.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Paradise Lost - 8 Albums + 1 Compilation (1990-2012) Japanese Editions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249262.jpgsave_picture_249262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249262.jpg" />
 </div>
 
 

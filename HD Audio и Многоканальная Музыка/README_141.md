@@ -6,7 +6,7 @@ VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109425.jpgsave_picture_109425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109425.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpgsave_picture_109439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpgsave_picture_109440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpgsave_picture_109455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cal Harris JR - Bridges (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109578.jpgsave_picture_109578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109578.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Instrumental Music Ensemble - Smoldering Erotic Jazz (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109581.jpgsave_picture_109581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109581.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Instrumental Jazz Music (Smooth Saxophone) (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109598.jpgsave_picture_109598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109598.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Reverend Shawn Amos - Soul Brother No. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109660.jpgsave_picture_109660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109660.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Neil Stout - Older and Bolder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109662.jpgsave_picture_109662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109662.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Sidekicks - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109663.jpgsave_picture_109663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mason Smart - The Third Rail (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109665.jpgsave_picture_109665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109665.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ironsmith - IRONSMITH (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109667.jpgsave_picture_109667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109667.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jimmy Kells - Vacation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109670.jpgsave_picture_109670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109670.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109671.jpgsave_picture_109671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109671.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chris Smither - All About the Bones (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109674.jpgsave_picture_109674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109674.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpgsave_picture_109676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Seventh Sunset - Hard Rock Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109681.jpgsave_picture_109681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109681.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpgsave_picture_109682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Real Blue - Silly slush swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109685.jpgsave_picture_109685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109685.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Sweet Peach Band - A Conversation With (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109688.jpgsave_picture_109688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109688.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109696.jpgsave_picture_109696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109696.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpgsave_picture_109702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sonic Universe - It Is What It Is (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109716.jpgsave_picture_109716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109716.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Firestorm - Rooted Future (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109717.jpgsave_picture_109717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109717.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Reflection of Flesh - We Are Legion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109719.jpgsave_picture_109719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109719.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Crownshift - Crownshift (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpgsave_picture_109723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpg" />
 </div>
 
 

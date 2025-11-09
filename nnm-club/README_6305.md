@@ -6,7 +6,7 @@ Shestov Systems, Михаил Шестов | Английский Pre-Intermedia
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197538.jpgsave_picture_197538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197538.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4A9CD3CC58579313C2CFDE74B470DCCA65BE61D1
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197539.jpgsave_picture_197539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197539.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:48A68309A4FD1A6F3DAB77BA61355A227512B94F
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpgsave_picture_197540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1CDBD01A535EE3087E6E950453B802AE12B71724
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197541.jpgsave_picture_197541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197541.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Color grading dao, Виталий Бужан | ПРОДВИНУТАЯ ЦВЕТО
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197543.jpgsave_picture_197543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197543.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CFEF7C9E8166D8273AD2A7251B81E2520DD65525
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197544.jpgsave_picture_197544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197544.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5B64798BE33F9F1A3DFAE5F603E144130064EDA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197545.jpgsave_picture_197545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197545.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3569F8C23A8AFAF44B91C8784C560B691D662FD5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197546.jpgsave_picture_197546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197546.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1039122FEC5503219548501C0CC14018BB495B05
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197547.jpgsave_picture_197547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197547.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:6FA23D624BC768E95851E9E68CBA3F67CBFAE4B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197548.jpgsave_picture_197548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197548.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:404950B5F363703A8B86B8A3AAB0321CD493FED5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197549.jpgsave_picture_197549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197549.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:99BD0406C8F9F7B11426F09AE6565104639CC83A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197550.jpgsave_picture_197550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197550.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:8E4865D5212131D312A8824BA53C92E7320CFE36
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197552.jpgsave_picture_197552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197552.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 11 PE x64 by Xemom1 (02.06.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197553.jpgsave_picture_197553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197553.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4254DAFBE5C1DCFE32DF7EE67CA5B08F0DF5341F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197554.jpgsave_picture_197554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197554.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197555.jpgsave_picture_197555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197555.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5DA0056834857C73B18BEF057317BF8DC230F4F1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197556.jpgsave_picture_197556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197556.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5179A963A3D750E649EDB1D8FFD3646EAE3CF1A9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197557.jpgsave_picture_197557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197557.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:71123D331BA3B906AEA763FF6959AE444828F0A7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197558.jpgsave_picture_197558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197558.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Apeiron, Алексей Арестович | Семинар «Искусство
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197559.jpgsave_picture_197559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197559.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F772AAA285F74B9A85EE5101E8B17F6E0389297A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197560.jpgsave_picture_197560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197560.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:EBA2B487A730C04380B52174CE0DA530B8884921
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197561.jpgsave_picture_197561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197561.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Hello Goodboy (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpgsave_picture_197562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:9F72149902D08D8BDAE4DFC5D938DD552441D6BD
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197563.jpgsave_picture_197563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197563.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:EE37A7435CAC30D24D5077DCDCBA5E66449FB06A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197564.jpgsave_picture_197564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197564.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:0BF026594AB76B8465863D7CF389F155DAA9054F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197565.jpgsave_picture_197565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197565.jpg" />
 </div>
 
 

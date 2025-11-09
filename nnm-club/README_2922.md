@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86220.jpgsave_picture_86220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86221.jpgsave_picture_86221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86221.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86222.jpgsave_picture_86222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86222.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86223.jpgsave_picture_86223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86223.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Painkiller: Абсолютное зло / Painkiller: Recurring Evil [Ru] 2012 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86226.jpgsave_picture_86226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86226.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:68A44286A92A6490B58040B109C2702443E849CD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86228.jpgsave_picture_86228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86228.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:017311B581618BAC66FE03133CDEE7FAD49A5C31
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86229.jpgsave_picture_86229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86229.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:017311B581618BAC66FE03133CDEE7FAD49A5C31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86230.jpgsave_picture_86230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86230.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Kuba Windows 7 themepack + Rocketdock by kubines 1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86233.jpgsave_picture_86233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86233.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Defenders of Ardania [En] (RePack/1.2) 2012 | Daytone
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86234.jpgsave_picture_86234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86234.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86236.jpgsave_picture_86236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86236.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:00EFD21B08BF5669E9A31462FBED35C8539FD0A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86237.jpgsave_picture_86237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86237.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Point Blank / Выстрел в упор 2010 {ver. от 18.07.2011} (L) [Ru] 20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86239.jpgsave_picture_86239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86239.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86240.jpgsave_picture_86240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86240.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86241.jpgsave_picture_86241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86241.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86242.jpgsave_picture_86242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86242.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86244.jpgsave_picture_86244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86244.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86246.jpgsave_picture_86246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86246.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86247.jpgsave_picture_86247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86247.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86249.jpgsave_picture_86249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86249.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WRC: FIA World Rally Championship Дилогия [Ru] (Lossless Repack) 2010-201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86250.jpgsave_picture_86250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86250.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86251.jpgsave_picture_86251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86251.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86252.jpgsave_picture_86252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86252.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86253.jpgsave_picture_86253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86253.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4A30619F8027F525A8056142CC8C6B66A2331FDC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86254.jpgsave_picture_86254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86254.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86255.jpgsave_picture_86255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86255.jpg" />
 </div>
 
 

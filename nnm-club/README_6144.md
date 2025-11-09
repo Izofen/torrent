@@ -6,7 +6,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193124.jpgsave_picture_193124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193124.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AB92EBA1FE520E2BD23903779DC5D7AB2A18FA03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193126.jpgsave_picture_193126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193126.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D15015290D9F535AD5C291C7FB545ACB5E590E2D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193127.jpgsave_picture_193127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193127.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:333104764E864E266B2D7DD98B805A16A91C986D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193128.jpgsave_picture_193128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193128.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:15568F3F49DDA987E6ED5A7F1FC97E50F56CDC3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193129.jpgsave_picture_193129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193129.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3777736759865171109C8E7E7BAE5CF523F3CD44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193130.jpgsave_picture_193130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193130.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Dan Patterson - Space Trail (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193131.jpgsave_picture_193131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193131.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193132.jpgsave_picture_193132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193132.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3B683B6241B56F55FD97020E275B49C08DD9D977
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193133.jpgsave_picture_193133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193133.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:00FFCC6DA90E55E2081C0B580E53EC0DC4B6247F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193134.jpgsave_picture_193134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193134.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193135.jpgsave_picture_193135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193135.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193136.jpgsave_picture_193136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193136.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Black Oak Arkansas - The Devil's Jukebox (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193137.jpgsave_picture_193137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193137.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193138.jpgsave_picture_193138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193138.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpgsave_picture_193139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Electron - Defiance (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193140.jpgsave_picture_193140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193140.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9D1EF7A14D0345EBE1E1C186A9E086DA42B97F56
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193141.jpgsave_picture_193141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193141.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpgsave_picture_193142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193143.jpgsave_picture_193143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193143.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7493FCF242736490BB0A91DAAE0ED9EDE8D429A1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193144.jpgsave_picture_193144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193144.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Tragic Forms - Arms 'Round The Armistice (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193145.jpgsave_picture_193145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193145.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:526489DCC11E301E04E7AEF1501DD3702D61A1BB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193146.jpgsave_picture_193146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193146.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Origin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193147.jpgsave_picture_193147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193147.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Timechild - Blossom & Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193148.jpgsave_picture_193148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193148.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:B64BB4331D7369F6545BB38D87747DD27E8C4597
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193149.jpgsave_picture_193149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193149.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:E7890F90CC64D101E65C85D9100A195FA7976CB9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193150.jpgsave_picture_193150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193150.jpg" />
 </div>
 
 

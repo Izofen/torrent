@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137351.jpgsave_picture_137351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137351.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A5BB451B2D1F2EA72F509ED7D5AD4D0E405DBFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137352.jpgsave_picture_137352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137352.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B8FF863D4FC743C56E7D80227E8BDEC331B70A10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137353.jpgsave_picture_137353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137353.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Little Snitch 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137354.jpgsave_picture_137354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137354.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D9CA65A5204474520126E68A90A4CD4288B74E3B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137355.jpgsave_picture_137355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137355.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Doogie White - Collection: 21 albums, 28 CD (2000-2019) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137356.jpgsave_picture_137356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137356.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:357AE10BA945C91B2FB842B80BB0D527A120822E
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137357.jpgsave_picture_137357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137357.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F387FB256873B6F1518AAE82980F5694A23499C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137358.jpgsave_picture_137358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137358.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137359.jpgsave_picture_137359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpgsave_picture_137360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137362.jpgsave_picture_137362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137362.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C3B18A6DA7D97B40D3B1A691293191F2ED1EDC7F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137363.jpgsave_picture_137363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137363.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:FC8BE60DE7A796293A2FC14ED0B65538A648E236
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137364.jpgsave_picture_137364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137364.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A33542102DA1602DE6884CB0CE24336FFA8DA275
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137365.jpgsave_picture_137365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137365.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:47137AF69673267BFDCC2F3FABFCD70FA7F83423
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpgsave_picture_137366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A0F6FC4B9D357D55D384658B8D602328D8C2D82E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137367.jpgsave_picture_137367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137367.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B4621002E74ED5403F4BE843CD1CBBA6D1B7B75A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137368.jpgsave_picture_137368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137368.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CleanMyMac 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137369.jpgsave_picture_137369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137369.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:F38C70BA19BF080057A6E1DE32FCA031912CF93B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137370.jpgsave_picture_137370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137370.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B38825856D90855A29D305D331CB5253062F5A26
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137371.jpgsave_picture_137371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137371.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Delta Force Anthology / Антология Отряд Дельта (1998-2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137372.jpgsave_picture_137372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137372.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137373.jpgsave_picture_137373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137373.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137374.jpgsave_picture_137374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137374.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E552697B2A9C37A5BFAA546BD8216FBE3BD70B12
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137375.jpgsave_picture_137375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137375.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:73B33A2210E599ECC7C82279B7EF477E9910A7DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137376.jpgsave_picture_137376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137376.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ PaperColor v2.5.4 Mod by bahguo [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137377.jpgsave_picture_137377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137377.jpg" />
 </div>
 
 

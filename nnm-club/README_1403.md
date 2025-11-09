@@ -6,7 +6,7 @@
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36833.jpgsave_picture_36833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CCleaner 6.30.11385 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36834.jpgsave_picture_36834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:37D3127845B39FA3160D33C74A01E63D042211A1
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36835.jpgsave_picture_36835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36835.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01D81DFA970C8FF18CD9B36593D29EB127064D6C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36836.jpgsave_picture_36836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36836.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36837.jpgsave_picture_36837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36837.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Windows Server 2025 LTSC [10.0.26100.2314], Version 24H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36838.jpgsave_picture_36838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tor Browser Bundle 14.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36839.jpgsave_picture_36839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36839.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E5CA373D15C6664B5B862EDDB1CB9856CB592A8F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36840.jpgsave_picture_36840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36840.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E5CA373D15C6664B5B862EDDB1CB9856CB592A8F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36841.jpgsave_picture_36841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36841.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E5CA373D15C6664B5B862EDDB1CB9856CB592A8F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36842.jpgsave_picture_36842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36842.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:79EF2BE0F0C2DDBFE1155425D7412C131A0FAE30
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36843.jpgsave_picture_36843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36843.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Windows 11 [10.0.22631.4460], Version 23H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36844.jpgsave_picture_36844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36844.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4DE4323AF512444A67A57BB5C2D3D6CFD8E67A7F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36845.jpgsave_picture_36845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36845.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:0F8EE5F2224DAFE06E6EA78A8FF532D1A9FCE0B0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36846.jpgsave_picture_36846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36846.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NG: Война генералов. Битва за Курск / Generals at War.
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36847.jpgsave_picture_36847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36847.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F96DC7E58DBB111ACC034F4FED55E00769A634B4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36848.jpgsave_picture_36848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36848.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3CE82742983A99B585B7A1FB82FA4BC51892D3D6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36849.jpgsave_picture_36849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36849.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ kiloHearts Subscription 2.3.0 VST/VSTi, VST 3/VSTi 3, AAX (x64) RePack by R2R [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36850.jpgsave_picture_36850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36850.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36851.jpgsave_picture_36851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36851.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7FDE657EF6C8259A81B3A838A28DA4319A20ACAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36852.jpgsave_picture_36852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36852.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:68E1DD05B3ABE5901438E833F421D8997677640C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36853.jpgsave_picture_36853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36853.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Sonic Academy - KICK 3 1.0.0 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36854.jpgsave_picture_36854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36854.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:02141E28013C57363DEFA368282CD92A12F7A758
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36855.jpgsave_picture_36855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36855.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:CC9FD94A878A5D9B7B74543700654B10350CF3B6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36856.jpgsave_picture_36856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36856.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36857.jpgsave_picture_36857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36857.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36858.jpgsave_picture_36858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36858.jpg" />
 </div>
 
 

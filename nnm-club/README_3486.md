@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110997.jpgsave_picture_110997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Loch Vostok - Opus Ferox II - Mark of the Beast (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110998.jpgsave_picture_110998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110998.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:52E9E04A33F7A915F0940131C14A89A0459C172B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110999.jpgsave_picture_110999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110999.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:FC29C98052F0922828C57B8FE1A6EDD2DD5B032E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111000.jpgsave_picture_111000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111000.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Caspar McCloud Band - Immortality (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111001.jpgsave_picture_111001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111001.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111002.jpgsave_picture_111002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111002.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Hartlight - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111003.jpgsave_picture_111003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111003.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:DDC2C3332C4F933429C327C7BD1F72727135C357
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111004.jpgsave_picture_111004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111004.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:7C467BD8C4C9C41403073A2C9997C10A5216C106
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111005.jpgsave_picture_111005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111005.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Atrae Bilis - Aumicide (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111006.jpgsave_picture_111006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111006.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111007.jpgsave_picture_111007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111007.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111008.jpgsave_picture_111008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111008.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Atrae Bilis - Divinihility (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111009.jpgsave_picture_111009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111009.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Atrae Bilis - Apexapien (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111010.jpgsave_picture_111010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111010.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:96C32B592407643656A94416FD898C9DEFB5286C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111011.jpgsave_picture_111011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111011.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ravage - Spider on the World (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111012.jpgsave_picture_111012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111012.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Firefox Browser 125.0.2 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111013.jpgsave_picture_111013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111013.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Privacy Eraser Free 6.6.0 Build 4900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111014.jpgsave_picture_111014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111014.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:4D59130917300F143465692F26D719B49345F7B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111015.jpgsave_picture_111015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111015.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5FD835AB538D6BDEBFE9B0B9FE7B4AE9C4524C49
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111016.jpgsave_picture_111016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111016.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:DAD0B988AA949C7684F72744DBEC95F3D1EA3035
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111017.jpgsave_picture_111017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111017.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:6B0330888971562EE09E36E75D38753C50EE46BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111018.jpgsave_picture_111018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111018.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111019.jpgsave_picture_111019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111019.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E7CE0DA6A30BE27B8387B93B9ABB4580A443773E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111020.jpgsave_picture_111020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111020.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:313724DE4653CB67DE72AD3CBD4AB1C319BD6808
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111021.jpgsave_picture_111021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111021.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpgsave_picture_111022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpg" />
 </div>
 
 

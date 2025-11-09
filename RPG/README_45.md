@@ -6,7 +6,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpgsave_picture_194512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194599.jpgsave_picture_194599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194599.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpgsave_picture_194658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpgsave_picture_194662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpgsave_picture_194707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194894.jpgsave_picture_194894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194894.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpgsave_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpgsave_picture_195307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195345.jpgsave_picture_195345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195345.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpgsave_picture_195395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195658.jpgsave_picture_195658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195658.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpgsave_picture_196015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpgsave_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196203.jpgsave_picture_196203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196203.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpgsave_picture_196294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpgsave_picture_196691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpgsave_picture_196768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196807.jpgsave_picture_196807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196807.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mask of the Rose (2023) [En] (1.2.664) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpgsave_picture_196935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpgsave_picture_197258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bastard Bonds (2016) [En] (1.2.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpgsave_picture_197334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpgsave_picture_197342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpgsave_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpgsave_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fuga: Melodies of Steel 2 (2023) [Multi] (1.02/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197479.jpgsave_picture_197479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197479.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpgsave_picture_197788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpg" />
 </div>
 
 

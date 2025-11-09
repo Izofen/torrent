@@ -6,7 +6,7 @@ Bulletsize - Respawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205293.jpgsave_picture_205293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205293.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mantic Ritual - Executioner (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205295.jpgsave_picture_205295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B73B02EE33C98E4B143EAFE9A70BC04E0583219C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205298.jpgsave_picture_205298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205298.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RJ TextEd 15.93.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205300.jpgsave_picture_205300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205300.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:2DAA72E76B77E95B4B3C99878F3B4679D86A3540
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205301.jpgsave_picture_205301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205301.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Widgetter - Desktop Widgets for Mac 1.14.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205304.jpgsave_picture_205304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205304.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:E7CFBA403C55889DF769D63C7CCE957CA3B5B47E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205305.jpgsave_picture_205305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205305.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ MotoGP. Этап 10. Гран-при Австрии. Спринт (19.08.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205308.jpgsave_picture_205308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205308.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ MotoGP. Этап 10. Гран-при Австрии. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205309.jpgsave_picture_205309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205309.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:DCA5C3826A9CD436716704DB45CC102DB0BD94C2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205311.jpgsave_picture_205311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205311.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:DC4FBB84F297708677EE43F05087E324DC90E391
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205314.jpgsave_picture_205314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205314.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ PhotoRoom 4.6.5 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205316.jpgsave_picture_205316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205316.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:FAC204B0F0F6CDAAC113C5ECB664A26AC09FC70D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205318.jpgsave_picture_205318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205318.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:30951297CF5EC0C0AA9D7E17C2B458D61EEA052F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205320.jpgsave_picture_205320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205320.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Tsjuder - Helvegr (2023) 2 x CD [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205322.jpgsave_picture_205322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205322.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:4C9AAD735D4EAC50BAE880E96A11B86A949BF2D8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205323.jpgsave_picture_205323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205323.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Defiants - Zokusho (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205325.jpgsave_picture_205325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205325.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Aspect Ratio Calculator for Mac 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205327.jpgsave_picture_205327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205327.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ timeLAPSE for Mac 2.66 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205329.jpgsave_picture_205329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205329.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:53F417669DDE42705FC883F079ABCD0187CEF495
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205331.jpgsave_picture_205331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205331.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BarLinks: Menu Bar Bookmarks 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205333.jpgsave_picture_205333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205333.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Persecond for Mac 1.6 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205336.jpgsave_picture_205336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205336.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:58AD1DD671CF051E479E98F3C3F0AB8F00268E3B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205343.jpgsave_picture_205343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205343.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Everyone Piano 2.5.8.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205345.jpgsave_picture_205345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205345.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:17391A5C392E7C60E01D0D1CF31B841B5A764B9B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205346.jpgsave_picture_205346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205346.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Chromium 116.0.5845.97 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205348.jpgsave_picture_205348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205348.jpg" />
 </div>
 
 

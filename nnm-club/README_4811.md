@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150556.jpgsave_picture_150556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:31C5599B8201194EE990D20CBB07EF5631A09FED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150557.jpgsave_picture_150557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150557.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MotoGP. Этап 19. Гран-при Катара. Квалификация (18.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150558.jpgsave_picture_150558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150558.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:36BE14D78BD205BBCA758D402F1D19B565CC9264
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150559.jpgsave_picture_150559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150559.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150560.jpgsave_picture_150560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150560.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:97E585A78DF1DD635184E6FA94A55EA6E924C8D8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150561.jpgsave_picture_150561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150561.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150562.jpgsave_picture_150562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150562.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:760A55226E3327F17C12A90ADB016A0E2639B710
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150563.jpgsave_picture_150563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150563.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150564.jpgsave_picture_150564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150564.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150565.jpgsave_picture_150565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150565.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Destructor - Blood, Bone, And Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150566.jpgsave_picture_150566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150566.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Sydra - Call of the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150567.jpgsave_picture_150567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150567.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150568.jpgsave_picture_150568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150568.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150569.jpgsave_picture_150569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150569.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:154BFA258670BB985B0F3236CC93781776D04564
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150570.jpgsave_picture_150570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150570.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150571.jpgsave_picture_150571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150571.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:8ED5B93ECC42ECAA00E94C798D45C27F58816A8B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150572.jpgsave_picture_150572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150572.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Dyecrest - The Way of Pain (2004) [APE|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150573.jpgsave_picture_150573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150573.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Repossession - Repossession (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150574.jpgsave_picture_150574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150574.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150575.jpgsave_picture_150575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150575.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150576.jpgsave_picture_150576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150576.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150577.jpgsave_picture_150577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150577.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:57DA1F84849BBD8BAFCA916B8002F5430D668055
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150578.jpgsave_picture_150578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150578.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:C7AE47F551B94E33F3C7ED9C0A174861000CEC99
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150579.jpgsave_picture_150579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150579.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9DA7299208363A9AB302A12D106F75F2E5DC37A5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150580.jpgsave_picture_150580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150580.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:76A0E5CEFB01FDF3388BCD4D071EE85BBEB04948
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150582.jpgsave_picture_150582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150582.jpg" />
 </div>
 
 

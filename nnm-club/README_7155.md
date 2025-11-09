@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244980.jpgsave_picture_244980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED4706FF278E9C52F977668656D8A0C9498E1FE9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244981.jpgsave_picture_244981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244981.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blender 3.3.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244982.jpgsave_picture_244982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244982.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:003B0D93B384EF616DE96D2A2102356988B7733B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244983.jpgsave_picture_244983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244983.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Chill Mode On No.2 (Selected by Smooth Deluxe) (2023) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244984.jpgsave_picture_244984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244984.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Halloween Beats Vol.2 (The Biggest Tech-Trance & Electro Madness) (2016) [M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244985.jpgsave_picture_244985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244985.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:B776C5C62BE6E3C582E17E8374E2EC4E0D0BEC9F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244986.jpgsave_picture_244986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244986.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ammonite 1.22.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244987.jpgsave_picture_244987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244987.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ V.A. - Cafe Del Mar Essentials (Collection) (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244988.jpgsave_picture_244988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244988.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244989.jpgsave_picture_244989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244989.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ CryptoEdit 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244990.jpgsave_picture_244990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244990.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Librarian Pro 4 v4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244991.jpgsave_picture_244991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244991.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Kerish Doctor 2022 4.90 (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244992.jpgsave_picture_244992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244992.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3B5A339F55A07ECD4FBBB95CDAEB165B4C7AAEDC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244993.jpgsave_picture_244993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244993.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244994.jpgsave_picture_244994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244994.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ BackupLoupe 3.5.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244995.jpgsave_picture_244995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244995.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:CDFDCC89608F360622DA27C12C55C982FFE90EE8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244996.jpgsave_picture_244996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244996.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpgsave_picture_244997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ WinTools.net Premium 22.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244998.jpgsave_picture_244998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244998.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Attick Demons - 5 Studio Albums (2000-2020) 5xCD [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244999.jpgsave_picture_244999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244999.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Neil Cowley Trio - Spacebound Apes (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245000.jpgsave_picture_245000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245000.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Leprous - Aphelion (Tour Edition) (2023) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <Pr
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245001.jpgsave_picture_245001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245001.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:118B7EACD99BE8D34A97DB7570BDA3A24C676483
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245002.jpgsave_picture_245002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245002.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:ED0AF9108B95F85F415EE8AE8081222DA2A025CE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245003.jpgsave_picture_245003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245003.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B9200766A00C90BD43A08C3641F95610B445585D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245004.jpgsave_picture_245004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245004.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Google Chrome 111.0.5563.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245005.jpgsave_picture_245005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245005.jpg" />
 </div>
 
 

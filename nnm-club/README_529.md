@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14041.jpgsave_picture_14041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14041.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI Pro 8.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14042.jpgsave_picture_14042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14042.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:42072AE48A8062D08E44B2CCF84D4AC1216E34C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14043.jpgsave_picture_14043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14043.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Oirbo (2023) [En] (1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14044.jpgsave_picture_14044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14044.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B8DE495A01C9AFF31F74130E553E0D723110B213
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14045.jpgsave_picture_14045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14045.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E517246211F0DD29B4F48D4551525A2FAC508999
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14046.jpgsave_picture_14046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14046.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ StartAllBack 3.9.11 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14047.jpgsave_picture_14047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14047.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6D3AE31C4256D0D9CE5F11AD6AD40F3D701A7F1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14048.jpgsave_picture_14048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14048.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14049.jpgsave_picture_14049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14049.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:37E10BDAE4B9614CCB34221A4E598D298B3C5024
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14050.jpgsave_picture_14050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14050.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9E3C4039CA55163B1457C876E91D0A2EB22D19FB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14051.jpgsave_picture_14051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14051.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14052.jpgsave_picture_14052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14052.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7974D2C9CA359F6CD83D56C15F1492CB0BC15FA8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14053.jpgsave_picture_14053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14053.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:FB752208F963FE7953D843644C8F36BFFB8E27F3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14054.jpgsave_picture_14054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14054.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14055.jpgsave_picture_14055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14055.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EE6F7121CCFC9C9FAF0EA98BE72C0C966DB0249B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14056.jpgsave_picture_14056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14056.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:CB70EF52B4C24FDA47D6F28336E43C5E6111A7A3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14057.jpgsave_picture_14057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14057.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:0CC90864BE7EC817E00C66431C5035375A382525
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14058.jpgsave_picture_14058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14058.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 3
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14059.jpgsave_picture_14059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14059.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:5D3452D037A27F5EB75AC1C15E7C1063F7BDED56
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14060.jpgsave_picture_14060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14060.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14061.jpgsave_picture_14061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14061.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:78B760826256CE663725149CBEB5A944ECE2D952
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14062.jpgsave_picture_14062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14062.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Windows 10 3in1 x64 22Н2 (build 19045.6029) by ivandubskoj 17.06.2025 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14063.jpgsave_picture_14063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14063.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:63EA7926AF17E1406195D2926F6573979853C136
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14064.jpgsave_picture_14064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14064.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:EE96DB95C6FF4C18A5FECC062F4AEBDF895466E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14065.jpgsave_picture_14065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14065.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (20.06.2025) RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14066.jpgsave_picture_14066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14066.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127929.jpgsave_picture_127929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan | Бродяга Кэнсин [ТВ-2] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127930.jpgsave_picture_127930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127930.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5FE610EC7221BF96734A95CCB34BFF466FC52DCC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127931.jpgsave_picture_127931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127931.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:05EC21A2EF212A610AB96A1379EBD4EFDC19D4E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127932.jpgsave_picture_127932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127932.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D60B7F37489016CBBBC2EA4825FA1F6E21C2CF78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127933.jpgsave_picture_127933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127933.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:39AFF71D1D9CD9534CEA233BF36DFDEACAEF7FD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127934.jpgsave_picture_127934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127934.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127935.jpgsave_picture_127935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B038397C4E644808C01DCDE50182E68BF885401D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127936.jpgsave_picture_127936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127936.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:FF755CD3D2A4AB3509D1FAFFD2A6E3F212AFDBF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127937.jpgsave_picture_127937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127937.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-b
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127938.jpgsave_picture_127938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127938.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127939.jpgsave_picture_127939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127939.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ HWiNFO 7.67 Build 5290 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127940.jpgsave_picture_127940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127940.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpgsave_picture_127941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127942.jpgsave_picture_127942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127942.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:350CEDE794867ABF1B3FE968F49F268215AD9877
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127943.jpgsave_picture_127943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127943.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:933B122BECE74A81F21861A312900DC000B065E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127944.jpgsave_picture_127944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127944.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:61A1BD8437A8E06522882717E4B8E568F02037E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127945.jpgsave_picture_127945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127945.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpgsave_picture_127946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpgsave_picture_127947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127948.jpgsave_picture_127948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127948.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpgsave_picture_127949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127950.jpgsave_picture_127950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127950.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:6AD9DA7AF19D7DE337958AB7FA17FF522973BEA2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127951.jpgsave_picture_127951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127951.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpgsave_picture_127952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127953.jpgsave_picture_127953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127953.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:E1467F24DAA3859DD262BAF0920D8F7B0600B10B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127954.jpgsave_picture_127954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127954.jpg" />
 </div>
 
 

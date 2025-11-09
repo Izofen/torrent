@@ -6,7 +6,7 @@ Daiistar - Good Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ und Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190211.jpgsave_picture_190211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190211.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Majesty of Revival - Timeless (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190217.jpgsave_picture_190217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190217.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpgsave_picture_190219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpgsave_picture_190230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ A Canorous Quintet - The Only Pure Hate MMXVIII (2018) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190231.jpgsave_picture_190231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190231.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A9C1339532950F9129EE50884C07EBC5A1248021
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190236.jpgsave_picture_190236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190236.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Faetooth - Remnants of the Vessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190408.jpgsave_picture_190408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190408.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Reabilitator - Mentally Defected (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190410.jpgsave_picture_190410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190410.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ice Giant - Ghost of Humanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190483.jpgsave_picture_190483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190483.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fleetwood Mac - Rumours Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190513.jpgsave_picture_190513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190513.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OOMPH! - Richter und Henker (2023) [MP3|320 Kbps] <Industrial Metal, Neue Deutsc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190528.jpgsave_picture_190528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190528.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Patti Smith - 4 Albums (2023) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190532.jpgsave_picture_190532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190532.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3E5B36BA8CE8B148C2624EAF4F582C56E8EF3405
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpgsave_picture_190542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pearl Jam - Soldier Field, Chicago 1995 (2023) [MP3|320 Kbps] <Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190548.jpgsave_picture_190548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190548.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Myrath - Karma (2023) [MP3|320 Kbps] <Oriental Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190556.jpgsave_picture_190556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190556.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gary Del Vecchio - Buzzin (2023) [MP3|320 Kbps] <Proto Hard, Psych, Prog, Garage
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190558.jpgsave_picture_190558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190558.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Saliva - Revelation (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190580.jpgsave_picture_190580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190580.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Spirit Adrift - Ghost at the Gallows (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190582.jpgsave_picture_190582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190582.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Frederic Slama's AOR - Bewitched In L.A. (2023) [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190588.jpgsave_picture_190588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190588.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Frank Zappa - Live... New York 1984 (2023) [MP3|320 Kbps] <Rock, Pop Rock, Garag
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190589.jpgsave_picture_190589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190589.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sylosis - A Sign of Things to Come (2023) [MP3|320 Kbps] <Melodic Death Metal, T
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190592.jpgsave_picture_190592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190592.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Blackwell - Blackwell (1970) [MP3|320 Kbps] <Psychedelic Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190594.jpgsave_picture_190594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190594.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mud - Let's Have A Party - The Best Of Mud (1990) 2023, Parlophone UK [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190598.jpgsave_picture_190598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190598.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eternal Voyager - Darkened Times (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190600.jpgsave_picture_190600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190600.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190602.jpgsave_picture_190602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190602.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190604.jpgsave_picture_190604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190604.jpg" />
 </div>
 
 

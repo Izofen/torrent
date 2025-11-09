@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91261.jpgsave_picture_91261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91261.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CD1DEA5C5FA2A5CD920115B5081A9BABC3298AD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91262.jpgsave_picture_91262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91262.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D87D78C91718F97866E08844AB18BA85866467DB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91263.jpgsave_picture_91263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91263.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Soft Organizer Pro 10.31 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91264.jpgsave_picture_91264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91264.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C2E73784ECA06CF14BE888A2DA1BB81B4B8CE7A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91265.jpgsave_picture_91265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91265.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BB23B09C2910516142720CAB400CE2472B176323
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91266.jpgsave_picture_91266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91266.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A35502D836350E4B83983B91FD3A1E2E804F8106
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91267.jpgsave_picture_91267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91267.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5C6FC59A7619BB6E891A592C1BBCC4D1CF0241E3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91268.jpgsave_picture_91268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91268.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D5484F20C801D7358EB9C870453A19F38C0A3E65
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91269.jpgsave_picture_91269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91269.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:4C841D5FD5246EB252F35C9AABFACD549BF2B030
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91270.jpgsave_picture_91270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91270.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A69C5490B1933DB646BA954AD649ACC85ACEDF2B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91271.jpgsave_picture_91271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91271.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3B0701B0783199BA4AEACFE33244F19DFFAD2378
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91272.jpgsave_picture_91272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91272.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:490EA1D97578CB902426AFE323CA4A1366607710
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91273.jpgsave_picture_91273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91273.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:5A2DA4D83DC961AFECF24A8A7198E30425870FC7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91274.jpgsave_picture_91274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91274.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:914251D9C0454893AC92D8076E87BEB2BEB8EE21
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91275.jpgsave_picture_91275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91275.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91276.jpgsave_picture_91276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91276.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpgsave_picture_91277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91278.jpgsave_picture_91278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91278.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:71FA48A6652D8C2CB89954F1AC7CE2088D8318F6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91279.jpgsave_picture_91279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91279.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:3BC87674EC27B2721B0882ABFE39F197B2F6E940
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91280.jpgsave_picture_91280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91280.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91281.jpgsave_picture_91281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91281.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91282.jpgsave_picture_91282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91282.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A01A62450CA1BEE195723DFAC33EA5E8235D481C
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91283.jpgsave_picture_91283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91283.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:8B43D052EA749FF212098AD050D3A7B7A18E58E6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91284.jpgsave_picture_91284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91284.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Reg Organizer 9.86 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91285.jpgsave_picture_91285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91285.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91286.jpgsave_picture_91286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91286.jpg" />
 </div>
 
 

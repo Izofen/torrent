@@ -6,7 +6,7 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81867.jpgsave_picture_81867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81872.jpgsave_picture_81872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81872.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:011858B532EFDCB7E1C8EFCBA87E6D721057EA76
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81874.jpgsave_picture_81874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81874.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ magnet:?xt=urn:btih:DA435A0965AD284350488643A04D65F90F09374D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81875.jpgsave_picture_81875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81875.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81876.jpgsave_picture_81876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81876.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81879.jpgsave_picture_81879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81879.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:1714AC60CF633A06467B9D0A0FFB753E7F0B98F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81881.jpgsave_picture_81881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81881.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:A702BF8163EC2F3BA574B3AECEC4EDF9847FB453
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81882.jpgsave_picture_81882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81882.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:A702BF8163EC2F3BA574B3AECEC4EDF9847FB453
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81885.jpgsave_picture_81885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81885.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81893.jpgsave_picture_81893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81893.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ A Stroke Of Fate 2 [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81894.jpgsave_picture_81894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81894.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:7C0E51EF257CD3B36176EABF1CB71E1FEBC983E0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81895.jpgsave_picture_81895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81895.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4900C1AA121FB2EA56F5B68D39F2A0EF2B595D0A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81897.jpgsave_picture_81897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:1CB2AF6DCF97E718BED10ABD6DE52707F3EFFC9E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81901.jpgsave_picture_81901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81901.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1CB2AF6DCF97E718BED10ABD6DE52707F3EFFC9E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81904.jpgsave_picture_81904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81904.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.1 [MIDI, WAV Samles][англий�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81905.jpgsave_picture_81905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81905.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.1 [MIDI, WAV Samles][англий�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81908.jpgsave_picture_81908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81908.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81909.jpgsave_picture_81909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81909.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9D4251259E3D170C2365EC18685880B9B8389BA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81911.jpgsave_picture_81911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81911.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9D4251259E3D170C2365EC18685880B9B8389BA5
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81913.jpgsave_picture_81913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81913.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:7295C50CFC55EB454AEB085B162A2DDBF9CFE806
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81914.jpgsave_picture_81914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81914.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpgsave_picture_81918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81919.jpgsave_picture_81919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81919.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81924.jpgsave_picture_81924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81924.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5D19DBFDD74FA55E379CA0F027CD25DE39EC391E
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81926.jpgsave_picture_81926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81926.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:5BF174E9CB01894627055C3FD0BA6DE6DEBA3E80
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81930.jpgsave_picture_81930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81930.jpg" />
 </div>
 
 

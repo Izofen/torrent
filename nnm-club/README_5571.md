@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171834.jpgsave_picture_171834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171834.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:88EFEC11F8DE778454BC2A7319208DE4211E5DD0
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171835.jpgsave_picture_171835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171835.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:88EFEC11F8DE778454BC2A7319208DE4211E5DD0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171836.jpgsave_picture_171836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171836.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1A0E265FDCC9C437967AFBDFE2A5C51EB9F79AA6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171837.jpgsave_picture_171837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171837.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:033E95ACDE627CB5B2F834D71A4233C9F50ADD87
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171838.jpgsave_picture_171838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171838.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:AD1B99353FE150E5392394BD65FDD1F81999A750
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171839.jpgsave_picture_171839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171839.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ SovaFilm, Алексей Кузьмин | Эффективная самообо�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171840.jpgsave_picture_171840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171840.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ DBeaver Ultimate Edition 23 for Mac v.23.2 Intel/ARM [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171841.jpgsave_picture_171841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171841.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Windows 10 Manager 3.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171842.jpgsave_picture_171842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171842.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C3EDBB8CE083A4D9AECC636EAFA7ADA617F0D430
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171843.jpgsave_picture_171843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171843.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Psiphon 3 build 180 (20.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171844.jpgsave_picture_171844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171844.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171845.jpgsave_picture_171845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171845.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sense flip clock & weather v6.34.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171846.jpgsave_picture_171846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171846.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E4A9B20F36811DC41207C4F002885522F274DDB2
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171847.jpgsave_picture_171847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171847.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:3523D709736C2FCF74340790EEF8BC3C11424579
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171848.jpgsave_picture_171848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171848.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Sense V2 Flip Clock & Weather v6.35.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171849.jpgsave_picture_171849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171849.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B624D59CE12702F57F861ECDF4981CD83432C5A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171850.jpgsave_picture_171850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171850.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:BF271736EE7F7FBB6DEFAE5328AF5E9D870ECE6E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171851.jpgsave_picture_171851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171851.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DxO PhotoLab Elite 7.0.2 build 83 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171852.jpgsave_picture_171852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171852.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C9A6D9D01A7F21402BB9F072FB5F0419C5B67748
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171853.jpgsave_picture_171853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171853.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:6D6C69E5D87616790EFB6A502B3DB83BE07F1699
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171854.jpgsave_picture_171854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171854.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:9B8F9579A323F2F48C30F2B33659BA1DF393A9BC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171855.jpgsave_picture_171855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171855.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:DCB2C7891DCEC7B0A04A465940BC2EEDC93571DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171856.jpgsave_picture_171856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171856.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9A3B290FA3DB1C0980F27FF8B9FA87ADFF2B3B8E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171857.jpgsave_picture_171857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171857.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ AIDA64 Extreme Edition 6.92.6618 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171858.jpgsave_picture_171858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171858.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171859.jpgsave_picture_171859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171859.jpg" />
 </div>
 
 

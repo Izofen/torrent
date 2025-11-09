@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240604.jpgsave_picture_240604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240604.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sulfure - Anthropocene (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240605.jpgsave_picture_240605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0026DFABF22FB45A57A3047D1573F885BBDBC42D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240606.jpgsave_picture_240606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240606.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DE2674DB642E108D29167398B177A62E9A1BA78C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240607.jpgsave_picture_240607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240607.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:ABB7862517E8EE1EADD3707279AF163B184761F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240608.jpgsave_picture_240608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240608.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:898DB66C2FF0FB87F97BD8198BC7692539F9964E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240609.jpgsave_picture_240609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240609.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1C6A7F76B6E1FE63E928EC8FB6843EA06F9A627F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240610.jpgsave_picture_240610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240610.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Night Demon - Live Darkness (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240611.jpgsave_picture_240611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240611.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:FB052A1F715A32BD454F692128B7F8EA665B0EF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240612.jpgsave_picture_240612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240612.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Twyster - Lunatic Siren (2002) [WavPack|Lossless|image + .cue] <Power Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240613.jpgsave_picture_240613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240613.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Lord Loud - Timid Beast (2020) [MP3|320 Kbps] <Stoner Rock, Heavy Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240614.jpgsave_picture_240614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240614.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Microsoft Visual Studio 2022 Enterprise 17.5.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240615.jpgsave_picture_240615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240615.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Wingfox, Job Menting | Creating a Cyberpunk City with C4D and PS (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240616.jpgsave_picture_240616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240616.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lee Small - The Last Man On Earth (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240617.jpgsave_picture_240617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240617.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Spotify 1.2.9.739 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240618.jpgsave_picture_240618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240618.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Silverstein - Misery Made Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240619.jpgsave_picture_240619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240619.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Embalm - Prelude to Obscurity (2022) Compilation, 20 Buck Spin [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240620.jpgsave_picture_240620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240620.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Blaze To Raise - Blaze to Raise (2023) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240621.jpgsave_picture_240621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240621.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MailWasher Pro 7.12.131 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240622.jpgsave_picture_240622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240622.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240623.jpgsave_picture_240623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240623.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Peter Hermansson - Second Glance (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240624.jpgsave_picture_240624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240624.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Topaz Video AI 3.2.8 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240625.jpgsave_picture_240625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240625.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Wynton Kelly - Piano Interpretations (1951) 1991, Blue Note [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240627.jpgsave_picture_240627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240627.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:E5D66A31A032D1F47280DC2B99DD50D459AD8242
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240628.jpgsave_picture_240628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240628.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:0E5FA4343833A7D112CE7D091A76E9CAD50C0085
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240629.jpgsave_picture_240629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240629.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:F26AC591B333D7CD089413B4ECD2044BF211FFC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240630.jpgsave_picture_240630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240630.jpg" />
 </div>
 
 

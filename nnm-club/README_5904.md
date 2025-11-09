@@ -6,7 +6,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185925.jpgsave_picture_185925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185925.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ QOwnNotes 23.9.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185927.jpgsave_picture_185927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185927.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D56576676DCBE0ACD91556D3D93CD7802AF8C80C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185928.jpgsave_picture_185928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185928.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ HDCleaner 2.058 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185930.jpgsave_picture_185930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185930.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SRWare Iron 116.0.5900.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185933.jpgsave_picture_185933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185933.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185935.jpgsave_picture_185935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185935.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:061BD3D5E9319B6405B280E44BC833F0F2C5281C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185937.jpgsave_picture_185937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185937.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1EE61ECF54FCAD34439D6A6530B609782E0F66AF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185941.jpgsave_picture_185941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185941.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Strawberry 1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185945.jpgsave_picture_185945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185945.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:21338E30F493DA88702BFC092DACDD2A3254776C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185948.jpgsave_picture_185948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185948.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D50932E19C8023C3B9327815CC5E5F4F78B8F0BD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185951.jpgsave_picture_185951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185951.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185954.jpgsave_picture_185954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185954.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ OneCommander Pro 3.53.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185957.jpgsave_picture_185957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185957.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F7EEADB8DC81E37F4BB53CBE190306AEC920A97D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185960.jpgsave_picture_185960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185960.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:79547A18B70BF974B5B09E95F402C4CCF8ADB761
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185962.jpgsave_picture_185962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185962.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185966.jpgsave_picture_185966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185966.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Akiko Grace - Jazz Street: The Duo+ (2002) [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185969.jpgsave_picture_185969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185969.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpgsave_picture_185972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185975.jpgsave_picture_185975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185975.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:A8172DC74AF45D6EF399E373677502E05DA091A5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185978.jpgsave_picture_185978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185978.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BF222C970BB9BBC2374E46056389B3F2DDF7038A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185981.jpgsave_picture_185981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185981.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:1420F851DC49683A15E2000575775337AB17F986
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185984.jpgsave_picture_185984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185984.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Icecream Slideshow Maker PRO 5.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185987.jpgsave_picture_185987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185987.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Atrophy - Lexical Occultation 1.618 The Veil From Beyond (2009) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185989.jpgsave_picture_185989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185989.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:0C78852B7532F04A4C6D38CFBB52E674022F1CCB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185993.jpgsave_picture_185993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185993.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:85F6C3DDCD4BBEF411DEADFF7A7FAA4AA9BD5477
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185995.jpgsave_picture_185995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185995.jpg" />
 </div>
 
 

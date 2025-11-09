@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14093.jpgsave_picture_14093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14093.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D83CBDF3E1CCB1F25FA23F381FD55D9CAA8DD93
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14094.jpgsave_picture_14094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14094.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2A6F78FF91DA3A348C5A44EDADF9BABFD82B06C1
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14095.jpgsave_picture_14095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14095.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:16A06B20C747184ECFC3D2284A0979813AE004C7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14096.jpgsave_picture_14096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14096.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:34B682064F5DF0393F67ACFE74A36AAFB2B8E876
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14097.jpgsave_picture_14097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14097.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6D475AABEE4896B9370A36FC3050C91922AE13C6
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14098.jpgsave_picture_14098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14098.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9036450032C4CF50552BFA9EFE645969E7A88C60
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14099.jpgsave_picture_14099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14099.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A7B078E62429D2D31059660C111B6CF890ED0519
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14100.jpgsave_picture_14100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14100.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14101.jpgsave_picture_14101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14101.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C084FE962E78D86502A7A7BAF4E374DA61AE82D2
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14102.jpgsave_picture_14102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14102.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:DAACB27EF20943E78FD1EDB1F394C6D17C299E5A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14103.jpgsave_picture_14103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14103.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Minecraft в кино / A Minecraft Movie (2025) BDRip [H.264/720p]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14104.jpgsave_picture_14104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14104.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5D94A6643C189F906DA96212A4C9A5B607E4F31A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14105.jpgsave_picture_14105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14105.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5D94A6643C189F906DA96212A4C9A5B607E4F31A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14106.jpgsave_picture_14106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14106.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5D94A6643C189F906DA96212A4C9A5B607E4F31A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14107.jpgsave_picture_14107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14107.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14108.jpgsave_picture_14108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14108.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:AEB5BD7E773E8EB78DBD0535D792015A887D7DAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14109.jpgsave_picture_14109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14109.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:45E90B3ADFE2F5D6C33BBCC06E651E60C53B69EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14110.jpgsave_picture_14110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14110.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.0/dlc) Repack FitGirl [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14111.jpgsave_picture_14111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14111.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:BC159551C16B9DF3959FD6DCA9C4256079CBFB4C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14112.jpgsave_picture_14112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14112.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:5C3B42DE3D74B1F2A28E340C1051B1F51473C885
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14113.jpgsave_picture_14113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14113.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AE827733D017DA0B0AFD4EDAA7F5E617D6F2C9AA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14114.jpgsave_picture_14114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14114.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Solo Projects From Deep Purple (1965-2025) [MP3|320 Kbps] <Hard rock, Progr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14115.jpgsave_picture_14115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14115.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:C5A511EE84443A27EA3DB352E44E9568C51D5476
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14116.jpgsave_picture_14116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14116.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:406CC5320BC29E1505136A1E336D8BF7B068E402
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14117.jpgsave_picture_14117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14117.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Mini Racer Car Shop Simulator (2025) [Ru/Mjulti] (1.0-2025.19.5.1) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14118.jpgsave_picture_14118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14118.jpg" />
 </div>
 
 

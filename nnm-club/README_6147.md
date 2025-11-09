@@ -6,7 +6,7 @@ ZWSim EM 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193203.jpgsave_picture_193203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6993A279CD2B286F5D204543D735AFD758814B25
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193204.jpgsave_picture_193204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193204.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6CB5068318C8676424F6A50C6EBF8FB546B008D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193205.jpgsave_picture_193205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193205.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7632681C52BFDC327863494F03C1A81283882606
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193206.jpgsave_picture_193206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193206.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:04452080CB12CE38C5E3C37A22F091642C197305
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193207.jpgsave_picture_193207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193207.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F722E7666B96A61CF73DC8E6BD984E721AF4440B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193208.jpgsave_picture_193208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193208.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3D5193D53FFC113E366B81CF46E6D18AA45D81BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193209.jpgsave_picture_193209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193209.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E3706A24A1924246A6745C205269E15A19F3AB4B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193210.jpgsave_picture_193210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193210.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A8D41D9422E2B9EB4F6160142AC21EE78663297A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193211.jpgsave_picture_193211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193211.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Total Commander 11.01 LitePack & PowerPack + Portable 2023.9 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193212.jpgsave_picture_193212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193212.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PrivaZer 4.0.56 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193213.jpgsave_picture_193213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193213.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:EFA95E07E875AA1492A530150AD4E8626A66C7A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193214.jpgsave_picture_193214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193214.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6176F117B836A8AE5E3605386E4CF3325A6719E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193215.jpgsave_picture_193215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193215.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E9DE36F07AC14DAB09D5FCD588160B0D4E7E2823
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193216.jpgsave_picture_193216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193216.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DiskDigger 1.67.37.3271 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193217.jpgsave_picture_193217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193217.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpgsave_picture_193218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193219.jpgsave_picture_193219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193219.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193220.jpgsave_picture_193220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193220.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193221.jpgsave_picture_193221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193221.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ EssentialPIM Pro 11.1.9 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193222.jpgsave_picture_193222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193222.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:14C493742233D74782E0C17F47A411FF553507CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193223.jpgsave_picture_193223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193223.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Devin Townsend - Lightwork / Nightwork (2022) Deluxe Edition [FLAC 2.0|48/24|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193224.jpgsave_picture_193224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193224.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193225.jpgsave_picture_193225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193225.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193226.jpgsave_picture_193226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193226.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:94C0DFAD2A805CED7848380FD072DD409E64DA9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193227.jpgsave_picture_193227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193227.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193228.jpgsave_picture_193228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193228.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166940.jpgsave_picture_166940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166940.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E61E0CF5F628E97CB64890906092857633664B9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166941.jpgsave_picture_166941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166941.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Clo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166942.jpgsave_picture_166942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166942.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F50952E7AF2B212750837F6BE3AE5DFCE8EC9CCB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166943.jpgsave_picture_166943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166943.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Art Text 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166944.jpgsave_picture_166944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166944.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166945.jpgsave_picture_166945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166945.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpgsave_picture_166946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Waltr 2 v2.6.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166947.jpgsave_picture_166947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166947.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:E264379399D025174F3E12FD6B32C5FB6D65F153
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166948.jpgsave_picture_166948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166948.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:74C0AF2B0B42701C61E807BA6CF0EDC23CF64422
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpgsave_picture_166949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Watermark Sense - Flexible batch watermarking 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166950.jpgsave_picture_166950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166950.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:F107D7C1ABB6C574C04D36FFAEC7C1CAF876F12E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166951.jpgsave_picture_166951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166951.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ YT Downloader 9.5.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166952.jpgsave_picture_166952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166952.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166953.jpgsave_picture_166953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166953.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpgsave_picture_166954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:58368FF8BF3C7D73A3503155D678C5BDD8F3880A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166955.jpgsave_picture_166955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166955.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8623C9BCA82C39D291026173B6DDFABBCDAB0431
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166956.jpgsave_picture_166956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166956.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:D547C60F20C183D9653F8CE32049C9E3F57A43BE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166957.jpgsave_picture_166957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166957.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wondershare UniConverter Ultimate 15.0.4.17 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166958.jpgsave_picture_166958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166958.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FF77CF6270BC4F4BC992D70EC410ED99B7CD3745
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166959.jpgsave_picture_166959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166959.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ BBEdit 13 v13.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166960.jpgsave_picture_166960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166960.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166961.jpgsave_picture_166961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166961.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpgsave_picture_166963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ EdgeView 2 v2.910 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166964.jpgsave_picture_166964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166964.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Swift Publisher 5 v5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166965.jpgsave_picture_166965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166965.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166966.jpgsave_picture_166966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166966.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159264.jpgsave_picture_159264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159264.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:036D60F57B92F277CCDF04F9BC9BFF49577822D0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159265.jpgsave_picture_159265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159265.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:26B9FC4634A5DDD505EA2FB6337DF365B05D5F8F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159266.jpgsave_picture_159266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159266.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E870F7E033755A5BD654EDA6E1AEC9DF13E4E8DD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159267.jpgsave_picture_159267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159267.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BFA672DDB14FC010B5AEA6BF6A6E6819D0A1B97B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159268.jpgsave_picture_159268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159268.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:585E7456DA728CB5E4DABCAEB04BA32F3FA63D67
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159269.jpgsave_picture_159269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159269.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:12C61418ED226FF77E715D3855DB1F30E214549E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159270.jpgsave_picture_159270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159270.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B1A96ECF7308D337116818F8463AFE380D8BC479
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159271.jpgsave_picture_159271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159271.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D1D67082A328AA93BD4ED57FC3C5C062DD6AFF86
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159272.jpgsave_picture_159272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159272.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E3C2BA427148974F941C801B54A089420D5FBDFA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159273.jpgsave_picture_159273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159273.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ PictureThis - Plant Identification v3.69 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159274.jpgsave_picture_159274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159274.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2B162E96FCAC70960923493E0C8B580CEC344DB2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159275.jpgsave_picture_159275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159275.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Colorfy PLUS - Coloring Book v3.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159276.jpgsave_picture_159276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159276.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:8CF37BAF1E9FEC4190E1C9B642C1A480E7E37845
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159277.jpgsave_picture_159277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159277.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fitify: Фитнес тренировки дома 1.59.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159278.jpgsave_picture_159278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159278.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by Mixroot [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159279.jpgsave_picture_159279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159279.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Farm 51 | Артбук по игре Painkiller: Hell & Damnation / Painkill
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159280.jpgsave_picture_159280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159280.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:626E3061D09E2446ABEB55C1440F6E3CD3C3C7F6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159281.jpgsave_picture_159281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159281.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - The Gates Of The Future (2023) [MP3|320 Kbps] <Rock, Progressive>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159282.jpgsave_picture_159282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159282.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sepultura - The Roadrunner Albums: 1985-1996 (2017) Box Set, 6xCD, Compilation, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159283.jpgsave_picture_159283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159283.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159284.jpgsave_picture_159284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159284.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:38CE09A9606E30091854E0C78DF0869EE07CC2D7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159285.jpgsave_picture_159285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159285.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:F3A99B6602AAB41AE5396B7EEFEF80C82E43BFA4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159286.jpgsave_picture_159286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159286.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:14CFD18E6F60DDEB860694D0B90571B572753256
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159287.jpgsave_picture_159287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159287.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159288.jpgsave_picture_159288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159288.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159289.jpgsave_picture_159289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159289.jpg" />
 </div>
 
 

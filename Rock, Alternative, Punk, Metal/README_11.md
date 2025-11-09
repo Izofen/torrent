@@ -6,7 +6,7 @@ Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15035.jpgsave_picture_15035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Räum (Raum) - Emperor of the Sun (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15040.jpgsave_picture_15040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15040.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mesmur - S (2017) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15042.jpgsave_picture_15042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15042.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpgsave_picture_15130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pretenders - The Singles (1987) [MP3|320 Kbps] <New-Wave, Pop-Rock, Reggae-Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15131.jpgsave_picture_15131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15131.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cytotoxin - Biographyte (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15140.jpgsave_picture_15140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15140.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Paul McCartney - Flowers In The Dirt (1989) Japanese Edition, SHM-CD, Reissue, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15153.jpgsave_picture_15153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15153.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Triumph - 16 Albums (1976 - 2015) 25 CD [FLAC|Lossless|tracks + .cue|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15215.jpgsave_picture_15215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15215.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15339.jpgsave_picture_15339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15339.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Paul McCartney - Снова В СССР (1988) Japanese Edition, SHM-CD, Reissue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15345.jpgsave_picture_15345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15345.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pagan Altar - Never Quite Dead (2025) [MP3|320 Kbps] <NWOBHM, Heavy Metal, Doom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15450.jpgsave_picture_15450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15450.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Excessive - Cycles (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15453.jpgsave_picture_15453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15453.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Crematory - Destination (2025) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15456.jpgsave_picture_15456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15456.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A93DFCF6C425B9970CC48E055BC66C8691369E2C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15457.jpgsave_picture_15457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15457.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15466.jpgsave_picture_15466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15466.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15471.jpgsave_picture_15471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15471.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15473.jpgsave_picture_15473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15473.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15486.jpgsave_picture_15486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15486.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Dogtag Remains - Forgotten Battlefields (2024) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15538.jpgsave_picture_15538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15538.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kardashev - Alunea (2025) [FLAC|Lossless|tracks + .cue] <Deathcore, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15540.jpgsave_picture_15540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15540.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Foreigner - Extended Versions (2011) Compilation [FLAC|Lossless|image + .cue] <S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15542.jpgsave_picture_15542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15542.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Angel Ice - Play It Hard Play It Loud (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15554.jpgsave_picture_15554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15554.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Omen - Kell az ima (2025) [MP3|320 Kbps] <Power, Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15558.jpgsave_picture_15558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15558.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:1907D818A22E634298030C8E31555C3F3A8D6909
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15572.jpgsave_picture_15572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15572.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Jeff Lynne's ELO - Wembley or Bust (2017) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15573.jpgsave_picture_15573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15573.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Paul McCartney - Pipes Of Peace (1983) Japanese Edition, SHM-CD, Reissue, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15575.jpgsave_picture_15575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15575.jpg" />
 </div>
 
 

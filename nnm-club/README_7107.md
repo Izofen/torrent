@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243701.jpgsave_picture_243701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243701.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243702.jpgsave_picture_243702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243702.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243703.jpgsave_picture_243703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243703.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243704.jpgsave_picture_243704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243704.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GoodSync Enterprise 11.11.7.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243706.jpgsave_picture_243706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243706.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243707.jpgsave_picture_243707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243707.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:93DF67186BB93F0A34BBC7D4735610724250A694
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243709.jpgsave_picture_243709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243709.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243710.jpgsave_picture_243710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243710.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:450FEE3919E16917F5ED6894F9F61AADA6383F2D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243711.jpgsave_picture_243711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243711.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:20EF50568F474DBD10D1DE68B4F49E3E9D1FFDA4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243712.jpgsave_picture_243712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243712.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Space Odyssey - Trip Five: New Year's Voyage 2019 (2018) 2 CD [OGG Vorbis|4
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243714.jpgsave_picture_243714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243714.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243715.jpgsave_picture_243715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243715.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:5A8BA86694DBC3823FF8B7F601065CCD3EEEF4E2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243716.jpgsave_picture_243716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243716.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:20D100C7C1D64DE3F555A9DD6935909DDD4BEE90
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243717.jpgsave_picture_243717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243717.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:107634BB5D8C4C4FC41ED37D9519347D4879F3AD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243718.jpgsave_picture_243718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243718.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243719.jpgsave_picture_243719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243719.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cisdem PDFCompressor 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243720.jpgsave_picture_243720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243720.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4C90D9A0C09E68BA19EFFF4361602626CE6F15F5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243721.jpgsave_picture_243721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243721.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243723.jpgsave_picture_243723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243723.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243724.jpgsave_picture_243724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243724.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243725.jpgsave_picture_243725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243725.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:87AC26F78AACD500AF86008C409A71C0D4EF62FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243726.jpgsave_picture_243726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243726.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243727.jpgsave_picture_243727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243727.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243728.jpgsave_picture_243728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243728.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243729.jpgsave_picture_243729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243729.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 2 (2022) [AAC|~321 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243731.jpgsave_picture_243731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243731.jpg" />
 </div>
 
 

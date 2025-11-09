@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167289.jpgsave_picture_167289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:74A367D620ADC540A7EC13C07A7508C7FC60923C
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167290.jpgsave_picture_167290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167290.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Viogression - Perception Blur (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167291.jpgsave_picture_167291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167291.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:115AAF40210D082D59C2521A0ACFA33C1206ECE7
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167292.jpgsave_picture_167292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167292.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FC9B2D3FE6A997CAE1643D5F813894D80A52A8AB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167293.jpgsave_picture_167293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167293.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9CEDEB11AA717118A99C34BAA141D151A31602CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167294.jpgsave_picture_167294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167294.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8E661CE6C4E6F4572EBFC3958404351A384595AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167295.jpgsave_picture_167295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167295.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1A1A0A19AB1D60741C10543DB766D71FEA8EDC88
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167296.jpgsave_picture_167296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167296.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:581842A4320A8B682EA03C15665BAF968C07AD81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167297.jpgsave_picture_167297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167297.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BBF11361F4266E95673372251570F95259E289FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167298.jpgsave_picture_167298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167298.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:583D89885C3AB950504E9A54F3895FA836250A0B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167299.jpgsave_picture_167299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167299.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167300.jpgsave_picture_167300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167300.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DFA7F463C1EBE4784F3B43FCC153622B6DEE2B99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167301.jpgsave_picture_167301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167301.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:67824E1E7F31190BCE6C1BE217C3A7158F45F1E6
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167302.jpgsave_picture_167302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167302.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:2556439B80B0DF4808D16AB871194ACC8FD131C1
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167303.jpgsave_picture_167303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167303.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A70AA35CFDA8812C4B711B17412162327D1271A3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167304.jpgsave_picture_167304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167304.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:05DA45490E98738C50B23D1D460BBB5DDFAED1D5
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167305.jpgsave_picture_167305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167305.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - German Top 100 Single Charts 13.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167306.jpgsave_picture_167306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167306.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hallas - The Hällas Saga - Live at Cirkus (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167307.jpgsave_picture_167307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167307.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7A3D3780A58FBC637F33D781989D7B0B83DECDEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167308.jpgsave_picture_167308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167308.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Animate 2021 21.0.1.37179 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167309.jpgsave_picture_167309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167309.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4A793D80C96DED224540E5168466AFEDF756C6DE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167310.jpgsave_picture_167310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167310.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sodom - Genesis XIX (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167311.jpgsave_picture_167311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167311.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:E9D1C5D2B909973B9C1782D1FE8E5934E173BAB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167312.jpgsave_picture_167312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167312.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Beyond Shadows - Beyond Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167313.jpgsave_picture_167313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167313.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167314.jpgsave_picture_167314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167314.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16146.jpgsave_picture_16146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16146.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2689447ADEF77670DF4001EC6A645D2768841532
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16147.jpgsave_picture_16147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16147.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3CF5C22F37B03385FA903C336A341F257D5224EE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16148.jpgsave_picture_16148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16148.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7B0D5936A6DC691644FF503C17D9F922A4829C23
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16149.jpgsave_picture_16149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16149.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:67BCAFF2FB37FE3B4DD92F6AF7CA0311A4133404
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16150.jpgsave_picture_16150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16150.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16152.jpgsave_picture_16152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16152.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16153.jpgsave_picture_16153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16153.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AOMEI Partition Assistant Technician Edition 10.8.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16154.jpgsave_picture_16154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16154.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16155.jpgsave_picture_16155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16155.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16156.jpgsave_picture_16156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16156.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:06BC6795E445AF253DADD67F2DB4E7A2D33AFB2E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16157.jpgsave_picture_16157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16157.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16158.jpgsave_picture_16158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16158.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Internet Download Manager 6.42 Build 40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16159.jpgsave_picture_16159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16159.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:CFBB0291E0ED469154FF44F758F8F48C47A0C072
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16160.jpgsave_picture_16160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16160.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FEE4647604AC6DA72AEE902563E98510E23E5F22
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16161.jpgsave_picture_16161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16161.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ U-429: Подводная тюрьма / In Enemy Hands (2004) WEB-DLRip [AV1/21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16162.jpgsave_picture_16162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16162.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16163.jpgsave_picture_16163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16163.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16164.jpgsave_picture_16164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16164.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:DD7AC2E0847D765B0AA9B17B78584B38925BA193
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16165.jpgsave_picture_16165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16165.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F2034AAA36841993A12172C31114F04E9A542602
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16166.jpgsave_picture_16166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16166.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:3B78C4658A28F185E50375FC7EC1B92F52F69FF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16167.jpgsave_picture_16167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16167.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16168.jpgsave_picture_16168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16168.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16169.jpgsave_picture_16169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16169.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16170.jpgsave_picture_16170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16170.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:C1F08D5B453579671F0DEB3FEEDD6FCB129F218F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16171.jpgsave_picture_16171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16171.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16172.jpgsave_picture_16172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16172.jpg" />
 </div>
 
 

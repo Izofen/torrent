@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76073.jpgsave_picture_76073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76073.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76081.jpgsave_picture_76081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76081.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PDF-XChange Pro v4.0201.201 (x32/x64/ML/RUS)+RePack+Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76091.jpgsave_picture_76091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76091.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF-Tools - инструмент для создания новых PDF-файл
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76092.jpgsave_picture_76092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76092.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ PDF-XChange Viewer 2.5.201 PRO RePack by elchupacabra [Английский, Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76107.jpgsave_picture_76107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76107.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PDF XChange Viewer - отличная программа для чтения и 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76115.jpgsave_picture_76115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76115.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76117.jpgsave_picture_76117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76117.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76134.jpgsave_picture_76134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76134.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:786D898C86A7EB9CC77F835F592002B723B784AD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76140.jpgsave_picture_76140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76140.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76144.jpgsave_picture_76144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76144.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76145.jpgsave_picture_76145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76145.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76150.jpgsave_picture_76150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76150.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76156.jpgsave_picture_76156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76156.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76159.jpgsave_picture_76159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76159.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0C7B325B97C48D4F02A6A3419AD35070835DACDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76161.jpgsave_picture_76161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76161.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Code Geass Hangyaku no Lelouch Special Edition: Black Rebellion / Code Geass: Le
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76166.jpgsave_picture_76166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76166.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9D1130A6D251026D69897E918AB2116ECF0C2B71
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76168.jpgsave_picture_76168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76168.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:3F31B62315B879D020FC880DEED191DF0B92DFE2
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76172.jpgsave_picture_76172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76172.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:7C3BECDBFACA2D8C05D32950B7A0B5F7E07A222F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76173.jpgsave_picture_76173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76173.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76174.jpgsave_picture_76174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76174.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76177.jpgsave_picture_76177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76177.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76180.jpgsave_picture_76180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76180.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76182.jpgsave_picture_76182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76182.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76186.jpgsave_picture_76186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76186.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76187.jpgsave_picture_76187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76187.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Autodesk AutoCAD Map 3D Enterprise 2012  [Rus Eng] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76193.jpgsave_picture_76193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76193.jpg" />
 </div>
 
 

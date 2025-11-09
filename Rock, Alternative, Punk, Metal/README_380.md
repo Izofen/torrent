@@ -6,7 +6,7 @@ Wildness - Resurrection (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228911.jpgsave_picture_228911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228911.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ P.O.D. - When Angels & Serpents Dance (2008) 2022, Remixed & Remastered, Mascot 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228939.jpgsave_picture_228939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228939.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228943.jpgsave_picture_228943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228943.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:348BDE4549F14CF657A2E0FDFFF357DF783DB2E5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228945.jpgsave_picture_228945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228945.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Uwocaust and the Angry Bois - Das alte Feuer (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228960.jpgsave_picture_228960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228960.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Norman - Definitive Collection: Smokie And Solo Years (2018) 2CD, Compilat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228967.jpgsave_picture_228967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228967.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hellspike - Dynasties Of Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228990.jpgsave_picture_228990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228990.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ LP (Laura Pergolizzi) - Heart to Mouth (2018) [MP3|320 Kbps] <Indie Rock, Pop Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228995.jpgsave_picture_228995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228995.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Perfect Plan - Brace For Impact (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228998.jpgsave_picture_228998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228998.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sleeping With Sirens - Complete Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229005.jpgsave_picture_229005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229005.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229022.jpgsave_picture_229022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229022.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229030.jpgsave_picture_229030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229030.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Decembre Noir - Pale Serenades (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229038.jpgsave_picture_229038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229038.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229039.jpgsave_picture_229039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229039.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Artifiction - VIVA (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229047.jpgsave_picture_229047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229047.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Grin - Phantom Knocks (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229055.jpgsave_picture_229055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229055.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Twilight Aura - For A Better World (2022) [MP3|320 Kbps] <Melodic Progressive Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229063.jpgsave_picture_229063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229063.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229070.jpgsave_picture_229070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229070.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Diamondback - American Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229088.jpgsave_picture_229088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229088.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ NorthTale - Eternal Flame (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229090.jpgsave_picture_229090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229090.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sea Of Snakes - The Serpent & The Lamb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229098.jpgsave_picture_229098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229098.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Diabology - Father of Serpents (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229105.jpgsave_picture_229105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229105.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Distruster - Sic Semper Tyrannis (2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229112.jpgsave_picture_229112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229112.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 20 Original Debut-Albums by 20 Rock & Roll Stars (2015) 10CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229114.jpgsave_picture_229114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229114.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Torian - God Of Storms (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229124.jpgsave_picture_229124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229124.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Devouror - Diabolos Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229132.jpgsave_picture_229132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229132.jpg" />
 </div>
 
 

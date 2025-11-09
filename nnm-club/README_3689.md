@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116289.jpgsave_picture_116289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B70D7F7A4F37B03186260320E45A72783387189C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116290.jpgsave_picture_116290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116290.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AD05F0E8A2DF9D6F0B00C0B68965E7D573C643CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116291.jpgsave_picture_116291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116291.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C5297CD2617B9C88C6EEAA75F9FBD6492477937D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116292.jpgsave_picture_116292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116292.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Total Commander 11.03 Extended 24.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116293.jpgsave_picture_116293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116293.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0894581E0351A6E3B1F27EA965FBC2804E63699F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116294.jpgsave_picture_116294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116294.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:458EC302990221F932E0646C7C39C2971D52C659
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116295.jpgsave_picture_116295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116295.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:9C720148F3639C89799DCB9215B367B4E264C715
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116296.jpgsave_picture_116296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116296.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:23431A248EED2A7391D03DFC487A65575B078296
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116297.jpgsave_picture_116297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116297.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E47C55DE7BD9AC49185B7D1672464CBF81C9E896
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116298.jpgsave_picture_116298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116298.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 02.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116299.jpgsave_picture_116299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116299.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ LEX LIVE 10 RC FIX 23 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116300.jpgsave_picture_116300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116300.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Counter-Strike 1.6 (2003) [Ru/Multi] (1.1.2.5/pv48/b4554) Repack CSDnet
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116301.jpgsave_picture_116301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116301.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C6D11D92CE86FB2DF77702EFFF80D40570ABB04B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116302.jpgsave_picture_116302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116302.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116303.jpgsave_picture_116303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116303.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:2F2AD814DB44489A406413AE27A80A866E153DE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116304.jpgsave_picture_116304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116304.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6E0B40851D11206C54F5A63A07166F6272130AE4
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116305.jpgsave_picture_116305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116305.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116306.jpgsave_picture_116306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116306.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adobe Photoshop 2024 25.5.0.375 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116307.jpgsave_picture_116307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116307.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:96640C650F680C99EC7CE7ADF1CC54740AEC517C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116308.jpgsave_picture_116308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116308.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:7FF8E68DD3C6846BE59AF05BD6CD962F7A2EFA70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116309.jpgsave_picture_116309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116309.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Alcohol 120% Free Edition 2.1.1 Build 2201 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116310.jpgsave_picture_116310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116310.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:1B21A6E46FD35723A79554069084E28F604FB9D7
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116311.jpgsave_picture_116311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C26BA3D3D69503B05824FD90E9901964EA79DC71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116312.jpgsave_picture_116312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116312.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Photoshop 2024 25.5.0.375 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116313.jpgsave_picture_116313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116313.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:178B79CEC50D1C1A2E6701E44FAE4E9C9A5E2010
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116314.jpgsave_picture_116314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116314.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183157.jpgsave_picture_183157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183157.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183158.jpgsave_picture_183158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183158.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183160.jpgsave_picture_183160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183160.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A251DAB37C9DCDA08F639BED6D5E601F1E5896F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183162.jpgsave_picture_183162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183162.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:ACDC034B934E52146F4CAF99E18108C7548C0DAB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183163.jpgsave_picture_183163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183163.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E276A113288C542165FE36754C88A9B1DC5A1B9D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183166.jpgsave_picture_183166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183166.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Microsoft Visual Studio 2019 Professional 16.7.7 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183167.jpgsave_picture_183167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183167.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zoner Photo Studio X 19.2309.2.495 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183168.jpgsave_picture_183168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183168.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Highway Natives - West of the Blindside (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183170.jpgsave_picture_183170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183170.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:1FA25A697FCA1E592B5CD9981334BCFE2D16F4CB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183171.jpgsave_picture_183171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183171.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Perfectly Clear WorkBench 4.6.0.2601 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183173.jpgsave_picture_183173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183173.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:78912984904934B2D324659ED7536715AF28E296
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183176.jpgsave_picture_183176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183176.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:971E007EBC82EC53ADC203DB4046577685A6D80D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183177.jpgsave_picture_183177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183177.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183178.jpgsave_picture_183178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183178.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD, Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183181.jpgsave_picture_183181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183181.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kira Mac - Chaos Is Calling (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183182.jpgsave_picture_183182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183182.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Telegram Desktop 4.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183183.jpgsave_picture_183183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183183.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Movavi Picverse 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183186.jpgsave_picture_183186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183186.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Nicholas Payton - Relaxin' With Nick (2019) 2CD, Smoke Sessions Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183187.jpgsave_picture_183187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183187.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:045DDBA154D8DF7DC5448AAF821FD475057DC0D1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183188.jpgsave_picture_183188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183188.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:7FAE5C29C1026DD476926112D5F56864FA7563C4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183191.jpgsave_picture_183191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183191.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5D669771129F094C9342E7CA4A5DED16213DDD1F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183192.jpgsave_picture_183192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183192.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft Visual Studio 2019 Community 16.7.7 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183193.jpgsave_picture_183193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183193.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tommy Gunn - La Peneratica Svavolya (2009) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183196.jpgsave_picture_183196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183196.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3DF00920B891BD7CACFD819F22D03BC79D498409
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183197.jpgsave_picture_183197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183197.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Era of Discord - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183198.jpgsave_picture_183198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183198.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46906.jpgsave_picture_46906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46906.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2ABBD3D1A5968D3F400056E047B047B1527DEB39
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47009.jpgsave_picture_47009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47009.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BD23E5D6C6216A5EAB8CD64A4BB0C15C6FC78CB2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47015.jpgsave_picture_47015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47015.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:92AFC51057656CE6B774547DCCAD544CFA7785BA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47222.jpgsave_picture_47222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47222.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C634E1F56CEA5A5AF3C269F483CCAD10DDB40C44
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47421.jpgsave_picture_47421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47421.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F3C4B14528D342B11049C72C4A125D266F32E282
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47459.jpgsave_picture_47459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47459.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EC2977DC9311ABABFFE832918E1802C487C32200
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47959.jpgsave_picture_47959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47959.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2CC7247399FE923E790EF78FDF850007BA9E9719
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50391.jpgsave_picture_50391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50391.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:96F367655BC0A1C90BBFD8F08193ABEF838F0631
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50421.jpgsave_picture_50421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50421.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7A736FE2D37CAA2EEE44D0981FF6F1070551F11D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51704.jpgsave_picture_51704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51704.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:CC35BCCEC407589BECB02547A1E60D75B9C28561
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51833.jpgsave_picture_51833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51833.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:48AF628A0816AB9E361EEE3DB7748465838D44D0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51900.jpgsave_picture_51900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51900.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5ECD4E1DA9C6193B3DF1EBCE5987345C0698965A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52663.jpgsave_picture_52663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52663.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:549B0F6D0FBEAF4A6A1035012A5DCA005D8AF11F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53939.jpgsave_picture_53939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53939.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A29205AA19EE3FBB3FF2971647553F548F2BE3BA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54974.jpgsave_picture_54974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54974.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:16B214EFAD92AE796FC5D69109F3A17EC102AD71
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54984.jpgsave_picture_54984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54984.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:EE7E2C8CDBFA782C71D03F06CFA73983D05B743B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56656.jpgsave_picture_56656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56656.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:0299BDABF0E987A899704B84DA181759611EB754
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56898.jpgsave_picture_56898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56898.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:9F6B58ABAF09F5A26750B5762B786CA3026BAFEA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58299.jpgsave_picture_58299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58299.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C4FC6FB84DC8F199A3B4A0983490023654887689
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59729.jpgsave_picture_59729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59729.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:A4718FF192B2DAE52E753FC93DA8E89CCADDE495
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60347.jpgsave_picture_60347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60347.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:E2E93F8FC2BAEF496F1668E2B5CE57FFEBD946B6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60348.jpgsave_picture_60348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60348.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:8F5F9FD923D4F2D038985BBB712FC61E38984024
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61696.jpgsave_picture_61696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61696.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2B195663A2B3B4FB389BC55A7BB398333B8A3A1B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61855.jpgsave_picture_61855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61855.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:5E26C2F1310BFF23A5B9DC76963964E97F7F2626
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62108.jpgsave_picture_62108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62108.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:EFE7A6F373C879B256FEEE238AB201CD61445B53
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62365.jpgsave_picture_62365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62365.jpg" />
 </div>
 
 

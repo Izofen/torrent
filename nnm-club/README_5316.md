@@ -6,7 +6,7 @@ Icecream PDF Editor PRO 3.14 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165044.jpgsave_picture_165044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165044.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE5C12340B8DF8E5B9885AAC0B13F2245C1B2F5A
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165045.jpgsave_picture_165045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165045.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7AC623C639ED18AF08FB5CE5866F5FA99154166C
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165046.jpgsave_picture_165046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165046.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6CE406CF1E31B7C8AB50A66BC19E698ACAAC92C9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165047.jpgsave_picture_165047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165047.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F3AF3AA89DCC2616432CD1BC4AEDD8383D5C2FA3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165048.jpgsave_picture_165048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165048.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9D556B645D4D9EA9D48BF69242387203A3AFEE8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165049.jpgsave_picture_165049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165049.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Luminar Neo 1.6.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165050.jpgsave_picture_165050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165050.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera 73.0.3856.284 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165051.jpgsave_picture_165051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165051.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6419A91E2E934B3481320048F75883E31E48A1A5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165052.jpgsave_picture_165052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165052.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CookPad 2.228.1.0 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165053.jpgsave_picture_165053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165053.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ UniBook - Аудиокниги v0.8.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165054.jpgsave_picture_165054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165054.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kin Ping Meh - 6 albums, 1 Box-set, 12 CD (1971-2016) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165055.jpgsave_picture_165055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165055.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MFG - Pure Energy (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165056.jpgsave_picture_165056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165056.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:263E1BA38AAD4F67C8974AF10B23ACF87C065944
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165057.jpgsave_picture_165057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165057.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Luminar AI 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165058.jpgsave_picture_165058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165058.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8FEE43EB08B3E31A2E881688D9B62F2CCDCE205A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165059.jpgsave_picture_165059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165059.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ MEmu 7.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165060.jpgsave_picture_165060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165060.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edit
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165061.jpgsave_picture_165061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165061.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Bonnie Tyler - 7 Albums (1983 - 2019) [FLAC|Lossless|tracks + .cue] <Pop Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165062.jpgsave_picture_165062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165062.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:F7CCE3BF95C6FE80D4600A9FABE6B2848597EF9F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165063.jpgsave_picture_165063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165063.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Christmas Dance Party 2019-2020 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165064.jpgsave_picture_165064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165064.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2CD316BEC8586B9227BB2D0DD08613574F2094CD
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165065.jpgsave_picture_165065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165065.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Movavi Video Suite for Mac 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165066.jpgsave_picture_165066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165066.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:76EE02A97DDD38F773848D9AC004DD072B62ED48
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165067.jpgsave_picture_165067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165067.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Firefox Browser 108.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165068.jpgsave_picture_165068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165068.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ AJ Plug - Killer King (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165069.jpgsave_picture_165069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165069.jpg" />
 </div>
 
 

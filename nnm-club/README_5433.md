@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168162.jpgsave_picture_168162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Overland - S.I.X (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168163.jpgsave_picture_168163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168163.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7D58BD8F17FBBD23F8333A9640EE30F2374B5E74
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168164.jpgsave_picture_168164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168164.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168165.jpgsave_picture_168165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168165.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Wise Registry Cleaner Pro 10.8.5.706 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168166.jpgsave_picture_168166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168166.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:015977B41B26E620213582D4A10CCCA1F2772BF7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168167.jpgsave_picture_168167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168167.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Howling Giant - Glass Future (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168169.jpgsave_picture_168169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168169.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2497262B689139A17DF57D9FBA173ACC7DDB41B5
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168170.jpgsave_picture_168170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168170.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Auslogics Driver Updater 1.24.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168171.jpgsave_picture_168171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168171.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:6BC5AAD210398EF95253D89E18ADE1AF73536F22
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168172.jpgsave_picture_168172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168172.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7792FD5E4E9982E7C914A3F6E4571B4C88FE4896
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168173.jpgsave_picture_168173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168173.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4E9C24A76C2C2C6B96F65529B87AF924F201C02F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168174.jpgsave_picture_168174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168174.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:D031C2F98E8D8ED51D22F81E2F77551B9C8C6665
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168175.jpgsave_picture_168175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168175.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rockett Love - Galactic Circus (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168176.jpgsave_picture_168176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168176.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:08E041E5AF3042D43335C5A05045FDF23C39CA45
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168177.jpgsave_picture_168177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168177.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CADintosh X 8.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168178.jpgsave_picture_168178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168178.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E95F589B459901B60E61130EAC683839945E6259
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168179.jpgsave_picture_168179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168179.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168180.jpgsave_picture_168180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168180.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168181.jpgsave_picture_168181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168181.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168182.jpgsave_picture_168182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168182.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168183.jpgsave_picture_168183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168183.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:C41EA78662831369D8C35D9BB4067C658E236CAA
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168184.jpgsave_picture_168184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168184.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Chilling Christmas 2019 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168185.jpgsave_picture_168185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168185.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Text Editor Pro 24.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168186.jpgsave_picture_168186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168186.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:D59CADC53778F381C704CA03F901D1BE4B8BA3AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168187.jpgsave_picture_168187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168187.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:269DE4C50B8F41106BDCE3F3E4AB8E1DECD9DEDC
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168188.jpgsave_picture_168188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168188.jpg" />
 </div>
 
 

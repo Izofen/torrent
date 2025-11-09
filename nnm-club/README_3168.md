@@ -6,7 +6,7 @@ VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpgsave_picture_102706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102707.jpgsave_picture_102707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102707.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpgsave_picture_102708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpgsave_picture_102709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102709.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102710.jpgsave_picture_102710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102710.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Nig
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102711.jpgsave_picture_102711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102711.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102712.jpgsave_picture_102712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102712.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102713.jpgsave_picture_102713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102714.jpgsave_picture_102714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102714.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:CC7E8B13E85A90C91A87BCB11EDDFE5274423082
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102715.jpgsave_picture_102715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102715.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mystery Blue - Night Demon (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpgsave_picture_102716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102716.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ White Tower - Night Hunters (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpgsave_picture_102717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102717.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ High Parasite - Forever We Burn (2024) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102718.jpgsave_picture_102718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102718.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ann Hampton Callaway - This Christmas (1997) Angel Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102719.jpgsave_picture_102719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102719.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Von Panzer - Iron and Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102720.jpgsave_picture_102720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102720.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpgsave_picture_102721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102721.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Great Jazz Trio - Love For Sale (1976) 1986, Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102722.jpgsave_picture_102722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102722.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ The L.A.4 - The L.A.4 (1976) 1987, Concord Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102723.jpgsave_picture_102723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102723.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:AB634ED188A0CEDC34490EF627258340A2391E13
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102724.jpgsave_picture_102724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102724.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Vazeline - Панк для молодых (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102725.jpgsave_picture_102725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102725.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0E9CB441F58C65D31E430F6F9D2FF1AEE0509597
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102726.jpgsave_picture_102726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102726.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102727.jpgsave_picture_102727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102727.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:CAE32A0404F5FBCB6F7EE63EB35FB7F3BCC0192A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpgsave_picture_102728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:366FF133160E1FAD59BA1C9908FD5AD483A40F5E
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpgsave_picture_102729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpgsave_picture_102730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpgsave_picture_102731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
 </div>
 
 

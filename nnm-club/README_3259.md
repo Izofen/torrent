@@ -6,7 +6,7 @@ XYplorer 26.30.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105095.jpgsave_picture_105095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105095.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105096.jpgsave_picture_105096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105096.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Colin James - Chasing The Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105097.jpgsave_picture_105097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105097.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105098.jpgsave_picture_105098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105098.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105099.jpgsave_picture_105099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105099.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:06FD8B9C3A34288C11DE491AFECE2049528F1E78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105100.jpgsave_picture_105100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105100.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105101.jpgsave_picture_105101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105101.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105102.jpgsave_picture_105102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105102.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:4CD081E9601F4F75240122EA45E17F8EE68C3479
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105103.jpgsave_picture_105103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105103.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105104.jpgsave_picture_105104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105104.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105105.jpgsave_picture_105105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105105.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ StartAllBack 3.8.6 build 5143 (DC-22-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105106.jpgsave_picture_105106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105106.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ PDF Shaper Ultimate 14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105107.jpgsave_picture_105107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105107.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Extreme Picture Finder 3.66.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105108.jpgsave_picture_105108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105108.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Nomad Factory - British Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105109.jpgsave_picture_105109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105109.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:043AF9391E26364406C1A84DAF1043EE6C26EAA4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpgsave_picture_105110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Extreme Picture Finder 3.66.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105111.jpgsave_picture_105111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105111.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:856CEA154CC48F480AD72E11A49D850CF860EB5C
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105112.jpgsave_picture_105112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105112.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PrivaZer Pro 4.0.92 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105113.jpgsave_picture_105113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105113.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105114.jpgsave_picture_105114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105114.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4DA63FA4F273100D42BE5A7865175C3A4A23D5DF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105115.jpgsave_picture_105115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105115.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105116.jpgsave_picture_105116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105117.jpgsave_picture_105117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105117.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 202
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105118.jpgsave_picture_105118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105118.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:AD2D247F68934EE82689556B88FC37940EB76738
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105119.jpgsave_picture_105119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105119.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Vivaldi 6.8.3381.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105120.jpgsave_picture_105120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105120.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172225.jpgsave_picture_172225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172225.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:20D6EEB945F7942EB9933411EE53459A4127F3D9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172226.jpgsave_picture_172226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172226.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D9D8C221BB3DED819F951485A9AC3722DDF5D584
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172227.jpgsave_picture_172227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172227.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Blink-182 - One More Time... (2023) [MP3|320 Kbps] <Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172228.jpgsave_picture_172228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172228.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:63825157357D40E749E322B3EB0228DC5132EDBF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172229.jpgsave_picture_172229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172229.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:D5497143E3EC77A46D04197C704AAA75D643A255
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172230.jpgsave_picture_172230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172230.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7110 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172231.jpgsave_picture_172231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172231.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:255BA3E8D6C3485DA2819190F2983DE4C31F19F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172232.jpgsave_picture_172232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172232.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ WinNTSetup 5.3.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172233.jpgsave_picture_172233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172233.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Adguard for Mac 2.12.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172234.jpgsave_picture_172234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172234.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Windows 11 Manager 1.3.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172235.jpgsave_picture_172235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172235.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ CleanShot X 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172236.jpgsave_picture_172236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172236.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Bat! Professional 10.5.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172237.jpgsave_picture_172237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172237.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.4 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172238.jpgsave_picture_172238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172238.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Enigma Virtual Box 10.50 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172239.jpgsave_picture_172239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172239.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172240.jpgsave_picture_172240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Total Commander 11.02 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172241.jpgsave_picture_172241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172241.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:C305DAFB4A83A4E58FD7A2A5B8646EBD6AB896F2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172242.jpgsave_picture_172242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172242.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Topaz Video AI 4.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172243.jpgsave_picture_172243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172243.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:FC3C5795024500F354C7F1AE711BC3BA652E16AC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172244.jpgsave_picture_172244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172244.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Glary Utilities Pro 5.212.0.241 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172245.jpgsave_picture_172245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172245.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:EE07A11A5FD3E505414C6BF7ED761E1333A46F83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172246.jpgsave_picture_172246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172246.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ NVIDIA GeForce Desktop Game Ready 545.84 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172247.jpgsave_picture_172247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172247.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172248.jpgsave_picture_172248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172248.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:6AD675376BE3E6C646D887282FD655DF01E1AD86
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172249.jpgsave_picture_172249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172249.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Enigma Virtual Box 10.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172250.jpgsave_picture_172250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172250.jpg" />
 </div>
 
 

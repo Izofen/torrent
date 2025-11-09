@@ -6,7 +6,7 @@ The The - Ensoulment (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternatif, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43881.jpgsave_picture_43881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43881.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43882.jpgsave_picture_43882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43882.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ireful - Agents Of Doom (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Old 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43883.jpgsave_picture_43883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43883.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tim Montana - Savage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43884.jpgsave_picture_43884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43884.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ EF Commander 24.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43885.jpgsave_picture_43885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43885.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinSCP 6.3.5 Build 14991  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43886.jpgsave_picture_43886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43886.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ USB Device Tree Viewer 4.4.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43887.jpgsave_picture_43887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43887.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43888.jpgsave_picture_43888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43888.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:698B1CD16DEA9D5B913FD7D7D27ABACFEE80E3B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43889.jpgsave_picture_43889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43889.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:64DD35EFE35C515506C4D9F426579DD199CAE58A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43890.jpgsave_picture_43890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43890.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:8F3A24C2E702863EC2AD4E3803636867ECFDB250
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43891.jpgsave_picture_43891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43891.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:1925DEDD147E019CED177317594C56352F0856AE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43892.jpgsave_picture_43892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43892.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:410B8B22ADB5E1E46B5A6814AE790AA877E38EA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43893.jpgsave_picture_43893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43893.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:1D78CB343CCCDDDC3176D5D48D92E0B5D4A5BA8A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43894.jpgsave_picture_43894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43894.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:C75AC21BA4A526546923A2FA8C27BF6AE9F88D31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43895.jpgsave_picture_43895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43895.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:72D12F47FCB01CC1E94C068E964C5C8F9FA05239
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43896.jpgsave_picture_43896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43896.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A8F3F8432DBB00EAD6FAEA62F9CC0B7B8906BC31
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43897.jpgsave_picture_43897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43897.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rush - Ten songs for you (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43898.jpgsave_picture_43898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43898.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F57031FA666C2B1421D59F67B8940028127CEB88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43899.jpgsave_picture_43899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43899.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:2808D3E8F111C39E6DCE0F29A272BF445C815004
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43900.jpgsave_picture_43900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43900.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ OCCT 13.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43901.jpgsave_picture_43901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43901.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Music News For Forum vol.021 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43902.jpgsave_picture_43902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43902.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Trance 2024, Vol. 7 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43903.jpgsave_picture_43903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43903.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:83C2E4B0DF930E249EDF1257C88F602BFD411B52
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43904.jpgsave_picture_43904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43904.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:6245B50B7DDAAD07AD55C871186BF9FED207FCD9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43905.jpgsave_picture_43905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43905.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:CF29ED3A932F68538AA6F5714E9A07D2591D9FB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43906.jpgsave_picture_43906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43906.jpg" />
 </div>
 
 

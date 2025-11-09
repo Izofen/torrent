@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133055.jpgsave_picture_133055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C053EF61F339520E9AAC72BD6D84B904BADA8224
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133056.jpgsave_picture_133056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Remote Desktop Manager Enterprise 8.0.11.0 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133057.jpgsave_picture_133057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133058.jpgsave_picture_133058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133059.jpgsave_picture_133059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133059.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133060.jpgsave_picture_133060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133060.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133062.jpgsave_picture_133062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133062.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D63413FBB2E4E98EDE61C092C8678D2E8ADE394D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133063.jpgsave_picture_133063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133063.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Emurasoft EmEditor Professional 23.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133064.jpgsave_picture_133064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133064.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133066.jpgsave_picture_133066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133066.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Chet Atkins with Tommy Emmanuel - The Day Finger Pickers Took Over The World (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133067.jpgsave_picture_133067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133067.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Chet Atkins with Tommy Emmanuel - The Day Finger Pickers Took Over The World (19
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133068.jpgsave_picture_133068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133068.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:5D188288F630DD225052AEACA4155E11C0334029
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133069.jpgsave_picture_133069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133069.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:80C246B92D1CC5EF5E442E159AD203274BA81D64
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133073.jpgsave_picture_133073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133073.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AF9A4861E8BF060CD76DCB9328939F7D90FFD9F8
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133074.jpgsave_picture_133074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133074.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ PhotoRoom v4.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133075.jpgsave_picture_133075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133075.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:C0055F78825E5DCC4B8E9BE2C0E3D229116BDC96
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133076.jpgsave_picture_133076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133076.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133077.jpgsave_picture_133077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133077.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Black Sabbath - Deep Black (The Massachusetts Broadcast 1983) (2023) Live [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpgsave_picture_133078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:655B0BD172741AF2FF5F9D924CE1FAA80C18D027
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133079.jpgsave_picture_133079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133079.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133080.jpgsave_picture_133080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133080.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpgsave_picture_133082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpgsave_picture_133084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133086.jpgsave_picture_133086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133086.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:BFCD324A1441D5C0E4DF29EB5B089AA4FEAEACB1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133087.jpgsave_picture_133087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133087.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VLC Media Player 2.1.0-git-20121227-0003 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133088.jpgsave_picture_133088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133088.jpg" />
 </div>
 
 

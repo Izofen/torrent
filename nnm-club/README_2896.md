@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85105.jpgsave_picture_85105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85108.jpgsave_picture_85108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85108.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:DB2F49143D7F330BA3CD675F79EE5FB10C6CF12B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85109.jpgsave_picture_85109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85109.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DB2F49143D7F330BA3CD675F79EE5FB10C6CF12B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85111.jpgsave_picture_85111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85111.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D6C0F8D66B82527A812D15E0B7EA2B37A193514B
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85113.jpgsave_picture_85113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85113.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:92CCC44E3B65A4B00267A3596D0EC797D88CE457
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85114.jpgsave_picture_85114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85114.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:2FA0E4119A9717C5AF6E4C70476377FCE586ECCA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85115.jpgsave_picture_85115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85115.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:2FA0E4119A9717C5AF6E4C70476377FCE586ECCA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85116.jpgsave_picture_85116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85116.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85119.jpgsave_picture_85119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85119.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Total Commander SE v.8.0 beta 23 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85120.jpgsave_picture_85120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85120.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Total Commander SE v.8.0 beta 23 [Русский]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85121.jpgsave_picture_85121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85121.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85122.jpgsave_picture_85122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85122.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85123.jpgsave_picture_85123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85123.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wondershare Video Converter Ultimate 5.7.6.2 + Portable by BALISTA [Мульти
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85124.jpgsave_picture_85124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85124.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Wondershare Video Converter Ultimate - представляет собой по�
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85125.jpgsave_picture_85125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85125.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:103F86481AC2F2BFBAFAB85940B77EC5EA7E74AC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85129.jpgsave_picture_85129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85129.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:103F86481AC2F2BFBAFAB85940B77EC5EA7E74AC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85130.jpgsave_picture_85130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85130.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:CB968817F6E1774596A3D704D995B59E0AEBDE98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85132.jpgsave_picture_85132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85132.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:592C9D88B8F48EDDAB9760695D102802621F3890
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85133.jpgsave_picture_85133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85133.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:EF76E6DE6CC7A4321921890984BF67AFB2050E66
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85136.jpgsave_picture_85136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85136.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Syphon Filter [PS1] [NTSC] [RUS] [Vector] (1999)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85138.jpgsave_picture_85138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85138.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:4DBBFFAED08628D817A127F4FF9E7B324EEE6AF3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85139.jpgsave_picture_85139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85139.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:4DBBFFAED08628D817A127F4FF9E7B324EEE6AF3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85141.jpgsave_picture_85141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85141.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85142.jpgsave_picture_85142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85142.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:D7EA5D1C39167CE29C2E4386D9325A513FF12FD8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85143.jpgsave_picture_85143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85143.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:F45D3AC2BA87D49443F486942FF46ED22CE513BB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85144.jpgsave_picture_85144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85144.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66920.jpgsave_picture_66920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66920.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Nothing But... Trancetopia, Vol. 26 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66921.jpgsave_picture_66921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66921.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stam - A Bit Edgy (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66922.jpgsave_picture_66922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66922.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Ori Uplift - Uplifting Only Episode 639 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66923.jpgsave_picture_66923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66923.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Raise Hell - Studio Albums (5 releases) (1998-2015) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66924.jpgsave_picture_66924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66924.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:1110789C343DC51441031D57FDA04564AF33794E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66925.jpgsave_picture_66925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66925.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Chill Out Paradise, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66926.jpgsave_picture_66926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66926.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:09EAE25BF48131CD1BAFD9B5E9FFBE14F11C6A0B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66927.jpgsave_picture_66927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66927.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66928.jpgsave_picture_66928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66928.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:BF123D12E895E826632BE522D74A6F56E5B278B0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66929.jpgsave_picture_66929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66929.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:CEBE1869BD0F6C34DCCF5730F9DA539D16061C93
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66930.jpgsave_picture_66930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66930.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66931.jpgsave_picture_66931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:908AE68D2E29F31FB6F9434426FF1E1ECC0FB791
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66932.jpgsave_picture_66932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66932.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Markus Schulz - In Bloom 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, V
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66933.jpgsave_picture_66933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66933.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:F9BE53502DAD4097F0DDC03B01A551B4E5423C9C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66934.jpgsave_picture_66934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66934.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Black Stone Cherry - Compilation (2003-2025) [MP3|320 Kbps] <Hard rock, Southern
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66935.jpgsave_picture_66935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66935.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:B428F615AA4AE1E468392810ED0ED4D1B0A3D890
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66936.jpgsave_picture_66936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66936.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:CA586112545B7CD91233613E2520F6C1F1719EDA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66937.jpgsave_picture_66937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66937.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Sounds Like Summer, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66938.jpgsave_picture_66938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66938.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:2D68CB4D93A756008A07C3873015B5C0C614F981
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66939.jpgsave_picture_66939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66939.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ York - Infinite (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66940.jpgsave_picture_66940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66940.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A2D64F8F651BED47A75AB16524AC80C583E2AD9A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66941.jpgsave_picture_66941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66941.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:EC291392385D0EA6275A61947F765BF10313A4DE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66942.jpgsave_picture_66942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66942.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:61E0176FB1847A3649EFD784FD25DBC14E10643C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66943.jpgsave_picture_66943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66943.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpgsave_picture_66944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:C4698C29E334DD4E360F1CC314FF5D8395B6BECA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66945.jpgsave_picture_66945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66945.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Lucky Patcher 10.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180902.jpgsave_picture_180902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180905.jpgsave_picture_180905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180905.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dark The Suns - Raven and the Nightsky (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180907.jpgsave_picture_180907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180907.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C357B25A6241A188B7CB2D0DB4E7F8A965590D31
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180911.jpgsave_picture_180911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180911.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180914.jpgsave_picture_180914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180914.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Jason Ricci & The Bad Kind - Behind the Veil (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180917.jpgsave_picture_180917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180917.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:B197CC5F701F6698625486B8352982C495F12DEC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180919.jpgsave_picture_180919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180919.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Al Basile - B's Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180922.jpgsave_picture_180922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180922.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ AutoHideDesktopIcons 5.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180924.jpgsave_picture_180924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180924.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ CherryTree 0.99.52 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180925.jpgsave_picture_180925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180925.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:0073368B5F41C58F9B1AB804B5A1F5EF2D8E2B56
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180928.jpgsave_picture_180928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180928.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpgsave_picture_180931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:B0D9F32734D79185EAB83AEBCAA96D1D95EE2876
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180932.jpgsave_picture_180932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180932.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Vivaldi 5.5.2805.48 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180935.jpgsave_picture_180935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180935.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Barbara Morrison And The Legacy - Blues Mama! (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180936.jpgsave_picture_180936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180936.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180940.jpgsave_picture_180940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180940.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Abelssoft Win10PrivacyFix 2022 5.0.42337 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180942.jpgsave_picture_180942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180942.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180943.jpgsave_picture_180943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180943.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:2B19304545F52A3A78A93214E4B5193BACCEC99A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180947.jpgsave_picture_180947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180947.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Façade (Facade) & Locus Amoenus - (2018) Split [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180948.jpgsave_picture_180948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180948.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180950.jpgsave_picture_180950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180950.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180952.jpgsave_picture_180952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180952.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:45AA4E4B6CB335ED51ECF872CE832C88D44DB5A2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpgsave_picture_180955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpgsave_picture_180956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ David Knopfler - Skating On The Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180960.jpgsave_picture_180960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180960.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpgsave_picture_180961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180961.jpg" />
 </div>
 
 

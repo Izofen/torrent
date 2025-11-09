@@ -6,7 +6,7 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19228.jpgsave_picture_19228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19228.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News For Forum vol.082 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19229.jpgsave_picture_19229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19229.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Musical kaleidoscope part 39 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19230.jpgsave_picture_19230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19230.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GeoGebra 6.0.885-1 Classic + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19231.jpgsave_picture_19231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19231.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19232.jpgsave_picture_19232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19232.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6AD19FF7300D7853233E5EEE3FFC6E206197802F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19233.jpgsave_picture_19233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19233.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ QOwnNotes 25.5.3 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19234.jpgsave_picture_19234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19234.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ discoDSP - OB-Xd 3.8.0 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19235.jpgsave_picture_19235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19235.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D102A7AAD71C4A18CCA6019EAD9A25B93E6732FF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19236.jpgsave_picture_19236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19236.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:75706F3A4CC0AE03C53FFC2AF13E6FE5B4EDEF9C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19237.jpgsave_picture_19237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19237.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:336ADD5523F4FD1F471CE83949734F4E70243706
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19238.jpgsave_picture_19238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19238.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Modern Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19239.jpgsave_picture_19239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19239.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:F9A2741197244EECBC5F476744F31E7F97667C39
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19240.jpgsave_picture_19240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19240.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ GIF Maker - GIF Editor v3.0.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19241.jpgsave_picture_19241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19241.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A488F88B936CC6ACCDB95A4F39089B5A87168B49
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19242.jpgsave_picture_19242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19242.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19243.jpgsave_picture_19243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19243.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:295566CF2F3275B427CF508883C66E4C4205B35A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19244.jpgsave_picture_19244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19244.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:48E336E29A69FDF30B5CC9EB6DCD9440950BB8F4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19245.jpgsave_picture_19245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19245.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C6FEC7979FDF7211C5EFEFBBD94D9813930C912F
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19246.jpgsave_picture_19246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19246.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:6C2E75013F783DF29261DC5764697EEEDE9660C6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19247.jpgsave_picture_19247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19247.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:64A511F886A517847886CAEAAEDEF197E2245BDB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19248.jpgsave_picture_19248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19248.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A0E85EEFABA66472BCF955CCF2AE2CF0836D6A8A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19249.jpgsave_picture_19249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19249.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:46A0CC1FD0150D607FE451432F5FB72417662E95
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19250.jpgsave_picture_19250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19250.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19251.jpgsave_picture_19251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19251.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19252.jpgsave_picture_19252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19252.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Allavsoft Video Downloader Converter 3.28.0.9253 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19253.jpgsave_picture_19253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19253.jpg" />
 </div>
 
 

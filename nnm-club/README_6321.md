@@ -6,7 +6,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpgsave_picture_197975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Final Cut Pro 10.6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197976.jpgsave_picture_197976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197976.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bandicam 6.2.1.2068 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197977.jpgsave_picture_197977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197977.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AB0E439307BC39957AC3A9403A0831ED22C534C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197978.jpgsave_picture_197978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197978.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197979.jpgsave_picture_197979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197979.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wireshark 4.0.6 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197981.jpgsave_picture_197981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197981.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ ShowKeyPlus 1.1.18.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197982.jpgsave_picture_197982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197982.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3993A7C0BBD9F880EEB770410EA71154EB8D052A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197983.jpgsave_picture_197983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197983.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ FxSound Pro 1.1.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197984.jpgsave_picture_197984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197984.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpgsave_picture_197985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:77DDAFB6792A2F2587D9ECED213EC1413D541C15
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197986.jpgsave_picture_197986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197986.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C572E40ADF45806E72DD86283BCE3D0C5AEB794A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197987.jpgsave_picture_197987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197987.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:ED6EC42D5083CE1C0158A3E5B13555B556B2734E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197988.jpgsave_picture_197988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197988.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:381C4D550EC97817AFFD242893164B6516DE1E9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197989.jpgsave_picture_197989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197989.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D8C1DB8DA7C63AFC1B6290A708CCA6F6BF19EA99
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197990.jpgsave_picture_197990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197990.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:DE6AA2C876665C49ABF8718DF55BD121D621F17F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197991.jpgsave_picture_197991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197991.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7E5077AB4EAEACDC091DE9CEDCE08D0F1A5E37BE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197992.jpgsave_picture_197992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197992.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:EE04F6138690AB71DA8A5CE9316D5C796059E007
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197993.jpgsave_picture_197993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197993.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ AOMEI Partition Assistant Technician Edition 10.0.0 (24.05.2023) RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197994.jpgsave_picture_197994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197994.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:D2740C67D4DAFFA642F423B85BF4775CF6B66646
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197995.jpgsave_picture_197995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197995.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197996.jpgsave_picture_197996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197996.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5b Build 25 Public Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197997.jpgsave_picture_197997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197997.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:CC9CE4D1C110A422B39729A62BFDAD64CD5444D1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197998.jpgsave_picture_197998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197998.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4AFE0DB49DC56F959CC8BE359B4A3D09E76ECB29
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197999.jpgsave_picture_197999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197999.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:19C7500792232F061FE6B74E120E808102FC1AE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198000.jpgsave_picture_198000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198000.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:3DE1713E79F2D806D7BF3DE6F9310E7C594CB538
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198001.jpgsave_picture_198001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198001.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236680.jpgsave_picture_236680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:395D4AFA7A0A37D136A03EE98DB56812EFF39499
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236684.jpgsave_picture_236684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236684.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3B3EF78D6B1791AA8CEEAD17113D182D73D6F73E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236685.jpgsave_picture_236685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236685.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's b
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236686.jpgsave_picture_236686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236686.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sandboxie 5.64.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236687.jpgsave_picture_236687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236687.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236689.jpgsave_picture_236689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236689.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:373B2ABD72943A1C196D75DE5F1ACB3FA685FB2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236693.jpgsave_picture_236693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236693.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ TinkerTool System 7 v7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236694.jpgsave_picture_236694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236694.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C3DE3B62158B3D8CD00511856020A63A9EF228D3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236695.jpgsave_picture_236695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236695.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9F3CC7ABE9594166B21046C427600AB8E4DEC9C9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236698.jpgsave_picture_236698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236698.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Super Vectorizer Pro for Mac 2.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236699.jpgsave_picture_236699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236699.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236700.jpgsave_picture_236700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236700.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236703.jpgsave_picture_236703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236703.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:EFD3BAB402125453202F926485A5985CB22C987F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236704.jpgsave_picture_236704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236704.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236706.jpgsave_picture_236706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236706.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:FFCD8978E2DEC17CB722C0C888809072946EDA2A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236707.jpgsave_picture_236707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236707.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Sorry Girls - Bravo! (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, 80s>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236710.jpgsave_picture_236710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236710.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Tonight's Hero - Skeleton Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236711.jpgsave_picture_236711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236711.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:06F1E3612D538E3453FCF56B01F9ED6787A1228C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236712.jpgsave_picture_236712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236712.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ TrashMe 3 v.3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236713.jpgsave_picture_236713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236713.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Cacheman 10.70.0.4 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236714.jpgsave_picture_236714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236714.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Dear Hunter - The Indigo Child (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236715.jpgsave_picture_236715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236715.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236716.jpgsave_picture_236716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236716.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Skype 8.99.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236718.jpgsave_picture_236718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236718.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student'
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236721.jpgsave_picture_236721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236721.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:5DAF675EE6676E3A0031BDB028358D86E85640D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236722.jpgsave_picture_236722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236722.jpg" />
 </div>
 
 

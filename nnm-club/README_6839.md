@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235033.jpgsave_picture_235033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PhotoMill X 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235035.jpgsave_picture_235035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235035.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:60C9E3A3AEE64FCDF377745622C37954ABB2D0AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235036.jpgsave_picture_235036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235036.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E473EA8B42624F2BFF69144CB2D72012D24E707E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235037.jpgsave_picture_235037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235037.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:43050D0858B276519D8C8658679CBB079C9FC09B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235038.jpgsave_picture_235038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235038.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Principle 6 v6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235039.jpgsave_picture_235039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235039.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Rapine - Cries for Reprise (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235041.jpgsave_picture_235041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235041.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Kickhunter - Now Or Never (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235043.jpgsave_picture_235043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235043.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B5035F1CB5A835BD32C4CAE0ABCBC69E4CAD1E20
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235044.jpgsave_picture_235044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235044.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:7ED5B1C3731D088A2CE467A87856D7C5C6337229
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235045.jpgsave_picture_235045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235045.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Stargazer - Life Will Never Be the Same (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235046.jpgsave_picture_235046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235046.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ DuplicateViewer Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235047.jpgsave_picture_235047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235047.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Domkraft - 6 Albums (2016-2021) [MP3|320 Kbps] <Psychedelic Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235049.jpgsave_picture_235049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235049.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Club Summer Megamix (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235052.jpgsave_picture_235052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235052.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:9BF6DFC0634E90D1E7A7651DA204DDE2D1EAA3A4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235053.jpgsave_picture_235053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235053.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Domestika, Juan Solís | Professional Modelling of 3D Cartoon Characters (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235054.jpgsave_picture_235054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235054.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ FontXChange 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235055.jpgsave_picture_235055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235055.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F169E524F2D0068D6BAAAEB42551EB0C43BCF2CA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235057.jpgsave_picture_235057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235057.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:F900293625DEF35650C1E18763DE932AB7854B30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235059.jpgsave_picture_235059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235059.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:32AE033FE3867C61E5F79A3871038F6588DEA068
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235060.jpgsave_picture_235060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235060.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0276F7F9BC15B68ED9CA115037480B89BF2BA73C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235061.jpgsave_picture_235061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235061.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Seven Spires - Live at Progpower USA XXI (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235062.jpgsave_picture_235062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235062.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:988422012156EC554E6E85944342E392610A6EB1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235064.jpgsave_picture_235064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235064.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ zGallery – Image Viewer 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235066.jpgsave_picture_235066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235066.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:840E34AC87A0AFE4CA65621B84057911B4E4DFC4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235068.jpgsave_picture_235068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235068.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Slidepad 1.0.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235069.jpgsave_picture_235069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235069.jpg" />
 </div>
 
 

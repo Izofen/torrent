@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32075.jpgsave_picture_32075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D797026DD7FAFC6F4CAD8ADBB7C6398F2537CC5B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32076.jpgsave_picture_32076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32076.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32077.jpgsave_picture_32077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32077.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32078.jpgsave_picture_32078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32078.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32079.jpgsave_picture_32079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32079.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ FolderSync Pro v4.1.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32080.jpgsave_picture_32080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32080.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:B322ABCA2FEC395441B38FD89BAF72F8BA5523A5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32081.jpgsave_picture_32081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32081.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32082.jpgsave_picture_32082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32082.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32083.jpgsave_picture_32083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32083.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32084.jpgsave_picture_32084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32084.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32085.jpgsave_picture_32085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32085.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - The Best Of Italo Disco Vol. 11 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32086.jpgsave_picture_32086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32086.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Slay the Princess - The Pristine Cut (2023) [Ru/Multi] (Build 16887603) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32087.jpgsave_picture_32087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32087.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32088.jpgsave_picture_32088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32088.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A5311B35A9DA8F235B809CAC7C495DBC89ABBFF1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32089.jpgsave_picture_32089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32089.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7FC6C110ACDE474E127085D04B667A96B2AB310C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32090.jpgsave_picture_32090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32090.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EFFADF5A4FBA7EFB145FD327B923C80EB018DC49
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32091.jpgsave_picture_32091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32091.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [Multi] (1.07) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32092.jpgsave_picture_32092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32092.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Dancefloor Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32093.jpgsave_picture_32093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32093.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:361FBFA75BC2C9A9C0EBF97213BFF104C0F9E9F6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32094.jpgsave_picture_32094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32094.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32095.jpgsave_picture_32095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32095.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32096.jpgsave_picture_32096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32096.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32097.jpgsave_picture_32097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32097.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:047E52013BA0C9469957DC4B01F4C4AFB2E6D735
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32098.jpgsave_picture_32098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32098.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9076E1C06CA824FB2FC18D58387AE410D3CB3912
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32099.jpgsave_picture_32099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32099.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:CB110B52AEFD6F310079D2547AA2ECB67A28747B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32100.jpgsave_picture_32100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32100.jpg" />
 </div>
 
 

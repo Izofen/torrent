@@ -6,7 +6,7 @@
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77253.jpgsave_picture_77253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77253.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Devil's Train - Devil's Train (2012) [MP3|V0 ~241 кб/с]<Hard & Heavy Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77257.jpgsave_picture_77257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77257.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:2963DE0B6AA316232E7E0E3A73C232C058439706
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77258.jpgsave_picture_77258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77258.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Topmodelz - Back To The 80s (2010) [MP3|320 kbps]<Hard Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77261.jpgsave_picture_77261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77261.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:42BF9D6EB6606B43C7FE500BFED12EE97304A296
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77265.jpgsave_picture_77265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77265.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4EB44F03A43F208EE7E0365A2FDFFC72F4516E4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77267.jpgsave_picture_77267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77267.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77269.jpgsave_picture_77269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77269.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77274.jpgsave_picture_77274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77274.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - TranceMafia - Hellenic Music Revolutionaries (2012) [MP3|320 kbps]<Psychede
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77278.jpgsave_picture_77278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77278.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77284.jpgsave_picture_77284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77284.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77297.jpgsave_picture_77297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77297.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpgsave_picture_77317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77319.jpgsave_picture_77319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77319.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77332.jpgsave_picture_77332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77332.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77335.jpgsave_picture_77335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77335.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77336.jpgsave_picture_77336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77336.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77337.jpgsave_picture_77337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77337.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77346.jpgsave_picture_77346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77346.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77358.jpgsave_picture_77358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77358.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77363.jpgsave_picture_77363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77363.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77364.jpgsave_picture_77364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77364.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77370.jpgsave_picture_77370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77370.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77372.jpgsave_picture_77372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77372.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:DABD1FE6C253637F6AC03C0E53F714D51A4097F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77381.jpgsave_picture_77381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77381.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ magnet:?xt=urn:btih:2D82BDAE34D85A4CDA32FF2E99F2FD8254CDD3AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77395.jpgsave_picture_77395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77395.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77398.jpgsave_picture_77398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77398.jpg" />
 </div>
 
 

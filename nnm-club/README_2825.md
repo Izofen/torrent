@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81706.jpgsave_picture_81706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EF838C5A12CED1F1651AD9356302FB6ECF5C2189
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81707.jpgsave_picture_81707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81707.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:EF838C5A12CED1F1651AD9356302FB6ECF5C2189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81708.jpgsave_picture_81708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81708.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EF838C5A12CED1F1651AD9356302FB6ECF5C2189
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81709.jpgsave_picture_81709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81709.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Unattended Soft Pack 11.03.12 [X32/X64/Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81711.jpgsave_picture_81711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81711.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Alien Skin Snap Art 3.0.0.697 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81712.jpgsave_picture_81712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81712.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Multi Flash Kit by Core-2 v.9.3.12 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81714.jpgsave_picture_81714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81714.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Multi Flash Kit by Core-2 v.9.3.12 [Русский, Английский]
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81715.jpgsave_picture_81715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81715.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:AC413FE5BA5C1A93CC3D08252991D1F8DC84483F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81720.jpgsave_picture_81720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81720.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:AC413FE5BA5C1A93CC3D08252991D1F8DC84483F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81721.jpgsave_picture_81721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81721.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A463944B058E4E7814A2024ACFE3FCC362AA4328
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81723.jpgsave_picture_81723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81723.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E382138A2DA3AA8857F32720954C814B308994EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81725.jpgsave_picture_81725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81725.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E382138A2DA3AA8857F32720954C814B308994EC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81726.jpgsave_picture_81726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81726.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81727.jpgsave_picture_81727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81727.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tennis no Ouji-sama / The Prince of Tennis / Принц тенниса [2001, TV
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81728.jpgsave_picture_81728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81728.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4C667CA5BD7887DFA01865C19E346E275F283A45
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81729.jpgsave_picture_81729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81729.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Corel VideoStudio Pro X5_Ultimate 15.0.0.258 Ultimate [EN] + Tutorials
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81732.jpgsave_picture_81732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81732.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Corel VideoStudio Pro X5 — мощное, эффективное и прост�
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81733.jpgsave_picture_81733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81733.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:D0D0FD3AFA4A85DCA7FD88278ACAECD7D325DE42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81734.jpgsave_picture_81734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81734.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:9C7C61FF94B668E9BF27AA1506CD1D1FC21AA8BB
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81739.jpgsave_picture_81739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81739.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:FB0C365408B018AA5699A447A151660AD196260D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81740.jpgsave_picture_81740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81740.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81742.jpgsave_picture_81742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81742.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:1FCB843CD73E6ABF328AFDDA5070822263EF98BC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81743.jpgsave_picture_81743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81743.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:24CBC115C78D7F22E049E098D59E7AC4E9A532D6
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81747.jpgsave_picture_81747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81747.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Windows Loader 2.1.2 by Daz [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81750.jpgsave_picture_81750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81750.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Adobe Audition CS5.5 4.0 Build 1815 Portable by punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81752.jpgsave_picture_81752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81752.jpg" />
 </div>
 
 

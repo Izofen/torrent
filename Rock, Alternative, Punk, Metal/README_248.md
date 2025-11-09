@@ -6,7 +6,7 @@ Emberstar - Dialogue With The Outside (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159336.jpgsave_picture_159336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159336.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heaven's Guardian - Chronos (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Male Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159344.jpgsave_picture_159344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159344.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wrath Of God - Blood Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159366.jpgsave_picture_159366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159366.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Katy Rose - Let's Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Singer-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159368.jpgsave_picture_159368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159368.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Steve Augeri (ex-Journey) - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159369.jpgsave_picture_159369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159369.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Glass Hammer - Skallagrim (Into The Breach) (2021) 2022 [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159371.jpgsave_picture_159371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159371.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Benumb - Soul of the Martyr (1998) [FLAC|Lossless|image + .cue] <Grindcore, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159379.jpgsave_picture_159379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159379.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Von Boldt - Hallowed Be My Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159380.jpgsave_picture_159380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159380.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Autophagia - Postmortem Human Offal (2003) [FLAC|Lossless|image + .cue] <Goregri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159381.jpgsave_picture_159381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159381.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Magenta Aura (Darryl Way) - The Rock Artist's Progress (2022) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159383.jpgsave_picture_159383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159383.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Benumb - Withering Strands of Hope (2000) [FLAC|Lossless|image + .cue] <Grindcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159384.jpgsave_picture_159384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159384.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ In And Out - In And Out (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159390.jpgsave_picture_159390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159390.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wyrmwoods - Spirit & Teeth (2019) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Ava
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159392.jpgsave_picture_159392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159392.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ad Eternum - Dogma (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159414.jpgsave_picture_159414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159414.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ynk - Ynk (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159416.jpgsave_picture_159416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159416.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ad Eternum - Creando Suenos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159425.jpgsave_picture_159425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159425.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wretched Path - Heavy Lies the Crown (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159429.jpgsave_picture_159429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159429.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Worm - Foreverglade (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159431.jpgsave_picture_159431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159431.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Arathorn - Treue & Verrat (2008) [FLAC|Lossless|image + .cue] <Medieval Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159435.jpgsave_picture_159435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159435.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Zoofilia - Sangradas escrituras (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159436.jpgsave_picture_159436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159436.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Worm - Bluenothing (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Black, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159437.jpgsave_picture_159437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159437.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wyrmwoods - Gamma (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Avant-garde 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159438.jpgsave_picture_159438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159438.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zaeer - El Taree (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159440.jpgsave_picture_159440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159440.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wolf Spider - Kingdom Of Paranoia (1990) Remaster 2009 [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159442.jpgsave_picture_159442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159442.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Attacker - The Unknown (2006) [APE|Lossless|image + .cue] <Power Metal, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159448.jpgsave_picture_159448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159448.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Wasteform - Designed by Disgust (2010) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159450.jpgsave_picture_159450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159450.jpg" />
 </div>
 
 

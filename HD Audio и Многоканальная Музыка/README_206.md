@@ -6,7 +6,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpgsave_picture_193512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194016.jpgsave_picture_194016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194016.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpgsave_picture_194449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpgsave_picture_194900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4D4605F8647E9AC598F288E39D5D30C7B21CD795
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195864.jpgsave_picture_195864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195864.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hooverphonic - No More Sweet Music (2005) [DTS-CD from DVD-Video] <lounge>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196172.jpgsave_picture_196172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196172.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpgsave_picture_196226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Mu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpgsave_picture_197349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E568874E25B8166039832F9E7AA20CBF1F1889D1
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197473.jpgsave_picture_197473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197473.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpgsave_picture_197851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpgsave_picture_197985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpgsave_picture_198016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 50th Anniversary 2023 remaster [DT
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198089.jpgsave_picture_198089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198089.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198090.jpgsave_picture_198090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198090.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpgsave_picture_198325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198446.jpgsave_picture_198446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198446.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpgsave_picture_198677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpgsave_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202261.jpgsave_picture_202261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202261.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202370.jpgsave_picture_202370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202370.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpgsave_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpgsave_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpgsave_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpgsave_picture_203349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpgsave_picture_203370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpgsave_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
 </div>
 
 

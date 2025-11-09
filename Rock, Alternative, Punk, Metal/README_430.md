@@ -6,7 +6,7 @@ Speed Limit - Cut A Long Story Short (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237739.jpgsave_picture_237739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237739.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kohnerah - Ominous Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237746.jpgsave_picture_237746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237746.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5443DA3816918294A09E99A92CB54BF8B220ADD4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpgsave_picture_237747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Haken - Fauna (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237748.jpgsave_picture_237748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237748.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Myntra - Genesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237753.jpgsave_picture_237753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237753.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Total - 4 albums + 7 singles + Bonus (2002-2021) [MP3|128-320 kbps] <Alternative
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237762.jpgsave_picture_237762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237762.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Danas Rising - Morgengrauen (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237768.jpgsave_picture_237768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237768.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Norsk Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237770.jpgsave_picture_237770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237770.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Snuts - Burn The Empire (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237771.jpgsave_picture_237771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237771.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Necrodeath - Singin' in the Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237782.jpgsave_picture_237782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237782.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lattermath - Lattermath (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237789.jpgsave_picture_237789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237789.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237792.jpgsave_picture_237792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237792.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vlatko Stefanovski - Cowboys & Indians (1994) [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237795.jpgsave_picture_237795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237795.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237804.jpgsave_picture_237804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237804.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:82091BC0FBA4E5D96EA3E9515EE89534571C7AB5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpgsave_picture_237807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Joel Hoekstra's 13 - Running Games (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237808.jpgsave_picture_237808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237808.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Disharmony - Gods Made of Flesh (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237816.jpgsave_picture_237816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237816.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wirethrone - Wirethrone (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237822.jpgsave_picture_237822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237822.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Winterwar - Wizard of the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237826.jpgsave_picture_237826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237826.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Submarine Silence - Did Swans Ever See God? (2020) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237836.jpgsave_picture_237836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237836.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ben Harper - Wide Open Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237865.jpgsave_picture_237865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237865.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AE32585072DF5A8CC3FA33514FF10F35434B5159
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpgsave_picture_237886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Especial Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237887.jpgsave_picture_237887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237887.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Golden Grass - Life Is Much Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237888.jpgsave_picture_237888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237888.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Battlefield - We'll Rock Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237892.jpgsave_picture_237892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237892.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Royal Bliss - Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237895.jpgsave_picture_237895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237895.jpg" />
 </div>
 
 

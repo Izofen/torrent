@@ -6,7 +6,7 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169043.jpgsave_picture_169043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CC99D9B306AEFBBB4EF5F846ED86FC99A4C3FF28
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169044.jpgsave_picture_169044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169044.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:89D1C2FFC4DC5A71E4A9058C56AFF17FD83B8E01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169045.jpgsave_picture_169045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169045.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:906E5A8597531F411098E253F304FEF11125C14A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169046.jpgsave_picture_169046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169046.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ashampoo Burning Studio 23.0.0.38 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169047.jpgsave_picture_169047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169047.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FA622EE7D2137C5C2781D48CEB2E0E49BEACFDA5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169048.jpgsave_picture_169048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169048.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ WidsMob Panorama 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169049.jpgsave_picture_169049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169049.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ SILKYPIX Developer Studio Pro 11.0.12.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169050.jpgsave_picture_169050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169050.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:ED249AFE7A8CA28BFE21B27E53E99022244B8438
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169051.jpgsave_picture_169051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169051.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ calibre 5 v5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169052.jpgsave_picture_169052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169052.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169053.jpgsave_picture_169053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169053.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:2C5892F868234D8827D3E5ED282EF4FDCBAE2F84
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169054.jpgsave_picture_169054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169054.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169055.jpgsave_picture_169055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169055.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|image + .cue] <Sort Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169056.jpgsave_picture_169056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169056.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ ByClick Downloader Premium 2.3.18 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169057.jpgsave_picture_169057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169057.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VideoTag 1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169058.jpgsave_picture_169058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169058.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B59225142E661496062328CC619617F74F0EF9B1
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169059.jpgsave_picture_169059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169059.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Artlantis 2019 v8.0.2.21219 RedSDK [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169060.jpgsave_picture_169060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169060.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:337987D0F9BB30E3C4E37EF85CF38C5DA5741869
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169061.jpgsave_picture_169061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169061.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169062.jpgsave_picture_169062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169062.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169063.jpgsave_picture_169063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169063.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169064.jpgsave_picture_169064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169064.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SmallCubed MailSuite 2019.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169065.jpgsave_picture_169065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169065.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:CE737BD40013BE3E152A06CAF523172A7CFDA460
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169066.jpgsave_picture_169066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169066.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169067.jpgsave_picture_169067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169067.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Charles Web Debugging Proxy 4.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169068.jpgsave_picture_169068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169068.jpg" />
 </div>
 
 

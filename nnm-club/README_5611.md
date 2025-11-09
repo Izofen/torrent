@@ -6,7 +6,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172878.jpgsave_picture_172878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172879.jpgsave_picture_172879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172879.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PhotoMill X 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172880.jpgsave_picture_172880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172880.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Path Finder 2161 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172881.jpgsave_picture_172881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172881.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:DD5DB5C78D7E7E8083855E4FBFAC38010AE31E2B
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172882.jpgsave_picture_172882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172882.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 10.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172883.jpgsave_picture_172883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172883.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:3B63A17274EE60C2E6FF3135BCA2E3B20469B746
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172884.jpgsave_picture_172884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172884.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172885.jpgsave_picture_172885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172885.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A78603AE17A0C761695D105B3206B1D55E1B1651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172886.jpgsave_picture_172886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172886.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E6D64731B4F2B074A2194EF8D10EBE9E49B887B6
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172887.jpgsave_picture_172887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172887.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:CFD5EA592679B928647C6444268930C96B907AE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172888.jpgsave_picture_172888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172888.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9CEF2DE1D1DCB2B2718CB95AF869CD95C136462A
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172889.jpgsave_picture_172889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172889.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ WRC 9 FIA World Rally Championship (2020) [Ru/Multi] (1.0/dlc) Repack Other s [D
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172890.jpgsave_picture_172890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172890.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:6031AD38E6C90E9B4C3655B4DD9D4015959033F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172891.jpgsave_picture_172891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172891.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:BB3AF8CD2C48873F743C52B3D751F95EDA13E879
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172892.jpgsave_picture_172892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172892.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B208C582B8EAE06430B14D29FC98699E203FE581
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172893.jpgsave_picture_172893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172893.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:CFFA6AFAA2CC5E09E413CE51C944F611652EB2F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172894.jpgsave_picture_172894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172894.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:9A2B1BC3D923665C01E987D9453594D216E505BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172895.jpgsave_picture_172895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172895.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B02740B035E455011F6D901865B789BBACFFDF83
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172896.jpgsave_picture_172896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172896.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:545B0669625DBED57709C3D2772A186030E1A7BF
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172897.jpgsave_picture_172897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172897.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:32C14E31477B0EDFE29D2ABBDDEAD5F3E69EE86E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172898.jpgsave_picture_172898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172898.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ EA SPORTS UFC 4 (2020) [PS4] [EUR] 5.05 [HEN] [License / 24.00] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172899.jpgsave_picture_172899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172899.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B6ED4E52B3040EED30DAFDBC375ACB09FCFBE415
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172900.jpgsave_picture_172900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172900.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A1FA6A980E236BA7CEBF5F758164A956AACEF2D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172901.jpgsave_picture_172901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172901.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A1FA6A980E236BA7CEBF5F758164A956AACEF2D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172902.jpgsave_picture_172902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172902.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172903.jpgsave_picture_172903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172903.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpgsave_picture_193519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Charrua Soccer (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193527.jpgsave_picture_193527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193527.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193563.jpgsave_picture_193563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193563.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193583.jpgsave_picture_193583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193583.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fire Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193601.jpgsave_picture_193601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193601.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hellfire (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193617.jpgsave_picture_193617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193617.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Slap Fight (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193628.jpgsave_picture_193628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193628.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Blasphemous 2 (2023) [Ru/Multi] (1.0.5-cs43681) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193671.jpgsave_picture_193671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193671.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpgsave_picture_193702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WildTrax Racing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193726.jpgsave_picture_193726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193726.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193742.jpgsave_picture_193742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193742.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193748.jpgsave_picture_193748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193748.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lynked Banner of the Spark (2025) [Ru/Multi] (Build 87707/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193756.jpgsave_picture_193756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193756.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193767.jpgsave_picture_193767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193767.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193777.jpgsave_picture_193777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193777.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193803.jpgsave_picture_193803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193803.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193823.jpgsave_picture_193823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193823.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193854.jpgsave_picture_193854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193854.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193857.jpgsave_picture_193857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193857.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193865.jpgsave_picture_193865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193865.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193871.jpgsave_picture_193871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193871.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193928.jpgsave_picture_193928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193928.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193944.jpgsave_picture_193944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193944.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpgsave_picture_193979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193981.jpgsave_picture_193981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193981.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193988.jpgsave_picture_193988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193988.jpg" />
 </div>
 
 

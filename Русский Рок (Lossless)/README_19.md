@@ -6,7 +6,7 @@ Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpgsave_picture_131203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpgsave_picture_131207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D4E75B9A826B92BDF4AF7D90FAD3F6DB7E7680BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpgsave_picture_131473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B1999EB2F65FEE0D73F0528E2D63257E0B98BD30
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpgsave_picture_131860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4D1103CC8DBCB2FC385ECEC554C30344066DCEBB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpgsave_picture_131862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DEFA258C575250580FD50C0B4EDBCE4E527326C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpgsave_picture_131863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A74DF75794F2B1320BC2DA1212017219359EFE62
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpgsave_picture_131865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:C55DD0A6EF4C73563D75951AB9E9F8566EDDC0FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpgsave_picture_131866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Kaban - В Мире Животных (2021) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpgsave_picture_131868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpgsave_picture_131871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131880.jpgsave_picture_131880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131880.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132015.jpgsave_picture_132015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132015.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:59A16300EED8BD5CFC9060596BB15494259857D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpgsave_picture_132077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132087.jpgsave_picture_132087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132087.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:D8DE7DEE4E03CE54AD72BEE134A5436FA8322D47
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132107.jpgsave_picture_132107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132107.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:07B134683786B92CDD3008048869B4336446EC9B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132114.jpgsave_picture_132114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132114.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A9A7C940C54E5263A86DA21B3857DFC5018EC171
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpgsave_picture_132133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpgsave_picture_132741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpgsave_picture_132753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpgsave_picture_132755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpgsave_picture_133084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpgsave_picture_133155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpgsave_picture_133165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpgsave_picture_133204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpgsave_picture_133520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpgsave_picture_133539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
 </div>
 
 

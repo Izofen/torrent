@@ -6,7 +6,7 @@ Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174017.jpgsave_picture_174017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174017.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174019.jpgsave_picture_174019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174019.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DCCE8080A2DD3D7EBBC9BE6E7A17204492438897
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174021.jpgsave_picture_174021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174021.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO FilmPack 7 for Mac v.7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174022.jpgsave_picture_174022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174022.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:32FA2CAE8D6B375A16E03B46EBDBA593BCA2D0EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174024.jpgsave_picture_174024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174024.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174025.jpgsave_picture_174025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174025.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Summertime Rock Hits 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174026.jpgsave_picture_174026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174026.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Icecream Screen Recorder Pro 7.30 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174027.jpgsave_picture_174027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174027.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A48433B4D69822ED4177B0900C78B8D91EE3EF51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174028.jpgsave_picture_174028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174028.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:405FD2F630A7865B439EE8C6C4796AC31ED3D6DF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174029.jpgsave_picture_174029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174029.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:CDC4AC2940EA59E0B7E08DF840BB99AC2A87562F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174031.jpgsave_picture_174031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174031.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Yassine Karoui - Dog's Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174032.jpgsave_picture_174032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174032.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Reeder 5 v.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174033.jpgsave_picture_174033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174033.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:3B25DA7884C1B3D9E8E129963A85D765ECBD63B2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174034.jpgsave_picture_174034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174034.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Boppin' B - Saxbomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174036.jpgsave_picture_174036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174036.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174037.jpgsave_picture_174037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174037.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:863739F82F57C49A2FDB11CDC8D6DD4D1D436B58
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174038.jpgsave_picture_174038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174038.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1D1731365F9C0266A82E7AED0DD7B94BBB6DF8AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174039.jpgsave_picture_174039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174039.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:7B3C425A0EB636D4DA72E3A5A7D9890A0DE5AE0E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174040.jpgsave_picture_174040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174040.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174041.jpgsave_picture_174041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174041.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:5E5172CF6D13CF96555408D2FC48BB9B63106481
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174042.jpgsave_picture_174042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174042.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2532E258EB091CD300D53C2332874ED896F58EB2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174043.jpgsave_picture_174043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174043.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174044.jpgsave_picture_174044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174044.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:1453756271935DBFB5C46F47A10FAE956F16D2BB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174045.jpgsave_picture_174045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174045.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:E8065C0285ED2CDC8F4DD05C12DC01C1B3EC6F49
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174046.jpgsave_picture_174046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174046.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:0E898BB5E73B831392E262F0656BF9BF582D2CE7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174048.jpgsave_picture_174048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174048.jpg" />
 </div>
 
 

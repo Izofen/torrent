@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8467.jpgsave_picture_8467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8467.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:159BB8011D3F904AE48842B8715C7C6474309938
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8468.jpgsave_picture_8468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8468.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CCD16817EDDF475977F4A970D86DF1683C42AA20
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8469.jpgsave_picture_8469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8469.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:434F248AAB3C33E99349E5FE5CBFF89C7658DC86
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8470.jpgsave_picture_8470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8470.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Architects - Сollection (2006 - 2025) 13CD [FLAC|Lossless|tracks + .cue] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8471.jpgsave_picture_8471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8471.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3565B411A2A9A199492BD20D27D00119666FFFDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8472.jpgsave_picture_8472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8472.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ FreeTube 0.23.6 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8473.jpgsave_picture_8473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8473.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A75DB441D2B48909B0246C84BF71D22AF45F9467
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8474.jpgsave_picture_8474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8474.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7AF5037B3FD37ED63256AE07354CB6A58E229314
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8475.jpgsave_picture_8475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8475.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:5D4A65FF0428F58FFE2877614A41A9D0B6F82C74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8476.jpgsave_picture_8476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8476.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:2440A79C44167458EDA290B7D1E0848B415D08D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8477.jpgsave_picture_8477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8477.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:67640EBAF22F227AC98EB61BF72170D6EF3E7895
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8478.jpgsave_picture_8478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8478.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8479.jpgsave_picture_8479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8479.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3AEAFFD50AEDC6FF9F0B85D5520C130B12F90096
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8480.jpgsave_picture_8480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8480.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:BBC30D12313063FD7EF01A2683A3F28FFCF59B31
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8481.jpgsave_picture_8481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8481.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A41EB30B1EE59AFBE9E2077A6401DC5BEC8F8D05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8482.jpgsave_picture_8482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8482.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0C63E915543F7F2E2EB0ED8C886AA3E79640C842
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8483.jpgsave_picture_8483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8483.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:ABFB9AEC995B374A83FD9D719CC6ACAEADA6D479
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8484.jpgsave_picture_8484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8484.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:4EEA38433775359462ED9B5F373685C36EAA9A5A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8485.jpgsave_picture_8485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8485.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AIMP 5.40.2690 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8486.jpgsave_picture_8486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8486.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Greenshot 1.3.296 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8487.jpgsave_picture_8487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8487.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5F12DBEE6A2A7C94DEEAC721026E348B3748BF36
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8488.jpgsave_picture_8488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8488.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:96A02183B6C6B117D7DD94022CF7C99770C98296
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8489.jpgsave_picture_8489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8489.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7EE13148E39A75E39145B8554A9B36C1B3C270B6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8490.jpgsave_picture_8490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8490.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8491.jpgsave_picture_8491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8491.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:8782DB2F8862F6481CEF1889C4BE56CD15F8EFA9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8492.jpgsave_picture_8492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8492.jpg" />
 </div>
 
 

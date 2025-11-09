@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236176.jpgsave_picture_236176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236176.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B295AF35A540EF3174AC81C226521B22F55D3D44
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236177.jpgsave_picture_236177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236177.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236178.jpgsave_picture_236178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236178.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ A is A - The Complete Recordings (2023) 2 x CD [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236179.jpgsave_picture_236179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236179.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:4B98B65F0AF6B338E640616CF276583B77CA4033
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236181.jpgsave_picture_236181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236181.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Golden Fingers Vol 2 (The Best Italian Piano Solos Collection) (2015) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236182.jpgsave_picture_236182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236182.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Cybervoid - Order Through Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236183.jpgsave_picture_236183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236183.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ MacCleanse 9.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236184.jpgsave_picture_236184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236184.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Browning - EoE Remixed (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236185.jpgsave_picture_236185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236185.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:469D21F916A73A86B2CA86D6FEEEE402A02F3E54
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236186.jpgsave_picture_236186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236186.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Lilies of Megiddo - No Fear of Hell (2018) 2023, 893378 Records DK [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236188.jpgsave_picture_236188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236188.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ ExpressionsinBar 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236189.jpgsave_picture_236189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236189.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ MotoGP. Этап 07. Гран-при Германии. Гонка (18.06.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236190.jpgsave_picture_236190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236190.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:514ACACCFF0A9D65068F2A5A4B9E3465BE8CB7B8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236191.jpgsave_picture_236191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236191.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Nazty Habit - Alcopocalypse (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236193.jpgsave_picture_236193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236193.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ RapidWeaver 8 v8.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236194.jpgsave_picture_236194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236194.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ DeVicious - Code Red (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236195.jpgsave_picture_236195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236195.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:55C02147E7B31B350E61402D73B04F2CCE0DB9E3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236197.jpgsave_picture_236197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236197.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Obsqure - Cloud 9 (2020) [AAC|~303 Kbps] <Psychill, Downtempo, Cinematic Electro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236198.jpgsave_picture_236198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236198.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ The Kinks - Soap Opera Tour 1975 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236199.jpgsave_picture_236199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236199.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ ImageRanger Pro Edition 1.8.0.1723 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236200.jpgsave_picture_236200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236200.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DF7709863855E96BB96B1FC8EE2BB1F1F0C60D53
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236202.jpgsave_picture_236202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236202.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Lilies of Megiddo - The Barrier of Loneliness (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236203.jpgsave_picture_236203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236203.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Total Commander 10.51 (03.09.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236204.jpgsave_picture_236204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236204.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:E2B8AFB8C3C326EF49194AF80BA1BCBB72DBC310
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236205.jpgsave_picture_236205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236205.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ System Toolkit 3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236206.jpgsave_picture_236206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236206.jpg" />
 </div>
 
 

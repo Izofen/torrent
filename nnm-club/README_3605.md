@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114105.jpgsave_picture_114105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114106.jpgsave_picture_114106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114106.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Farsot - Life Promised Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114107.jpgsave_picture_114107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114107.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mr. Smood - You'd Better Leave Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114108.jpgsave_picture_114108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114108.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114109.jpgsave_picture_114109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114109.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Omar Coleman - Strange Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114110.jpgsave_picture_114110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114110.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Believer - Dimensions (1993) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114111.jpgsave_picture_114111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114111.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Mighty Howlers - Back on Track (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114112.jpgsave_picture_114112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114112.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Boxy SVG 4.25.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114113.jpgsave_picture_114113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114113.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mama Kandy - The Whitening (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114114.jpgsave_picture_114114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114114.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cycleam - Dream Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114115.jpgsave_picture_114115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114115.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114116.jpgsave_picture_114116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114116.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AList Desktop for Mac iNTEL 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114117.jpgsave_picture_114117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114117.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ForkLift 4 v.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114118.jpgsave_picture_114118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114118.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Text Workflow 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114119.jpgsave_picture_114119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114119.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:945AB8E445037B06005758FBBA040773B2A8CB2A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpgsave_picture_114120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Tragedian - Seven Dimensions (2021) [FLAC|Lossless|image + .cue] <Melodic Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114121.jpgsave_picture_114121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114121.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114122.jpgsave_picture_114122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:86277552DA7252A3CDF184B01DBEB641DD91D92E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114123.jpgsave_picture_114123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114123.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpgsave_picture_114124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tinsley Ellis - Naked Truth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114125.jpgsave_picture_114125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114125.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Blind Illusion - Wrath Of The Gods (2022) [FLAC|Lossless|image + .cue] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114126.jpgsave_picture_114126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114126.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114127.jpgsave_picture_114127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114127.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:960F6B15D651A38E60D624919A8EBEAB181999FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114128.jpgsave_picture_114128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114128.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ric Ocasek - Fireball Zone (1991) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114129.jpgsave_picture_114129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114129.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:085C9645B948AE1AF28B864641601A1EF234F3FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114130.jpgsave_picture_114130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114130.jpg" />
 </div>
 
 

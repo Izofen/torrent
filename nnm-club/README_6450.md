@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204398.jpgsave_picture_204398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204398.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F5344DC8A349D838BE89DB783C10068B1216676
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204399.jpgsave_picture_204399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204399.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9D2F3021D77987778B8122E7A78A002C37AC86B0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204400.jpgsave_picture_204400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204400.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D665B57201C25979152CEFB9D734F2D29FD57FD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204401.jpgsave_picture_204401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204401.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C60F96BAFE31EAEEECAFA028B6EC7A1171E4563C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204402.jpgsave_picture_204402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204402.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hurricane - Reconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204403.jpgsave_picture_204403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204403.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204404.jpgsave_picture_204404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204404.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Didier Marouani & Space - 12 albums, 21 CD (1977-2002) [FLAC|Lossless|image + .c
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204405.jpgsave_picture_204405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204405.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ PhotoRoom 4.6.6 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204406.jpgsave_picture_204406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204406.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204407.jpgsave_picture_204407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204407.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ The Unity - The Hellish Joyride (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204408.jpgsave_picture_204408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204408.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7882DC5D80A7129553035F5BF1EEA1C448CDCA67
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204409.jpgsave_picture_204409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204409.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ SOS - лето загадок / S.O.S Svartskjaer / SOS: Summer of Suspense (200
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204410.jpgsave_picture_204410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204410.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6729698079C2EE73BDB5DB38A05A16FBA1A75BD3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204411.jpgsave_picture_204411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204411.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204412.jpgsave_picture_204412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204412.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Garden Planner 3.8.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204413.jpgsave_picture_204413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204413.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:EB2250F91F3004294E2B6655A5D29F42E874C90B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204414.jpgsave_picture_204414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204414.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204415.jpgsave_picture_204415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204415.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0AFD9979FC9A152E35EB129B767147F93E069D34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204416.jpgsave_picture_204416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204416.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:728B540631F3CA3019F08D1910BDCD41462327CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204417.jpgsave_picture_204417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204417.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:C07D23AA451C794F46F18A6295C707C68E75C633
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204418.jpgsave_picture_204418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204418.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9625A521D8780D6197357FD827AAEEC9A8D0B479
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204419.jpgsave_picture_204419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204419.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:10D33F77D4354C4191CEA9D35B26F591F5946526
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204420.jpgsave_picture_204420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204420.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:88A62A4767AF6EC9C52403F04F324DDBEEAC769C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204421.jpgsave_picture_204421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204421.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:22C4713996926C797B5E6EB9132CF7401BF7C9B4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204422.jpgsave_picture_204422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204422.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Manntra - Kreatura (2022) [FLAC|24/44.1|tracks|WEB-DL] <Metal, Alternative Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204423.jpgsave_picture_204423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204423.jpg" />
 </div>
 
 

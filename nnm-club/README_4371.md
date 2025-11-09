@@ -6,7 +6,7 @@ Skype 8.67.0.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136684.jpgsave_picture_136684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7DAF13F14E9B4459DF3C16D13F6D1FEDE57C0200
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136686.jpgsave_picture_136686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136686.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CFA47B5398348271BDA161E92A2C7C9928C8E161
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136687.jpgsave_picture_136687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136687.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:27159CD48FFAA84E46BF667078761207510198DA
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136688.jpgsave_picture_136688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136688.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2729FCB4B4E5E013BDA9EEA504D0DC1B8DD65377
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136689.jpgsave_picture_136689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136689.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ CoolUtils PDF Combine 8.1.0.65 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136690.jpgsave_picture_136690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136690.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F93D97635FF730AF050B23C4CCE05DAE9048D545
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136691.jpgsave_picture_136691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136691.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Auslogics Duplicate File Finder 11.1.1.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpgsave_picture_136692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Reg Organizer 9.88 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpgsave_picture_136693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Auslogics File Recovery 12.1.1.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136694.jpgsave_picture_136694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136694.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5088AEBB4089A9A7AD8BAEF9E98934F35F722BD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136695.jpgsave_picture_136695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136695.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136696.jpgsave_picture_136696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136696.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136697.jpgsave_picture_136697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136697.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:FE8AFCA683AAFA0B56FEA2869B8ED4902A1BBA26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136698.jpgsave_picture_136698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136698.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:208BBB3EB6A20A89F806C837A2EA29DF541BBEF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136700.jpgsave_picture_136700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136700.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D299149B19ABB3F89973F2651AA8B525591BF038
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136701.jpgsave_picture_136701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136701.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpgsave_picture_136702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpgsave_picture_136703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136704.jpgsave_picture_136704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136704.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:182ED5F97AEE5B79C98C219206953990E3965D5F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136705.jpgsave_picture_136705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136705.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D7E3BAFB9F61A4BA32596AA835497212B53ADED7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136706.jpgsave_picture_136706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136706.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:9ECFFE1298781F83DEBE7CB7782C3534F9D7B89A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136707.jpgsave_picture_136707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136707.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D6320B1A3EFAB576DB75029631ADDC8288822285
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136708.jpgsave_picture_136708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136708.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Chromium 141.0.7390.108 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136709.jpgsave_picture_136709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136709.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Crypt Of Kerberos - Cyclone of Insanity / Visions Beyond Darkness + Demos (2017)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpgsave_picture_136710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpgsave_picture_136711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ColorSnapper 2 v1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154264.jpgsave_picture_154264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154264.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FreeCommander XE 2021 Build 840 donor x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154265.jpgsave_picture_154265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154265.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:09ECD1BFFF65028D4D2D120E61EAD96DDF77C973
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154266.jpgsave_picture_154266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154266.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jeff Goldblum & The Mildred Snitzer Orchestra - The Capitol Studios Sessions (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154267.jpgsave_picture_154267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154267.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Filmage Editor 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154268.jpgsave_picture_154268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154268.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:71C59503C82575364DB8E8A7685F9C5B0311622D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154269.jpgsave_picture_154269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154269.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:86CD6F25DD93FD3F6F6458EE87BD70916EED594B
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154270.jpgsave_picture_154270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154270.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Autumn's Grief - Dead by the Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154271.jpgsave_picture_154271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154271.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C2ED7494842A2C47B69AFEAB640B09E653548764
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154272.jpgsave_picture_154272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154272.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6EDF94CE4DFAA4E55AEB722D17C6607BBBA728B2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154273.jpgsave_picture_154273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154273.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:BDD55CFA126A76822D146CAF24AE721885116611
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154274.jpgsave_picture_154274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154274.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154275.jpgsave_picture_154275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154275.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:D191BFA0304127844CECB4E9460C78CC977F48CD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154276.jpgsave_picture_154276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154276.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VisualDiffer 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154277.jpgsave_picture_154277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154277.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ THAL (The Heathens Are Loose) - Swarm the Mandala (2022) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154278.jpgsave_picture_154278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154278.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154279.jpgsave_picture_154279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154279.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154280.jpgsave_picture_154280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154280.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:2666E00D3445EE78C13CE4BBAA66A3988FC00A41
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154281.jpgsave_picture_154281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154281.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Pixelmator Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154282.jpgsave_picture_154282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154282.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Flip PDF Professional 2.4.9.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154283.jpgsave_picture_154283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154283.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Carved - Ares (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154284.jpgsave_picture_154284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154284.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:35ECDA2D898C588EDCA51A4B2A7A8825B19C99AB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154285.jpgsave_picture_154285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154285.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Topaz Video AI 4.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154286.jpgsave_picture_154286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154286.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Erroll Garner - 1951-1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154287.jpgsave_picture_154287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154287.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Borealis - Illusions (Orchestra Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154288.jpgsave_picture_154288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154288.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ AIMP 4.12 Build 1877 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154289.jpgsave_picture_154289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154289.jpg" />
 </div>
 
 

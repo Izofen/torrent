@@ -6,7 +6,7 @@ Oasis Mission: Colony Sim (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24415.jpgsave_picture_24415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24416.jpgsave_picture_24416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24416.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24417.jpgsave_picture_24417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24417.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:88EA4DFC037CE75DB65CFD1F7654E87606B1750B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24418.jpgsave_picture_24418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24418.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:88EA4DFC037CE75DB65CFD1F7654E87606B1750B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24419.jpgsave_picture_24419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24420.jpgsave_picture_24420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24420.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24421.jpgsave_picture_24421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24421.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24422.jpgsave_picture_24422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24422.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24423.jpgsave_picture_24423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24423.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24424.jpgsave_picture_24424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24424.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Clip Studio Paint EX 4.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24425.jpgsave_picture_24425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24425.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24426.jpgsave_picture_24426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24426.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24427.jpgsave_picture_24427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24427.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:02CD9DD1A271AD65631A9CA00476C487F554C888
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24428.jpgsave_picture_24428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24428.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hard Disk Sentinel PRO 6.30 Build 13191 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24429.jpgsave_picture_24429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24429.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:F3A1F0E9AFD70C366B321F07BB8598EC8C26B207
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24430.jpgsave_picture_24430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24430.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:71DFA47DE6F8B862B9A062977FCDF7052430C176
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24431.jpgsave_picture_24431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24431.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:B27997852730BEA0ED7A80C96C3AF6CA00540796
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24432.jpgsave_picture_24432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24432.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24433.jpgsave_picture_24433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24433.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24434.jpgsave_picture_24434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24434.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:1BCA6AD6AD9EBCB1A007C540A82F09BC23F10723
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24435.jpgsave_picture_24435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24435.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ S Rank Monster no Behemoth Dakedo, Neko to Machigawarete Elf Musume no Pet to Sh
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24436.jpgsave_picture_24436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24436.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:AA5049899833FC34D5B284A3183C332D5BFE6797
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24437.jpgsave_picture_24437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24437.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:227F36690B443A1A33E9442B378C46CDAA26B252
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24438.jpgsave_picture_24438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24438.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:6311CBEF00928658562FD0F8F437AA0868AA9C41
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24439.jpgsave_picture_24439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24439.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24440.jpgsave_picture_24440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24440.jpg" />
 </div>
 
 

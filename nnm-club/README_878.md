@@ -6,7 +6,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23167.jpgsave_picture_23167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23167.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+556/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23168.jpgsave_picture_23168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23168.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23169.jpgsave_picture_23169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23169.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23170.jpgsave_picture_23170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23170.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OBS Studio 31.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23171.jpgsave_picture_23171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23171.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Jinn'sLiveUSB 11.5.1 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авт�
 >>31
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23172.jpgsave_picture_23172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23172.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) License GOG [Definitive 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23173.jpgsave_picture_23173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23173.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5A08359E7BC84C66BF07FD93A2F9018AA6F7396F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23174.jpgsave_picture_23174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23174.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.12962.0/dlc) Repack Deceptico
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23175.jpgsave_picture_23175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23175.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23176.jpgsave_picture_23176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23176.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:57A646FD95C892436CFDF64F230C206F978F8B73
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23177.jpgsave_picture_23177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23177.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:8D9D2DB7FFF405F54E9BDBA88CFAC2F73ABC6C37
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23178.jpgsave_picture_23178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23178.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:81773682DE8AD816FFDE56CB3C6F7210F8B8C5DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23179.jpgsave_picture_23179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23179.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:157B943D8E2CB261AA8976B9324675DDB12017FC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23180.jpgsave_picture_23180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23180.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1151A557188B6F308F2B4ED50B8C08CE1C7F04E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23181.jpgsave_picture_23181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23181.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A035A94FF1C14DBDE20E11E29EBD9D2DBCE97767
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23182.jpgsave_picture_23182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23182.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23183.jpgsave_picture_23183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23183.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Adobe Photoshop 2025 26.5.0.16 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23184.jpgsave_picture_23184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23184.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Adobe Illustrator 2025 29.4.0.152 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23185.jpgsave_picture_23185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23185.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:BD526388AD5587917BC7263AE3DEB4798F2F4ADA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23186.jpgsave_picture_23186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23186.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:8B90EE69885DE6B394A764D98259C88CDB31724A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23187.jpgsave_picture_23187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23187.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B5CD2279521A450203EA7E63B8CE0991876C99A0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23188.jpgsave_picture_23188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23188.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23189.jpgsave_picture_23189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23189.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:907F2AA78F84959EF7FE4430F83EB16DBC319F32
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23190.jpgsave_picture_23190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23190.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Activation Program 1.08 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23191.jpgsave_picture_23191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23191.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D8DE69441322BC454C6BE85BBD6770464CA0092D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23192.jpgsave_picture_23192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23192.jpg" />
 </div>
 
 

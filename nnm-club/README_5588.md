@@ -6,7 +6,7 @@ DxO PureRAW 3.6.1 build 25 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172277.jpgsave_picture_172277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172277.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:71E0071EF227246FDF444E1FBF792957BB36D1CC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172278.jpgsave_picture_172278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172278.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Sante DICOM Viewer Pro 14.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172279.jpgsave_picture_172279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172279.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B166B079F6379CB92DA930E5F900A4E9332BF639
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172280.jpgsave_picture_172280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172280.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Malwarebytes Windows Firewall Control 6.9.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172281.jpgsave_picture_172281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172281.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6CB508D2CC8BE9637BA24402B074F2F7311403C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172282.jpgsave_picture_172282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172282.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BFD18AAB1DF3BBF3949C7E6C648B6C5B7D357679
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172283.jpgsave_picture_172283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172283.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Cosmic Gate - Mosaiik Chapter One and Two (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172284.jpgsave_picture_172284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172284.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WinScan2PDF 8.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172285.jpgsave_picture_172285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172285.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172286.jpgsave_picture_172286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172286.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Loopback 2.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172287.jpgsave_picture_172287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172287.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:A0872C3692E744A69B22ECD8E4DC98B214B73E6E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172288.jpgsave_picture_172288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172288.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ FotoJet Designer 1.2.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172289.jpgsave_picture_172289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172289.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Wondershare PDFelement 10.1.2.2508 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172290.jpgsave_picture_172290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172290.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Java SE Development Kit 21.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172291.jpgsave_picture_172291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172291.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Chemical Sweet Kid - Kiss The Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172292.jpgsave_picture_172292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172292.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Ungoogled Chromium 118.0.5993.70-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172293.jpgsave_picture_172293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172293.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2942 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172294.jpgsave_picture_172294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172294.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9F0B2C51B879FDDFD620B41ACF8DF1D6C5E2A4C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172295.jpgsave_picture_172295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172295.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WiFi Explorer 3 Pro 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172296.jpgsave_picture_172296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172296.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ FotoJet Photo Editor 1.1.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172297.jpgsave_picture_172297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172297.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Music Collection 3.6.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172298.jpgsave_picture_172298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172298.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0A3493094FBBD838F7F99FDFC53C7562CD47F75B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172299.jpgsave_picture_172299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172299.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:8ACD8E3E2067101E66AB09611B6D2D980AB81F70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172300.jpgsave_picture_172300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172300.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Sante DICOM Editor 10.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172301.jpgsave_picture_172301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172301.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:8C93F6FA6639B016DE7B3DEB5DC62A43B6CDE7CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172302.jpgsave_picture_172302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172302.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144926.jpgsave_picture_144926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144926.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:1AF44CC299C93A5ED05180F45D3D3EBBE473ECD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144927.jpgsave_picture_144927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144927.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:237584C1F83C659A6D1880F08EAE6A2CCB73B170
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144928.jpgsave_picture_144928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144928.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:237584C1F83C659A6D1880F08EAE6A2CCB73B170
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144929.jpgsave_picture_144929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144929.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Зимний драйв. Авто дискотека. Версия 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144930.jpgsave_picture_144930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144930.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:86F9D737E8694D40DDC0D6E748F143BEC41AF31D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144931.jpgsave_picture_144931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144931.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:068811A8CB96C5D20C9CB145BB4F534553DD5607
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144932.jpgsave_picture_144932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144932.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ BELOFF 2020.12 Medium
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144933.jpgsave_picture_144933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144933.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:1FDBE66A5D34C82DC210A508EFF0DD54D454D571
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144934.jpgsave_picture_144934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144934.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Black Space Riders - Refugeeum (2015) [MP3|320 Kbps] <Progressive, Psychedelic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144935.jpgsave_picture_144935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144935.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:CE78DB95F84697ECD416DFD9F7E1F9352BB3C71B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144936.jpgsave_picture_144936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144936.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Orbita Solaris - Sacred Sequence (2013) [FLAC|Lossless|WEB-DL]<Psybient, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144937.jpgsave_picture_144937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144937.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144939.jpgsave_picture_144939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144939.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Slimjet 25.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144940.jpgsave_picture_144940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144940.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Infix PDF Editor 5.26  Professional [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144941.jpgsave_picture_144941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144941.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ InfixPro PDF Editor Pro - новый текстовый процессор дл�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144942.jpgsave_picture_144942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144942.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ TG Pro (Temperature Gauge Pro) 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144943.jpgsave_picture_144943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144943.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:6DAD3B452722D832494BADD926B8E2EBE54AF123
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144945.jpgsave_picture_144945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144945.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Зимний топ 100. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144946.jpgsave_picture_144946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144946.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:829BE64261C0760C530C50D1D900F44D1D926F37
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144947.jpgsave_picture_144947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144947.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144948.jpgsave_picture_144948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144948.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Helloluxx.com | MILG11. Hard Surface Modelling Tactics for Cinema 4D (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144950.jpgsave_picture_144950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144950.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:93FCBE2D7E4438CC45375E9264960D368B9A3045
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144951.jpgsave_picture_144951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144951.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:2EEE24CD08875D28A67211A455434A6F6A4DBB8D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144952.jpgsave_picture_144952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144952.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:0401642DE0EC40C20626B1FFD688F0A142370EF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144953.jpgsave_picture_144953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144953.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:889F13A6095B5F2E67E674B5198C98CEBB477E2B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144954.jpgsave_picture_144954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144954.jpg" />
 </div>
 
 

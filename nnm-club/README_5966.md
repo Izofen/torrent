@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187807.jpgsave_picture_187807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187807.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Somewhere In Nowhere - Rise of the Lost Souls (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187808.jpgsave_picture_187808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187808.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Opera GX 92.0.4561.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187809.jpgsave_picture_187809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187809.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:3ACE31A7FB35BD4714F614AC4179B69691BBF410
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187810.jpgsave_picture_187810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187810.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187811.jpgsave_picture_187811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187811.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187812.jpgsave_picture_187812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187812.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187813.jpgsave_picture_187813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187813.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187814.jpgsave_picture_187814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187814.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ M-19 - Sic Semper Tyrannis (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187815.jpgsave_picture_187815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187815.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187816.jpgsave_picture_187816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187816.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187817.jpgsave_picture_187817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187817.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Witchcraft - V (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Gothic Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpgsave_picture_187818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shedfromthebody - 3 Albums (2020-2022) [MP3|320 Kbps] <Doomgaze, Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187819.jpgsave_picture_187819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187819.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Joey Grimaldi - Harmonic Distortion (2022) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187821.jpgsave_picture_187821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187821.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187822.jpgsave_picture_187822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187822.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Crypt Dweller - 4 Albums (2020-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187823.jpgsave_picture_187823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187823.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mammoth WVH - Mammoth WVH (2021) Deluxe Edition, 2022, EX1 Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187825.jpgsave_picture_187825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187825.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ TwinBoot (Реинкарнация) BIOS/UEFI 17.09.2023 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187826.jpgsave_picture_187826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187826.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Zack Avicenne - Time Is Not A Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187827.jpgsave_picture_187827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187827.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:DB0B2D43E18BA7CC20ECB9007BDD8FD80FA8EC9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187828.jpgsave_picture_187828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187828.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:64D66E9293CBB297A84C54BBD403907B4A433544
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187829.jpgsave_picture_187829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187829.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:08B8D47A4FE9B3BBCE46A3B707419ACD811C5502
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187830.jpgsave_picture_187830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187830.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Labor Intvs - Sunken Crucible (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187831.jpgsave_picture_187831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187831.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fateful Finality - Emperor Of The Weak (2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187833.jpgsave_picture_187833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187833.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:1D438E88A29ABC0D711278E12AD8B2E4CDC44996
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187835.jpgsave_picture_187835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187835.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:89BAAEC0A3CBEC6A1AF3F7DD83ED3BDCEC0B7D21
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187837.jpgsave_picture_187837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187837.jpg" />
 </div>
 
 

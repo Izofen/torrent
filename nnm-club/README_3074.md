@@ -6,7 +6,7 @@ VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98135.jpgsave_picture_98135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98135.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98137.jpgsave_picture_98137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98137.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98138.jpgsave_picture_98138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98138.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98139.jpgsave_picture_98139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98139.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98140.jpgsave_picture_98140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98140.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|25
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98141.jpgsave_picture_98141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98141.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98143.jpgsave_picture_98143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98143.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98144.jpgsave_picture_98144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98144.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98145.jpgsave_picture_98145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98145.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98149.jpgsave_picture_98149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98149.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98150.jpgsave_picture_98150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98150.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:FB17E265E07F8049F41264838B883CABCC7ED3F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98152.jpgsave_picture_98152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98152.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98154.jpgsave_picture_98154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98154.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98155.jpgsave_picture_98155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98155.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98156.jpgsave_picture_98156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98156.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98157.jpgsave_picture_98157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98157.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Клубные Новинки Vol.57 from AGR (2012)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98158.jpgsave_picture_98158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98158.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98160.jpgsave_picture_98160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98160.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:60AEAB2A494ECB1541157A9849FAB8BD81DFB5CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98161.jpgsave_picture_98161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98161.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98162.jpgsave_picture_98162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98162.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98164.jpgsave_picture_98164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98164.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98166.jpgsave_picture_98166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98166.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ DJ Kocmoc - Dutch compilation vol.1 (14.03.2012) [MP3|320 кб/с]<Dutch House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98167.jpgsave_picture_98167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98167.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98168.jpgsave_picture_98168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98168.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ magnet:?xt=urn:btih:5E505B4578C129DF158FAAB0D021163BA02D22FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98169.jpgsave_picture_98169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98169.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98170.jpgsave_picture_98170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98170.jpg" />
 </div>
 
 

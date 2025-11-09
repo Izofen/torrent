@@ -6,7 +6,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203548.jpgsave_picture_203548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203548.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 25.01.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203549.jpgsave_picture_203549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203549.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9BCFFC33EAF437287031C63ECCD9B8115782E593
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203550.jpgsave_picture_203550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203550.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Data Guardian 7 v.7.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203551.jpgsave_picture_203551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203551.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203552.jpgsave_picture_203552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203552.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BDD54163FA246F89A9B2DFF0177C4856CB5E4AD8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203553.jpgsave_picture_203553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203553.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203554.jpgsave_picture_203554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203554.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Squeezer 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203555.jpgsave_picture_203555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203555.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Soulsad - Two Funerals (2018) EP [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203556.jpgsave_picture_203556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203556.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3F2C1C9632BC26F7C3516C515F40D24B4A82AD86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203557.jpgsave_picture_203557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203557.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:25246424A7768D9B9E240BE78190C16656A5D1A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203558.jpgsave_picture_203558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203558.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Allavsoft Video Downloader Converter 3.25.8.8640  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203559.jpgsave_picture_203559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203559.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203560.jpgsave_picture_203560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203560.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:14F0196E8941FD965C8D2B38EB128B80BE5B82A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203561.jpgsave_picture_203561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203561.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpgsave_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Fun Mode - Сверхновая (2023) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203563.jpgsave_picture_203563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203563.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:321899E7237C1F641B1841BB8CB3F02217300AB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203564.jpgsave_picture_203564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203564.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:91AF5AA808F7CC997E38790C305DBE475F8DD5E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203565.jpgsave_picture_203565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203565.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:12443A82BCBC5D5F1DCDF3669E0BA787CAE768C9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203566.jpgsave_picture_203566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203566.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:1F85529E2CF7FD5D253872638242C778F4E73209
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203567.jpgsave_picture_203567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203567.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AeroAdmin 4.9 сборка 3612 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203568.jpgsave_picture_203568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203568.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beamer 4 v.4.1.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203569.jpgsave_picture_203569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203569.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:432B35F2F5E518F7ECDAF02AE72B2BDBCD225E7E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203570.jpgsave_picture_203570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203570.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2C3CC82E9C91E68F9C93F466774129C85DCC650C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203571.jpgsave_picture_203571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203571.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:66C6FEB15A28C6C8D72285B59F93BA6CFB8BE104
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203572.jpgsave_picture_203572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203572.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:7BCBA8F068BFF39FB5E8118F31B3EC3E4C89E369
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203573.jpgsave_picture_203573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203573.jpg" />
 </div>
 
 

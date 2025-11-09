@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233626.jpgsave_picture_233626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233626.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E5B3A9B53A78287D9A551E213BA63C02FE0D4A04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233627.jpgsave_picture_233627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233627.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4FED9DE81CD9348889FDFE3F1CA937C6044E96E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233628.jpgsave_picture_233628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233628.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Samantha Fish & Jesse Dayton - Death Wish Blues (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233629.jpgsave_picture_233629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233629.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Oceanlord - Kingdom Cold (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233630.jpgsave_picture_233630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233630.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Cardhop 2.0.7 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233631.jpgsave_picture_233631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233631.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:514A28A4EA8F773DDB324238CB3E1E53383902E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233632.jpgsave_picture_233632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233632.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ NIUBI Partition Editor 9.6.3 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233633.jpgsave_picture_233633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233633.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:8AF16DDED47D9B66438C4823CB891FBB4216EDAE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233634.jpgsave_picture_233634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233634.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ GeoZilla v6.36.12 [Ru/Multi] – найти мой телефон. Семейн�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233635.jpgsave_picture_233635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233635.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ EMIN - За минуту до... (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233636.jpgsave_picture_233636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233636.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Duplicate Photos Fixer Pro 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233637.jpgsave_picture_233637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233637.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VideoSolo Video Converter Ultimate 2.3.12 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233639.jpgsave_picture_233639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233639.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Find Any File (FAF) 2.3.2 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233640.jpgsave_picture_233640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233640.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ TweakNow WinSecret Plus! 4.9.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233641.jpgsave_picture_233641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233641.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:6C0B088C47C618E70D3A4D8B60AE48EB4734809C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233642.jpgsave_picture_233642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233642.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CD556081B64481DFBE6AFAA1E956B51EA79A9C6B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233643.jpgsave_picture_233643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233643.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Kenny Dorham - Trompeta Toccata (1964) 1995, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233644.jpgsave_picture_233644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233644.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Emurasoft EmEditor Professional 22.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233645.jpgsave_picture_233645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233645.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ WonderPen 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233646.jpgsave_picture_233646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233646.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:127D7AAE36FE1CF3778C57A45817071B4A0D312C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233648.jpgsave_picture_233648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233648.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233649.jpgsave_picture_233649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233649.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ghost Buster Pro 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233650.jpgsave_picture_233650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233650.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BatchOutput PDF 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233651.jpgsave_picture_233651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233651.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TweakNow WinSecret Plus! 4.7.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233652.jpgsave_picture_233652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233652.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PullTube 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233653.jpgsave_picture_233653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233653.jpg" />
 </div>
 
 

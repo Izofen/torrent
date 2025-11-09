@@ -6,7 +6,7 @@ The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108631.jpgsave_picture_108631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108631.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108632.jpgsave_picture_108632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108632.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108633.jpgsave_picture_108633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108633.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:032B4698B1131A0F124E0EA7B40E182A776C0023
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108634.jpgsave_picture_108634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108634.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108635.jpgsave_picture_108635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108635.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Eguana - Future Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient | 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108636.jpgsave_picture_108636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108636.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Black Sabbath - Tyr (1990) Remaster, 2024, BMG Rights Management [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108637.jpgsave_picture_108637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108637.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:82DBE3AEA77B820138E67D67C27529A5A89763B0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108638.jpgsave_picture_108638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108638.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:15F605AF8C3B26D0333E4DACB6D7CDFB0AEE368B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108639.jpgsave_picture_108639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108639.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108640.jpgsave_picture_108640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108640.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108641.jpgsave_picture_108641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108641.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:834A949E492440E99CD840D82B0AFD63501E38F0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108642.jpgsave_picture_108642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108642.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108643.jpgsave_picture_108643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108643.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Black Sabbath - Forbidden (1995) Tony Iommi Remix, 2024, BMG Rights Management (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108644.jpgsave_picture_108644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108644.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Chris Avantgarde - Tomorrowland Friendship Mix (2024-05-30) [MP3|320 Kbps] <Melo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108645.jpgsave_picture_108645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108645.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BEDE3E08CDC1E0FBC671B94CE410F1792D7B79C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108646.jpgsave_picture_108646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108646.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108647.jpgsave_picture_108647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108648.jpgsave_picture_108648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108648.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:354B8B2CDC9BA01B3082DF0FBA65998D9ADD4044
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108649.jpgsave_picture_108649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108649.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:BF7307FD13AF7F2729EAB404ADF689178EB13CBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108650.jpgsave_picture_108650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108650.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ D'Ercole - Near Death Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108651.jpgsave_picture_108651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108651.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Witherfall - Sounds of the Forgotten (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108652.jpgsave_picture_108652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108652.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tormentor Bestial - Eternal Nightmare (2024) [MP3|320 Kbps] <Thrash Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108653.jpgsave_picture_108653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108653.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Suffersystem - Disintegration Of The Individual (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108654.jpgsave_picture_108654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108654.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:A3E2BBCDB87981A1DF3A2720F0893051FE9174BA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108655.jpgsave_picture_108655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108655.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:B0091B9892A00F6FE8A25669ED19090A22383DD0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108656.jpgsave_picture_108656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108656.jpg" />
 </div>
 
 

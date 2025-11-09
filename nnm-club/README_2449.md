@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64041.jpgsave_picture_64041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64041.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:13D54DD034D65D104497D369A8DB7357FE9D4F41
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64042.jpgsave_picture_64042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64042.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5283DFFCA8D8E6038B0EDB64F4AD175733EE104D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64043.jpgsave_picture_64043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64043.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EF6458292C3F02F09646517C621B6FC5377BB0C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64044.jpgsave_picture_64044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64044.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3B7BB62961C85D8EFA7A5DE94E6A726E2236162C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64045.jpgsave_picture_64045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64045.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:968AFC680CB614BCBF899A8A65FB6EFC68BA88F2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64046.jpgsave_picture_64046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64046.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:60E7DFD333EC2EC30F10E4BC327BDC96A9313236
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64051.jpgsave_picture_64051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64051.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EF3F490912A434D0623EBC69A10ABB79C4952683
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64055.jpgsave_picture_64055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64055.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:08D757BFA3FDEBDB0E5510DCFD5FCDB749084C06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64078.jpgsave_picture_64078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64078.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F768CD3051C569F3F41CC87ECD6CF069833CFAE5
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64084.jpgsave_picture_64084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64084.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8A3EE21A168C7CC30EACC7B787836DF6E22237A0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64090.jpgsave_picture_64090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64090.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8A3EE21A168C7CC30EACC7B787836DF6E22237A0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64093.jpgsave_picture_64093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64093.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8A3EE21A168C7CC30EACC7B787836DF6E22237A0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64098.jpgsave_picture_64098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64098.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8A3EE21A168C7CC30EACC7B787836DF6E22237A0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64101.jpgsave_picture_64101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64101.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WebSite X5 Evolution 9.0.6.1775 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64119.jpgsave_picture_64119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64119.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WebSite X5 Evolution 9 является наиболее гибким и зак�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64123.jpgsave_picture_64123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64123.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WebSite X5 Evolution 9 является наиболее гибким и зак�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64125.jpgsave_picture_64125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64125.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ WebSite X5 Evolution 9 является наиболее гибким и зак�
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64134.jpgsave_picture_64134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64134.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ WebSite X5 Evolution 9 является наиболее гибким и зак�
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64135.jpgsave_picture_64135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64135.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:9EF8F3B2F5B32A476C1DB14AACC3A5485E682918
 >>Новости Клуба
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64140.jpgsave_picture_64140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64140.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9EF8F3B2F5B32A476C1DB14AACC3A5485E682918
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64142.jpgsave_picture_64142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64142.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:38F36EACCC9FA21478A94781C6072B8735D22DA8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64147.jpgsave_picture_64147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64147.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Wolfenstein [Ru/En] (RePack/1.2) 2009 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64150.jpgsave_picture_64150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64150.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wolfenstein [Ru/En] (RePack/1.2) 2009 | R.G. UniGamers
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64155.jpgsave_picture_64155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64155.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wolfenstein [Ru/En] (RePack/1.2) 2009 | R.G. UniGamers
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64164.jpgsave_picture_64164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64164.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:16E1DC43FE7A3D33A6117667213F7E3814A973C5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64166.jpgsave_picture_64166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64166.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69211.jpgsave_picture_69211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69211.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpgsave_picture_69234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Halloween - Psy-Ko (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69236.jpgsave_picture_69236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69236.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69254.jpgsave_picture_69254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69254.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69255.jpgsave_picture_69255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69275.jpgsave_picture_69275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69275.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Daniel Simmons - Delta (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69290.jpgsave_picture_69290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69290.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Black Spiders - Cvrses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69292.jpgsave_picture_69292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69292.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tiktaalika (Charlie Griffiths) - Gods of Pangaea (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69295.jpgsave_picture_69295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69295.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Wise - Wisdom Lost (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69298.jpgsave_picture_69298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69298.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Motorizer - Lemmyversary Markthalle Hamburg '23 (Live at Markthalle Hamburg '23)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69299.jpgsave_picture_69299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69299.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bluesadelix - Neptune Beach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69303.jpgsave_picture_69303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69303.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nomy - House of Diane (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69305.jpgsave_picture_69305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69305.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Temperance - From Hermitage To Europe (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69307.jpgsave_picture_69307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69307.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Steve Postell - Walking Through These Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69308.jpgsave_picture_69308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69308.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shawn Pittman - My Journey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69309.jpgsave_picture_69309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69309.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Goo Goo Dolls - A Boy Named Goo (1995) 30th Anniversary Deluxe Edition, 2025, Wa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69310.jpgsave_picture_69310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69310.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69312.jpgsave_picture_69312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69312.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ D'OR - Antiheroes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69313.jpgsave_picture_69313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69313.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Pvris - White Noise (2014) 10 Year Anniversary Edition, 2025, Rise Records[FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69314.jpgsave_picture_69314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69314.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Overdrivers - Glory or Nothing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69316.jpgsave_picture_69316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69316.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69319.jpgsave_picture_69319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69319.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69321.jpgsave_picture_69321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69321.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ ZZ Ward - Liberation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69322.jpgsave_picture_69322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69322.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ David Rose - My Only One (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69328.jpgsave_picture_69328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69328.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69331.jpgsave_picture_69331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69331.jpg" />
 </div>
 
 

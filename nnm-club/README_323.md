@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8493.jpgsave_picture_8493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:15758F2789B28F8565D7C18C6CE96C3661FCD615
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8494.jpgsave_picture_8494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:727DBB2F0445839442044ECA9C24A71A32ECCF56
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8495.jpgsave_picture_8495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8495.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:498B38AB4341EF8A4DC82926EACA3DD23B44BAA3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8497.jpgsave_picture_8497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8497.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8AC38484B16B3649AE95C573B43EA266E605A187
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8498.jpgsave_picture_8498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8498.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8499.jpgsave_picture_8499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8499.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FDA одобрило VIZZ —  капли, которые за 30 минут в�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8500.jpgsave_picture_8500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8500.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8501.jpgsave_picture_8501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8501.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:62E9263A646BD99B7E58603562E2762528BDD621
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8502.jpgsave_picture_8502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8502.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8AF0501B7BB09B54F6CD553099685FAB85D49FF1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8503.jpgsave_picture_8503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8503.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (2.0.1G) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8504.jpgsave_picture_8504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8504.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E8528C3A25CD60970C917CDDA5A7DE894D0CD9AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8506.jpgsave_picture_8506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8506.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpgsave_picture_8507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8508.jpgsave_picture_8508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8508.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8509.jpgsave_picture_8509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8509.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:3512A849A0C3F3019CC0B8C139868B10C06684B7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8510.jpgsave_picture_8510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8510.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:0A94B3F4AF8FF3738799221031ED89FD97F8BCD2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8511.jpgsave_picture_8511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8511.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:B78A3B2F2E2953ED57076F8A10ED90703D1898F2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8512.jpgsave_picture_8512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8512.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9FC0F6AA4A876BAA15C78FCE77A258362890122B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8513.jpgsave_picture_8513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8513.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:53860055393A86BCCB2AC6865FC50D22FA43006F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8514.jpgsave_picture_8514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8514.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Deep House Relaxed #2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8515.jpgsave_picture_8515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8515.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Paul Rodgers - Voice Of Rock - Compilation (1969-2024) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8516.jpgsave_picture_8516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8516.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8517.jpgsave_picture_8517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8517.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8518.jpgsave_picture_8518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8518.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:084E1D7385ECDC3224E92FCEE6F07590A5324E42
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8519.jpgsave_picture_8519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8519.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - 100% Ibiza (The Deep-House Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8520.jpgsave_picture_8520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8520.jpg" />
 </div>
 
 

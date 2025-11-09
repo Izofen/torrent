@@ -6,7 +6,7 @@ Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46013.jpgsave_picture_46013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46013.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Funk Rock_Sexy Groovy Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46068.jpgsave_picture_46068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46068.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Saga - The Works (1991) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46069.jpgsave_picture_46069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46069.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nocturnal Sea - Among the shadows we tell no lies (2024) [MP3|320 Kbps] <Gothic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46072.jpgsave_picture_46072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46072.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Breakup Rock, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46074.jpgsave_picture_46074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46074.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Holycide - Fist To Face (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46079.jpgsave_picture_46079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46079.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vltimas - Epic (2024) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46083.jpgsave_picture_46083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46083.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Framing Skeletons - Misery Prelude: The Prince Eternal (2024) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46084.jpgsave_picture_46084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46084.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46090.jpgsave_picture_46090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46090.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tokyo Blade - Night of the Blade ...The Night Before (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46100.jpgsave_picture_46100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46100.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ZZ Top - Fandango! (1975) Reissue, Remastered, 2006, Warner Bros. Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46104.jpgsave_picture_46104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46104.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Metalheads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46168.jpgsave_picture_46168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46168.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46169.jpgsave_picture_46169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46169.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Asenblut - Entfesselt (2024) [FLAC|Lossless|image + .cue] <Melodic Viking Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46172.jpgsave_picture_46172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46172.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Shark Island - Memento Mori Live On The Strip (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46177.jpgsave_picture_46177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46177.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ EchoVerse - Whispers Between Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46180.jpgsave_picture_46180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46180.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hereafter - All Is As It Should Be (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46184.jpgsave_picture_46184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46184.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dogs D'Amour - Greatest Hits (2017) [MP3|320 Kbps] <Hard Rock, Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46202.jpgsave_picture_46202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46202.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46205.jpgsave_picture_46205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46205.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:AB883D2B58A4C89DAD3D507EAAEEA20D0215B383
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46268.jpgsave_picture_46268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46268.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ten Years After - Woodstock 1969 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46278.jpgsave_picture_46278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46278.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|tracks + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46281.jpgsave_picture_46281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46281.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Diamantide - Diamantide (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46285.jpgsave_picture_46285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46285.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46289.jpgsave_picture_46289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46289.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Act Of Creation - Moments To Remain (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46290.jpgsave_picture_46290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46290.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:6D508C764B6AC0D1F2D8585F6246DF0FE13CAE01
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46297.jpgsave_picture_46297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46297.jpg" />
 </div>
 
 

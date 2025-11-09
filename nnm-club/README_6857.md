@@ -6,7 +6,7 @@ Aurore - Sparks (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235558.jpgsave_picture_235558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235558.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seven / 7 Минут Упражнение v9.15.08 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235559.jpgsave_picture_235559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235559.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D701401E3DBFDCB76491DE5848D9CDAD4307CDA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235560.jpgsave_picture_235560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235560.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:22E40F9D5B927BC0688358E5C021D4ED640442BC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpgsave_picture_235561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PFM (Premiata Forneria Marconi) - The Event Live in Lugano (2023) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235562.jpgsave_picture_235562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235562.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Stormlord - At the Gates of Utopia (2001) [FLAC|Lossless|image + .cue] <Extreme 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235563.jpgsave_picture_235563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235563.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1265B427B12F057CBE0C881D9DB3499BF7DC60AE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235564.jpgsave_picture_235564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235564.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235565.jpgsave_picture_235565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235565.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Aephanemer - Prokopton (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235566.jpgsave_picture_235566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235566.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ FastStone Capture 10.0 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235567.jpgsave_picture_235567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235567.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:DE0FE774F8DF534417DB09AEEBD86F97729A6A30
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235568.jpgsave_picture_235568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235568.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Miss Fortune - Gravity's Rainbow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235569.jpgsave_picture_235569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235569.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Resolutionator 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235570.jpgsave_picture_235570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235570.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Take It to Church, Vol. 4 (2021) [AAC|~347 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235571.jpgsave_picture_235571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235571.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F86B89E866A94809E36A1107EA4F84A3802DC295
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235572.jpgsave_picture_235572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235572.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Titanic Games, Jaxon | RPG Tutorial Series (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235573.jpgsave_picture_235573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235573.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Nightmares - The Dark Hold (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235574.jpgsave_picture_235574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235574.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Animal House - Living in Black and White (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235575.jpgsave_picture_235575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235575.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Audition 2022 22.4.0.49 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235576.jpgsave_picture_235576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235576.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Mike LeDonne & The Groover Quartet - AwwlRIGHT! (2015) Savant [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235577.jpgsave_picture_235577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235577.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Terence Blanchard - Absence (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235578.jpgsave_picture_235578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235578.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Glarysoft Malware Hunter PRO 1.166.0.784 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235579.jpgsave_picture_235579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235579.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235580.jpgsave_picture_235580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235580.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Zulu - A New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235581.jpgsave_picture_235581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235581.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Molly & The Heymakers - Live Wires (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235582.jpgsave_picture_235582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235582.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Disk Space Analyzer Pro 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235583.jpgsave_picture_235583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235583.jpg" />
 </div>
 
 

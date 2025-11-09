@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118556.jpgsave_picture_118556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ uDock 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118557.jpgsave_picture_118557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DxO ViewPoint 4 for Mac v.4.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118558.jpgsave_picture_118558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118558.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Syncovery for Mac 10.11.3 ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118559.jpgsave_picture_118559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118559.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Demon Seizure - Murder Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118560.jpgsave_picture_118560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118560.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Smart Converter Pro 3 v.3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118561.jpgsave_picture_118561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118561.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Keep It 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118562.jpgsave_picture_118562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118562.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Notebooks – Write and Organize 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118563.jpgsave_picture_118563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118563.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Blocs 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118564.jpgsave_picture_118564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118564.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9A50BAFC1502757B22A239807EB45456A05213D4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118565.jpgsave_picture_118565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118565.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:843608C2E9BEF16D895D40360FD1E2FDE3E5121F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118566.jpgsave_picture_118566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118566.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:263C338E78F3B56EB185354D03BB2A9B805BF427
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118567.jpgsave_picture_118567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118567.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118568.jpgsave_picture_118568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118568.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Symphony Of Sweden - Haunted (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118569.jpgsave_picture_118569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118569.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Capture One 23 Enterprise 16.3.5.10 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118570.jpgsave_picture_118570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118570.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1E3BBF5291EF2E1E07DECBA0DF3585F5BD44B68B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118571.jpgsave_picture_118571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118571.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Last In Time - Too Late (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118572.jpgsave_picture_118572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118572.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118573.jpgsave_picture_118573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118573.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118574.jpgsave_picture_118574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118574.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F1E78F20A51F1EB79B767C09B91E41A58035F5D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118575.jpgsave_picture_118575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118575.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:09848C200A17EFCE96F89A79E172E6D7A7DDB142
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118576.jpgsave_picture_118576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118576.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:09848C200A17EFCE96F89A79E172E6D7A7DDB142
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118577.jpgsave_picture_118577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118577.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:9A1ECC953EC942F01D343A3B14AC6A4B0FB4EE17
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118578.jpgsave_picture_118578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118578.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:783ABF823CDC27A375D1F2B09AFE81BB0D7F2115
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118579.jpgsave_picture_118579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118579.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ In Vain - Back To Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118580.jpgsave_picture_118580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118580.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Movie Thumbnails Maker 4.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118581.jpgsave_picture_118581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118581.jpg" />
 </div>
 
 

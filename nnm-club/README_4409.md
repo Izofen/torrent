@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137743.jpgsave_picture_137743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137744.jpgsave_picture_137744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137744.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2F4C3454D5A79EBF7655C261CD8D48B83FFD11AE
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137746.jpgsave_picture_137746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137746.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ XYplorer 19.50.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137747.jpgsave_picture_137747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137747.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ICQ 10.0 Build 38922 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpgsave_picture_137748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9687B457FDEC1065ECD008FD114D823CD604D00B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137749.jpgsave_picture_137749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137749.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137750.jpgsave_picture_137750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137750.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpgsave_picture_137752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:FC291E038C46146BD80066618D92F49FE4C63001
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137753.jpgsave_picture_137753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137753.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Comedy Woman (31.12.2019) WEB-DLRip (сезон 9, выпуск 15)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137754.jpgsave_picture_137754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137754.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137755.jpgsave_picture_137755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137755.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137756.jpgsave_picture_137756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137756.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137758.jpgsave_picture_137758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137758.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137759.jpgsave_picture_137759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137759.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137760.jpgsave_picture_137760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137760.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137761.jpgsave_picture_137761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:EE26D94EEDBD73A4422053AD737277F3678907F2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137762.jpgsave_picture_137762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137762.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137764.jpgsave_picture_137764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137764.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Minus One - Red Black White (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpgsave_picture_137765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137766.jpgsave_picture_137766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137766.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137767.jpgsave_picture_137767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137767.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:841F918032ADCCB44470BEBDF365DDCCDB19C955
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137768.jpgsave_picture_137768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137768.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137770.jpgsave_picture_137770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137770.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F4C6241EB9DEFFDD11CC23D8E54EF717EA9D345E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137771.jpgsave_picture_137771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137771.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137772.jpgsave_picture_137772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137772.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137773.jpgsave_picture_137773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137773.jpg" />
 </div>
 
 

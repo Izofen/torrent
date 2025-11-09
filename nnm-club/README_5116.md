@@ -6,7 +6,7 @@ Master PDF Editor 5.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159742.jpgsave_picture_159742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:86EE48EFC9139AFA44B82E958DFADAB5F757CA4B
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159743.jpgsave_picture_159743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159743.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E34A89E0CF2006678450C91F2B9F5EF65D3F9FDB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159744.jpgsave_picture_159744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7E02CB633B9973DF6E7FAE0CB39EC4CA95B62FB2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159745.jpgsave_picture_159745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159745.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D5D0DC168F2002781350192443545FDAABAABE19
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159746.jpgsave_picture_159746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159746.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIMP 5.10 Build 2418 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159747.jpgsave_picture_159747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159747.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GOM Player Plus 2.3.82.5349 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159748.jpgsave_picture_159748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159748.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:867B86760D809565FE52AE2D9D355BE08EAF55AD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159749.jpgsave_picture_159749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159749.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TreeSize Pro 8.5.2.1715 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159750.jpgsave_picture_159750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159750.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ YT Downloader 7.19.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159751.jpgsave_picture_159751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159751.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Windows and Office Genuine ISO Verifier 11.12.33.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159752.jpgsave_picture_159752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159752.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:03474C611BF923B75B546245D6E738959A41B6CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159753.jpgsave_picture_159753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159753.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:40FB2E0888C03CCCB17DD58C5824E1735E31E096
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159754.jpgsave_picture_159754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159754.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:6FD3EB6CC70D9044E4068B686355526680AB7230
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159755.jpgsave_picture_159755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159755.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:912EF08FF4F991330CF4E335943DC63FE968D96C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159756.jpgsave_picture_159756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159756.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:B3EF1F304D48CEC703CCFB7BC55F39E1C0B9DB69
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159757.jpgsave_picture_159757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159757.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159758.jpgsave_picture_159758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159758.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Topaz Photo AI 2.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159759.jpgsave_picture_159759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159759.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TreeSize Free 4.6.3.520 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159760.jpgsave_picture_159760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159760.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159761.jpgsave_picture_159761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159761.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ IObit Uninstaller Free 12.2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159762.jpgsave_picture_159762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159762.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:81294959B2553390C756618BA096ABAAFF2EEB39
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159763.jpgsave_picture_159763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159763.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:2ED0FE07FBC61DCE7821C7E4C06FC1FE58811D26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159764.jpgsave_picture_159764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159764.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:402FD41BF287FAF071DEAA7A10857F2C99F37A18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159765.jpgsave_picture_159765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159765.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:37A56232632D8EF666AF16897C0AC3068308F260
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159766.jpgsave_picture_159766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159766.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ King Crimson - In The Court Of The Crimson King (King Crimson At 50 A Film By To
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159767.jpgsave_picture_159767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159767.jpg" />
 </div>
 
 

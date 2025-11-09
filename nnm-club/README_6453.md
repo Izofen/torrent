@@ -6,7 +6,7 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204477.jpgsave_picture_204477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Screen Recorder PRO 7.27 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204478.jpgsave_picture_204478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01CCC45689EF52732E2AB8D1E5F19637AE8B100F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204479.jpgsave_picture_204479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204479.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EZ CD Audio Converter 11.1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204480.jpgsave_picture_204480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204480.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Vocal Anthems Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpgsave_picture_204481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204481.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5D775AFDF2255AA782F5676C6738E938D22ABF6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204482.jpgsave_picture_204482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204482.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:22D7AF0604D1DB1043881FA8E6B7174261118FA5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204483.jpgsave_picture_204483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204483.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204485.jpgsave_picture_204485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204485.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8A4D050E6FDE30DD6ECC6FAFD1605DBE62029CC8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204486.jpgsave_picture_204486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204486.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204487.jpgsave_picture_204487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204487.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ FiLMiC Pro v7.1 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204488.jpgsave_picture_204488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204488.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E0A423BDF9ADE73BBBC22257F7FACB7C56C741C2
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204489.jpgsave_picture_204489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204489.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|24/96|tracks|WEB-DL] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204490.jpgsave_picture_204490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204490.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Opera GX 101.0.4843.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204491.jpgsave_picture_204491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204491.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ amigoscode, Mama Samba Braima | Docker for DevOps Engineers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204492.jpgsave_picture_204492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204492.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204493.jpgsave_picture_204493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204493.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:3955B53E81187F93950B02FBC0FF84E5A4E2DCC0
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204494.jpgsave_picture_204494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204494.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Spotify 1.2.1.968 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204495.jpgsave_picture_204495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204495.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:14E2BD69FBF7C2231B9E86D419DBD213B4C02EA1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204496.jpgsave_picture_204496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204496.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204497.jpgsave_picture_204497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204497.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DesktopOK 11.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204498.jpgsave_picture_204498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204498.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:9073EF1A7E95B6E62EC1904226F48B847F7ECB7D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204499.jpgsave_picture_204499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204499.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:B2EB3F647BAA555636FA424791D555D3EDD65FAB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204500.jpgsave_picture_204500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204500.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:2C0C569C7134CF2BE6E7136D1CD05933D9182969
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204501.jpgsave_picture_204501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204501.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:8FDEFD4856DE7BC0440073E6A07F265A69C3C64D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204502.jpgsave_picture_204502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204502.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:4BD60F1728D606271BC4BA040B3F1CABB730F46E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204503.jpgsave_picture_204503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204503.jpg" />
 </div>
 
 

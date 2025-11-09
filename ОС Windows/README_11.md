@@ -6,7 +6,7 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1637] AIO 4in2 (x86-x64) by a
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169168.jpgsave_picture_169168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172159.jpgsave_picture_172159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172159.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 10/11 x64 (18in1) by Updated Edition (18.10.2023) [Ru]
 >>Сборки Windows - всё в одном
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172165.jpgsave_picture_172165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172165.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172374.jpgsave_picture_172374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172374.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.2031 (Updated October 2023) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172549.jpgsave_picture_172549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172549.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172563.jpgsave_picture_172563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172563.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172569.jpgsave_picture_172569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172569.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows 11 (9in1) by Updated Edition (12.10.2023) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173536.jpgsave_picture_173536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173536.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173555.jpgsave_picture_173555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173555.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22621.525], Version 22H2 (Updated Sept
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174349.jpgsave_picture_174349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174349.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180610.jpgsave_picture_180610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180610.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184282.jpgsave_picture_184282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184282.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Windows 11 PRO 24H2 26100.6899 Update 20 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186090.jpgsave_picture_186090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186090.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186110.jpgsave_picture_186110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186110.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186604.jpgsave_picture_186604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186604.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186902.jpgsave_picture_186902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186902.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187229.jpgsave_picture_187229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187229.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1970 (Updated September 2023)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187245.jpgsave_picture_187245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187245.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187260.jpgsave_picture_187260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187260.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187287.jpgsave_picture_187287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187287.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187312.jpgsave_picture_187312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187312.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187326.jpgsave_picture_187326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187326.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187601.jpgsave_picture_187601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187601.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187604.jpgsave_picture_187604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187604.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1249 (Updated November 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187637.jpgsave_picture_187637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187637.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187653.jpgsave_picture_187653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187653.jpg" />
 </div>
 
 

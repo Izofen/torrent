@@ -6,7 +6,7 @@ Anthrax - For All Kings (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Sp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpgsave_picture_138245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D60DDC18242235E004969163E452DE03C6BF2165
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138246.jpgsave_picture_138246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138246.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3C18A83AFF92205E2F8334A717CC83A2B1B06146
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138248.jpgsave_picture_138248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138248.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9F9D9C0CF8CB4012EEA6BE0CBCD3D82C891CAC01
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138249.jpgsave_picture_138249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138249.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Economist публикуется компанией The Economist Group. С 1928
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138250.jpgsave_picture_138250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138250.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:7A6A23E61F6D14D2211BA141B77A2A426C9BC476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138251.jpgsave_picture_138251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138251.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4D621F9884962DA9BE25CBA23C89C64B69145C82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138252.jpgsave_picture_138252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138252.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:523ABAAD19E3F78CEB452BF11C8A85527278184D
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138254.jpgsave_picture_138254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138254.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4EDE074CF19C321CC1332D53BEEA3F7C6CF3431E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138257.jpgsave_picture_138257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138257.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:822CB2F19E09BBA20F3F9953B7C5923A6A46410D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138258.jpgsave_picture_138258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138258.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E879113D685F03A3A269317D41BAC2EE73FC2E4B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138259.jpgsave_picture_138259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138259.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138260.jpgsave_picture_138260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138260.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:A8EE49C209BF6BD5DCC6F809793852A98A6F1EF9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138261.jpgsave_picture_138261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138261.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Proteus 8 Professional 8.8 SP1 (Build 27031) with Advanced Simulation [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138262.jpgsave_picture_138262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138262.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1393CFC7F0D5438583B7976DEF0F04254B60F1D5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138264.jpgsave_picture_138264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138264.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9443A90D7EB7A5E0744329BF7339A2D331F29FB8
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138265.jpgsave_picture_138265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138265.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Galaxy on Fire 2. Full HD [Ru/En/Multi11] (RePack/1.0.3) 2012 | Fenixx
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138266.jpgsave_picture_138266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138266.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:AAEC0BB7435CB97A9ED29AC1E5A2C147A03D78D6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138267.jpgsave_picture_138267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138267.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138269.jpgsave_picture_138269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138269.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:08DEB9E6AC645D9C69E1574B685B1E61BDA510E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138270.jpgsave_picture_138270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138270.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:5731193E1FADCC3B4C26BD6171298EF2783B6777
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138271.jpgsave_picture_138271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138271.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:707DC465D07331B26946E3775E16937C22D99EFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138272.jpgsave_picture_138272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138272.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:8E6E474ADDA7186730071871109167EC48AB8C8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138273.jpgsave_picture_138273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138273.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:ADA57CE93A86722DB292292219C9BB0EABC0F776
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138274.jpgsave_picture_138274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138274.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:81D0A9164CD0191BEB45E31189B54F4CEA245BEA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138276.jpgsave_picture_138276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138276.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138277.jpgsave_picture_138277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138277.jpg" />
 </div>
 
 

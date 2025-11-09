@@ -6,7 +6,7 @@ HWiNFO 8.03 Build 5450 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108995.jpgsave_picture_108995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108995.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Fulltime Production Italo Disco, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108996.jpgsave_picture_108996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108996.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4BBD45F2FE5BF21DDC0A69D77ADC7E04F0FA5C18
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108997.jpgsave_picture_108997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108997.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6CE008C7BB3E6C08F43EEFFCE2F8472AAA1B83C7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108998.jpgsave_picture_108998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108998.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Speedtest от Ookla 5.3.7 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108999.jpgsave_picture_108999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108999.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CE32AB2665DFAE15A829B4A2378F32CD9E0D67BB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpgsave_picture_109000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109000.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:39DCC9007ADE3041BA503322963BC3223B1CBE8A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109001.jpgsave_picture_109001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109001.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Sound on Purpose - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpgsave_picture_109002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109002.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ PhotoRoom 4.9.7 (b1416) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109003.jpgsave_picture_109003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109003.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Domination - Echoes Of Persecution (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpgsave_picture_109004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109004.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpgsave_picture_109005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109005.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ NetLimiter 5.3.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109006.jpgsave_picture_109006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109006.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ XYplorer 26.00.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109007.jpgsave_picture_109007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109007.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109008.jpgsave_picture_109008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109008.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109009.jpgsave_picture_109009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109009.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109010.jpgsave_picture_109010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109010.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Русская 30-ка хитов 2 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109011.jpgsave_picture_109011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109011.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:981C993E25319C090C88DFBAD7CE2DE664BDF6A2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109012.jpgsave_picture_109012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109012.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C33D859AE4C267BEC7919E070017B5B4A6578AFD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109013.jpgsave_picture_109013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109013.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Green Grey - The Best (2024) Remastered 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpgsave_picture_109014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109014.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:7C5A871AC7DA9A9FB6E6015FE8008A10C5F4EFE5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109015.jpgsave_picture_109015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109015.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Vivaldi 6.7.3329.35 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109016.jpgsave_picture_109016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109016.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109017.jpgsave_picture_109017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109017.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109018.jpgsave_picture_109018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109018.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Sumatra PDF 3.6.16254 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109019.jpgsave_picture_109019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109019.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Q-Dir 11.65 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109020.jpgsave_picture_109020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109020.jpg" />
 </div>
 
 

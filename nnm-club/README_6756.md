@@ -6,7 +6,7 @@ Total Commander 11.00 beta4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232422.jpgsave_picture_232422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232422.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mivo - Видеоредактор 3.32.598 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232423.jpgsave_picture_232423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232423.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ADD1AFF52E8B4A76336D1C8C2940E65EB75D21AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232424.jpgsave_picture_232424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232424.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:35AFC3693D6C31F8D8BF81B594D10FFCC87F5838
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232425.jpgsave_picture_232425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232425.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:312785BF31F91CE3DD670163C87AB301F0E039C3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232426.jpgsave_picture_232426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232426.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B59FFB18CE6ECCB9D52B5AF3B1D509F7C5A095B6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232427.jpgsave_picture_232427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232427.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:08EB2A1C4CA7088DEF40DC408CD0554E99818CDF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232429.jpgsave_picture_232429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232429.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Cottage Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232430.jpgsave_picture_232430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232430.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3207908DB2238ECBEFA228E7C9FCFE2B02E08748
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232431.jpgsave_picture_232431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232431.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2FFA08F22341DDAB74E9BEC0137BD2C9A867B965
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232432.jpgsave_picture_232432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232432.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232433.jpgsave_picture_232433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232433.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ryan Kisor - Power Source (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232436.jpgsave_picture_232436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232436.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Multitrack Editor: Beat Mixer 1.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232437.jpgsave_picture_232437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232437.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Process Lasso Pro 12.2.0.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232438.jpgsave_picture_232438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232438.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Bandicam 6.2.1.2067 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232439.jpgsave_picture_232439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232439.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Beneath The Hollow - Misery Loves You (2023) [FLAC|Lossless|WEB-DL|tracks] <Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232441.jpgsave_picture_232441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232441.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Opera 99.0.4788.31 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232443.jpgsave_picture_232443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232443.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Kill Command - Hostile Takeover (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232444.jpgsave_picture_232444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232444.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Incitacion (Incitación) - Sabrosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232445.jpgsave_picture_232445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232445.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Kill Ritual - Kill Star Black Mark Dead Hand Pierced Heart (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232446.jpgsave_picture_232446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232446.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Windows 10 Manager 3.8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232448.jpgsave_picture_232448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232448.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Sparks - The Girl Is Crying In Her Latte (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232450.jpgsave_picture_232450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232450.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Tio Manuel - ¡Ocho! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232451.jpgsave_picture_232451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232451.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:6A7A8C98D0E9C9B20BCA869282BE5C5B3C148FCD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232452.jpgsave_picture_232452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232452.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232453.jpgsave_picture_232453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232453.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sola Rosa - Low and Behold, High and Beyond (2012) [WavPack|Lossless|WEB-DLRip|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232456.jpgsave_picture_232456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232456.jpg" />
 </div>
 
 

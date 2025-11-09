@@ -6,7 +6,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11011.jpgsave_picture_11011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11011.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11015.jpgsave_picture_11015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11015.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11017.jpgsave_picture_11017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11018.jpgsave_picture_11018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11018.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11019.jpgsave_picture_11019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11019.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11021.jpgsave_picture_11021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11022.jpgsave_picture_11022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11022.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3713F618063E4E72B9352278F4CC4487B9F2818E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11023.jpgsave_picture_11023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11023.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9918D8F6DCA0D303026F8E218241C4C4E87CA3C5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11024.jpgsave_picture_11024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11024.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11026.jpgsave_picture_11026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11026.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11028.jpgsave_picture_11028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11028.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3A3319B8AA844BB006A601D7730F71244D8118CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11029.jpgsave_picture_11029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11029.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B5A3C9B9E4406A1A7F7F5108CDA941BE4554DFAB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11031.jpgsave_picture_11031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11031.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B5A3C9B9E4406A1A7F7F5108CDA941BE4554DFAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11033.jpgsave_picture_11033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11033.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11034.jpgsave_picture_11034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11034.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11035.jpgsave_picture_11035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11035.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:DF5CD2D854950C9C6F2D7938CB1AA7D3FA3D9853
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11036.jpgsave_picture_11036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11036.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:46AD9203B726B3D3461300A4AB0260D51FD54885
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11038.jpgsave_picture_11038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11038.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11041.jpgsave_picture_11041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11041.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11043.jpgsave_picture_11043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11043.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:ADC6B0AD1F49C239FD405A4F901AE5E13629F79C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11044.jpgsave_picture_11044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11044.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:ADC6B0AD1F49C239FD405A4F901AE5E13629F79C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11045.jpgsave_picture_11045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11045.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Depeche Mode - SACD Anthology (1981-2005) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11046.jpgsave_picture_11046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11046.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FDC69D701F6BBFEA673E2BF0C2FED3FA1EF2B336
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11049.jpgsave_picture_11049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11050.jpgsave_picture_11050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11050.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11051.jpgsave_picture_11051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11051.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70456.jpgsave_picture_70456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70456.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance Winter 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70457.jpgsave_picture_70457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70457.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:57A2A3B9BF8BB792BBB689DCCAABBC89BAA6DBD1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70458.jpgsave_picture_70458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70458.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:49D851988F38397CA8CF9B2EE7DDDE8F3946C04C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70459.jpgsave_picture_70459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70459.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tape Five - Best of ... Swing Edition (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70460.jpgsave_picture_70460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70460.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:2564EE76CDECC7E5C60023EFF11F1790BC8CC665
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70461.jpgsave_picture_70461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70461.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:63A0ADA0A7818345E9408A1B0AB1140FCAA83784
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70462.jpgsave_picture_70462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70462.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Tony Moore - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70463.jpgsave_picture_70463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70463.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Music Collection 3.8.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70464.jpgsave_picture_70464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70464.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:C87C26ABFDF840E75B7B85887EE475C0027F68D8
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70465.jpgsave_picture_70465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70465.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ RAR for Linux 7.10 [x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70466.jpgsave_picture_70466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70466.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ JUG Ru Group | Mobius 2024 Autumn. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70467.jpgsave_picture_70467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70467.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70468.jpgsave_picture_70468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70468.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:D78DD809DF7F356156042F57F7B0EFD7E3CCBAB7
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70469.jpgsave_picture_70469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70469.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:29777E6AFF7D9F5A3E843D97DA336DE1B0C9B7F6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70470.jpgsave_picture_70470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70470.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:133B45EF92E53E5A7664D21A00090E8710FBD0DC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70471.jpgsave_picture_70471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70471.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Шансон премьера 2025 февраль (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70472.jpgsave_picture_70472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70472.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70473.jpgsave_picture_70473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70473.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MusicBrainz Picard 2.13.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70474.jpgsave_picture_70474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70474.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Desktop Calendar 3.21.223.6991 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70475.jpgsave_picture_70475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70475.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ RegCool 2.031 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70476.jpgsave_picture_70476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70476.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5665B469F95AC9094DB0B46C9EA03AEC833FF5D8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70477.jpgsave_picture_70477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70477.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:92D315037C98FDFB9985AABC84BCB4112FF70ECB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70478.jpgsave_picture_70478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70478.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70479.jpgsave_picture_70479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70479.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpgsave_picture_70480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpgsave_picture_70481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpg" />
 </div>
 
 

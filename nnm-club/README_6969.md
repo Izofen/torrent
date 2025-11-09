@@ -6,7 +6,7 @@ Caffeinated 1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239295.jpgsave_picture_239295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04D99BBC806B841ED6C3BB26E5D7DA3464185EEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239296.jpgsave_picture_239296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239297.jpgsave_picture_239297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239297.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bite The Bullet - Rocky Road (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239298.jpgsave_picture_239298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239298.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D98FE8AEC79E88E7AAB2B394924642A9C4F8CB3A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239300.jpgsave_picture_239300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239300.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ iconStiX 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239302.jpgsave_picture_239302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239302.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ AlterPDF Pro 6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239303.jpgsave_picture_239303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239303.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239304.jpgsave_picture_239304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239304.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:86FE474FBE0E020E3205CD6B49DFA08CE7D76420
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239305.jpgsave_picture_239305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239305.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Lola Young - My Mind Wanders and Sometimes Leaves Completely (2023) [FLAC 24/44.
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239306.jpgsave_picture_239306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239306.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:E5C93F681C7807175F06B0D6AA574964348452BC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239308.jpgsave_picture_239308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239308.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:978821409486808EDF9A4D851FBB96CFB9ED2BEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239310.jpgsave_picture_239310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239310.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:A3A06F8AE017C38896BC9611293E24CAB4987EFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239311.jpgsave_picture_239311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239311.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:B4CA204E24D39D70232FB18C52F61ED5869CDA75
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239312.jpgsave_picture_239312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239312.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Fridge - Happiness (Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239313.jpgsave_picture_239313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239313.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:72228FE2ED7414D7999187967FF48944FE307C97
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239316.jpgsave_picture_239316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239316.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:EE90D2D22074318FF9DB73E4AC52DD2F31C0FA4E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239317.jpgsave_picture_239317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239317.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Storyist 4 v4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239318.jpgsave_picture_239318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239318.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:4B686B2A5AFD4B4014798A52754C1B8C8EDF32DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239319.jpgsave_picture_239319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239319.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:4B686B2A5AFD4B4014798A52754C1B8C8EDF32DD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239320.jpgsave_picture_239320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239320.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:7BDC619446C16FA6C32A46EAA06E27946900FE56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239323.jpgsave_picture_239323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239323.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Middle 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239324.jpgsave_picture_239324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239324.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Escape The Madness - Continuation Of Misery (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239325.jpgsave_picture_239325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239325.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Clark - Sus Dog (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239327.jpgsave_picture_239327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239327.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rainbow - The Very Best Of Rainbow (1997) [APE|Lossless|image + .cue] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239328.jpgsave_picture_239328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239328.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Skype 8.98.0.402 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239329.jpgsave_picture_239329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239329.jpg" />
 </div>
 
 

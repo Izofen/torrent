@@ -6,7 +6,7 @@ Speedemon - Fall of Man (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65846.jpgsave_picture_65846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65846.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65856.jpgsave_picture_65856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65856.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65905.jpgsave_picture_65905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65905.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65914.jpgsave_picture_65914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65914.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wizzo - Place of the Chosen Lords (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65916.jpgsave_picture_65916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65916.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Majesty - Oceans Of Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65917.jpgsave_picture_65917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65917.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Onslaught - Origins Of Aggression (2025) 2 x CD [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65925.jpgsave_picture_65925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65925.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Septulchu - Post Fata Non Resurgam (2025) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65927.jpgsave_picture_65927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65927.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Itinerum - Resurgence (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65939.jpgsave_picture_65939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65939.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Imperial Triumphant - Alphaville (2020) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65948.jpgsave_picture_65948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65948.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Selvforakt - Ormstukken (2025) [MP3|320 Kbps] <Black, Sludge Metal, Crust>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65952.jpgsave_picture_65952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65952.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65953.jpgsave_picture_65953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65953.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65962.jpgsave_picture_65962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65962.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65970.jpgsave_picture_65970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65970.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eluveitie - Anv (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65972.jpgsave_picture_65972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65972.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rivers Of Nihil - Rivers Of Nihil (2025) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65973.jpgsave_picture_65973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65973.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65974.jpgsave_picture_65974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65974.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65975.jpgsave_picture_65975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65975.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Waltari - Nations' Neurosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65978.jpgsave_picture_65978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65978.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65983.jpgsave_picture_65983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65983.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alestorm - The Thunderfist Chronicles (2025) [MP3|320 Kbps] <Power Metal, Folk M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65997.jpgsave_picture_65997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65997.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66031.jpgsave_picture_66031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66031.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Guildmaster - GATHERING OF SOULS (2025) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66032.jpgsave_picture_66032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66032.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66044.jpgsave_picture_66044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66044.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66046.jpgsave_picture_66046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66046.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66047.jpgsave_picture_66047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66047.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Music News For Forum vol.088 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17767.jpgsave_picture_17767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17767.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4CAC42D73DF72419B26FD2B77B5B08293E24ACBF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17768.jpgsave_picture_17768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17768.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:19547227FCD4F4F16CD59C184EBD2F73FE7CB7E9
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17769.jpgsave_picture_17769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17769.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build #268/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17770.jpgsave_picture_17770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17770.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:12F3A3A37331549F008739F1E5EEA411688CCEF2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17771.jpgsave_picture_17771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17771.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17772.jpgsave_picture_17772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17772.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:608213EF440C1FE4C6AB35E0067C2ED7C87A7CA1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17773.jpgsave_picture_17773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17773.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E7AB8D28462ACFAD62E5D61C574FAFF5AB8E90E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17774.jpgsave_picture_17774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17774.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:3B875DD43E4AD4AE512CCDD419E0CE7CDEF9B088
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17775.jpgsave_picture_17775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17775.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:11F872A2F85E56830B6AE762045B75D1E375BA46
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17776.jpgsave_picture_17776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17776.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5472F0C394462A2594BB06C78BC25554ECF7F243
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17777.jpgsave_picture_17777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17777.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17778.jpgsave_picture_17778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17778.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:71459EA0E1E42211376FF88EA0F5E22B46AB419A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17779.jpgsave_picture_17779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17779.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:1184152EBA511264D62F38CEF3E0C0D9CC2B633C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17780.jpgsave_picture_17780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17780.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:AF489405CC6BBB22FC57FCF4259B8F0CCA7A62EC
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17781.jpgsave_picture_17781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17781.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8945EA284B04DC55DC32D7A9A86AC8B981C7FF9E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17782.jpgsave_picture_17782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17782.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9ED81696085310F51B98DA88BCB1DDEB87B1D4A0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17783.jpgsave_picture_17783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17783.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:65B65E512166EED85B1661EACEC53080964EF1BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17784.jpgsave_picture_17784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17784.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:EC4ED940662EA3A66B8EF975425A08506EBBE8B6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17785.jpgsave_picture_17785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17785.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Xiaomi Home (Ранее. MiHome) v10.5.702 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17786.jpgsave_picture_17786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17786.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:DD9860059BD3CCF2AE12817A97ECEDC1ED5DF493
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17787.jpgsave_picture_17787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17787.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17788.jpgsave_picture_17788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17788.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:EFE54AFFEE2D174D4E565DE037F290F0C39420F5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17789.jpgsave_picture_17789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17789.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17790.jpgsave_picture_17790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17790.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:002DF1CD9B7FFEDD7760EFB3C220662CB4FB1B83
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17791.jpgsave_picture_17791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17791.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:AEAD5A441DB87FEA4B73752021A50225C672B3F5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17792.jpgsave_picture_17792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17792.jpg" />
 </div>
 
 

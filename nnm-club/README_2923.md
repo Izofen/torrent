@@ -6,7 +6,7 @@ Grand Theft Auto: San Andreas / Criminal Russia / Криминальная Ро�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86256.jpgsave_picture_86256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86256.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B9A143F93CD063C9D8A9E006B308D7D26D78810E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86257.jpgsave_picture_86257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86257.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B9A143F93CD063C9D8A9E006B308D7D26D78810E
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86258.jpgsave_picture_86258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86258.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows7 Максимальная AUZsoft Yellow+miniWPI x64 v.10.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86259.jpgsave_picture_86259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86259.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Windows7 Максимальная AUZsoft Yellow+miniWPI x64 v.10.12 [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86260.jpgsave_picture_86260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86260.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86261.jpgsave_picture_86261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86261.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86262.jpgsave_picture_86262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86262.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86263.jpgsave_picture_86263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86263.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86264.jpgsave_picture_86264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86264.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Front Mission Evolved + 6 DLC [Ru] (RePack/1.0.0.1u2) 2010 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86265.jpgsave_picture_86265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86265.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Flash Decompiler Trillix 5.3.1370.0 Portable [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86267.jpgsave_picture_86267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86267.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Flash Decompiler полностью поддерживает Flash 5, 6, 7, 8, 9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86268.jpgsave_picture_86268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86268.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ KMPlayer 3.2.0.19 Final RePack (& portable) by Diakov [Русский, Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86270.jpgsave_picture_86270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86270.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Agrar Simulator 2012 Deluxe (L) [Ge/En] 2011
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86271.jpgsave_picture_86271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86271.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Counter Strike: Source - Modern Warfare 3 (RePack) [Ru] 2012 | By Wh40k clan
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86273.jpgsave_picture_86273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86273.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:C3043147BE28BB78E3B75B5F4B6D49AC4AF9A30E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86276.jpgsave_picture_86276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86276.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:1C4862A250295D4B83CAD34DF81BB64FB1AC2228
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86277.jpgsave_picture_86277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86277.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:78B4AB68DB73EF7F0D55BE1C7424D7BDCF71F310
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86278.jpgsave_picture_86278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86278.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:78B4AB68DB73EF7F0D55BE1C7424D7BDCF71F310
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86279.jpgsave_picture_86279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86279.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E50ABBDA2B8CF35B5210069F0B160F1C6A3DA9C6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86282.jpgsave_picture_86282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86282.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E91CEEBC684B80C830F70C27D8E8AC52E2694E6F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86283.jpgsave_picture_86283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86283.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:440AE1222B297D61E2B6E3E879EE45A010EB06AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86284.jpgsave_picture_86284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86284.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:9A719463288339787A773AE483DAC9C405BCE959
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86286.jpgsave_picture_86286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86286.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86287.jpgsave_picture_86287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86287.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86288.jpgsave_picture_86288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86288.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:E81707CEC1CF5E38853A53A41395C3DBF23434D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86289.jpgsave_picture_86289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86289.jpg" />
 </div>
 
 

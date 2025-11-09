@@ -6,7 +6,7 @@ Wondershare UniConverter for Mac 15.5.3 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113091.jpgsave_picture_113091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113091.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113092.jpgsave_picture_113092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113092.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:9831B8474D7F6DEED508C6832CF37012D91B9D95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113093.jpgsave_picture_113093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113093.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VideoProc Converter 4K 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113094.jpgsave_picture_113094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113094.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A09B679BAB9531E88A6136C625E6C852F71BEF79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113095.jpgsave_picture_113095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113095.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpgsave_picture_113096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Hugo Schettino Blues Trio - Find Yourself (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113097.jpgsave_picture_113097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113097.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Vivaldi 6.6.3271.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113098.jpgsave_picture_113098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113098.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113099.jpgsave_picture_113099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113099.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tower Pro 10 for Mac v.10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113100.jpgsave_picture_113100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113100.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113101.jpgsave_picture_113101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113101.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:4B275BD411A79D76F31B5A73ED4C6D952C0D0243
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113102.jpgsave_picture_113102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113102.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Leaves' Eyes - Myths of Fate (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113103.jpgsave_picture_113103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113103.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Mozilla Thunderbird 115.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113104.jpgsave_picture_113104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113104.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Wise Registry Cleaner Pro 11.1.3.718 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113105.jpgsave_picture_113105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113105.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:5073BA30ADF1461DA38560E2204CA2AEB5DCD036
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113106.jpgsave_picture_113106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113106.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Firefox Browser ESR 115.9.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113107.jpgsave_picture_113107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113107.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Skype 8.115.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113108.jpgsave_picture_113108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113108.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:F408F9CD4184C2015AA0DF3047F9848833EEE9CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113109.jpgsave_picture_113109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113109.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Doppler for Mac 2.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113110.jpgsave_picture_113110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113110.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113111.jpgsave_picture_113111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113111.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Bear Garden - Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113112.jpgsave_picture_113112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113112.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpgsave_picture_113113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113114.jpgsave_picture_113114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113114.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:712133A8003504179FB4A2DF081F7F34BDE6ED27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113115.jpgsave_picture_113115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113115.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113116.jpgsave_picture_113116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113116.jpg" />
 </div>
 
 

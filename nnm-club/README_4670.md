@@ -6,7 +6,7 @@ Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpgsave_picture_146185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146187.jpgsave_picture_146187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146187.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146188.jpgsave_picture_146188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146188.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7F01692AFCBC722B433463CD49F6A7FB8B83F056
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146189.jpgsave_picture_146189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146189.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Cent
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpgsave_picture_146190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F12B94477424ED24BBEF305DC1440EC046A4C2BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146191.jpgsave_picture_146191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146191.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpgsave_picture_146192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146194.jpgsave_picture_146194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146194.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:484681977B365DA2E5E8BED7B78F3F5D1A2F9F5F
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146195.jpgsave_picture_146195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146195.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:CABB379B8A8FB8D75171CEE75CEC300A231E873A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146196.jpgsave_picture_146196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146196.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:219077145429FBEF56F610E161D05C6879A7FB5C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146197.jpgsave_picture_146197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146197.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:71B4103D60E74ECAE1DDA5550EEFE6C4DD3C3B0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146198.jpgsave_picture_146198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146198.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:71B4103D60E74ECAE1DDA5550EEFE6C4DD3C3B0A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146199.jpgsave_picture_146199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146199.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Alien Skin Exposure X 1.0.0.2005 Revision 31988 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146200.jpgsave_picture_146200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146200.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Garden Planner 3.7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146201.jpgsave_picture_146201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146201.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Rook Ensemble - Conform to the Pageantry (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpgsave_picture_146203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:CB74E57FFF0806CB5D5982B4D4FD16FCF359AD2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146204.jpgsave_picture_146204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146204.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C071AA6D06101FE3C1D8D3411343CFEB33D91E5F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146206.jpgsave_picture_146206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146206.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:2823BB99D09D3FC68DCF8E6D27429F6624DD6594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146207.jpgsave_picture_146207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146207.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:729858EDA590B7052D13DFAD6F183949EAAB9B94
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146208.jpgsave_picture_146208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146208.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Amerigo Gazaway - Nina Simone & Lauryn Hill - The Miseducation of Eunice Waymon 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146210.jpgsave_picture_146210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146210.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:A1C243915B80A0A237454D5BF1DBBA84BC753831
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146211.jpgsave_picture_146211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146211.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F0A4854B0D89CACD7257D25635FF8B2E4136E4AE
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146212.jpgsave_picture_146212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146212.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:56D28B7EE63F0A09B87DD9BF336FB804F6784EFB
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146213.jpgsave_picture_146213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146213.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:777545D4B8A8DA05E5329A8C8467F61179013E04
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146214.jpgsave_picture_146214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146214.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.03.00) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146215.jpgsave_picture_146215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146215.jpg" />
 </div>
 
 

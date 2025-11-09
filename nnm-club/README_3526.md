@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpgsave_picture_112037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance In Motion Vol.372 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112038.jpgsave_picture_112038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112038.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112039.jpgsave_picture_112039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112039.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112040.jpgsave_picture_112040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112040.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A99A88A49E47B0B5D7EB129F3119BF7B826C56EF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112041.jpgsave_picture_112041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112041.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F405DE9E14BEE2A404E9EE163428272B444FDEB6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112042.jpgsave_picture_112042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112042.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Veronicas - Gothic Summer (2024) [MP3|320 Kbps] <pop-rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112043.jpgsave_picture_112043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112043.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Spag Heddy - The Noodle Effect (Re-Heated) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112044.jpgsave_picture_112044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112044.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ XYplorer 25.80.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112045.jpgsave_picture_112045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112045.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112046.jpgsave_picture_112046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112046.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:088CF4F8709C956CE41DC60A8CF967B26021CC08
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112047.jpgsave_picture_112047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112047.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:D7F8D47DEF418948852E3F6F7EB9148A7B467DBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112048.jpgsave_picture_112048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112048.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:C135480F85E44F85865F7E2F4F8C378DE5EB1F27
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112049.jpgsave_picture_112049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112049.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:6C2A3E2C4F8CABED7DC7BA97819F3F7123B54737
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112050.jpgsave_picture_112050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112050.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ GPU Shark II 2.2.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112051.jpgsave_picture_112051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112051.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Icecream PDF Editor PRO 3.21 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112052.jpgsave_picture_112052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112052.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Glary Disk Explorer 6.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112053.jpgsave_picture_112053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112053.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ultimaker Cura 5.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112054.jpgsave_picture_112054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112054.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:661CF9BA006E70596EA1C16C3AA079DFD3DD9443
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112055.jpgsave_picture_112055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112055.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:E2D95AD3D796E7923FCEB6E461EECA333426C284
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112056.jpgsave_picture_112056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112056.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:B6EE248A0ABBD90B00880F86F8569CB49FF7B745
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112057.jpgsave_picture_112057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112057.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112058.jpgsave_picture_112058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112058.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112059.jpgsave_picture_112059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112059.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:9903CF469BE270FB0C7433BE74CBA363055388E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112060.jpgsave_picture_112060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112060.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:794945EB48438955BE3924B6E0676566316AA0CB
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112061.jpgsave_picture_112061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112061.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E01A4277D4C524299270B8AD97006ECF5F4F1C39
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112062.jpgsave_picture_112062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112062.jpg" />
 </div>
 
 

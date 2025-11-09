@@ -6,7 +6,7 @@ Skeletoon - Nemesis (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182561.jpgsave_picture_182561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182561.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shootki - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182563.jpgsave_picture_182563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182563.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Qantice - The Anastoria (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182566.jpgsave_picture_182566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182566.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Black Royal - Earthbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Blue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182584.jpgsave_picture_182584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182584.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182592.jpgsave_picture_182592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182592.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182693.jpgsave_picture_182693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Grateful Dead - Wake of the Flood (1973) 50th Anniversary Deluxe Edition, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182802.jpgsave_picture_182802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182802.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Languish - Feeding the Flames of Annihilation (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183019.jpgsave_picture_183019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183019.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AC/DC - Power Up (2020) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183025.jpgsave_picture_183025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183025.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Asia - Asia (1982) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183065.jpgsave_picture_183065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183065.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kiss - Jersey City 1976 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183093.jpgsave_picture_183093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183093.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Hatters - По ходу люблю (2023) Полная версия [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183098.jpgsave_picture_183098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183098.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B395FF798986EE96940874C7AE8E5E0C8018AA4C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183117.jpgsave_picture_183117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183117.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:919441AEDFB060378E1E5356E7C67573DCB45B8B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183120.jpgsave_picture_183120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183120.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Elvenking - Reader Of The Runes - Divination (2019) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183124.jpgsave_picture_183124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183124.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183141.jpgsave_picture_183141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183141.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anima Hereticae - Descended from the Mountains (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183151.jpgsave_picture_183151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183151.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183157.jpgsave_picture_183157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183157.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183158.jpgsave_picture_183158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183158.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD, Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183181.jpgsave_picture_183181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183181.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tommy Gunn - La Peneratica Svavolya (2009) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183196.jpgsave_picture_183196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183196.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Era of Discord - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183198.jpgsave_picture_183198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183198.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:AB55411C44EBE40F871D3A9F63B7B68CCD03AA6A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183201.jpgsave_picture_183201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183201.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Foreigner - The Can't Slow Down: B-Sides and Extra Tracks (2020) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183208.jpgsave_picture_183208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183208.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:BC4A9C2CD4A6022E3ABA65FF0B6FAF59B29BC373
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183214.jpgsave_picture_183214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183214.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lawful Killing - The First Division (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183227.jpgsave_picture_183227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183227.jpg" />
 </div>
 
 

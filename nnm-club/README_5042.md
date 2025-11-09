@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157650.jpgsave_picture_157650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157651.jpgsave_picture_157651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157651.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Path Finder 2149 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157653.jpgsave_picture_157653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157653.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Aliens vs. Predator (2010) [Ru] (2.27.0/dlc/tr) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157654.jpgsave_picture_157654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157654.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cinemagraph Pro 2.8.3 (build 223) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157655.jpgsave_picture_157655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157655.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:453C116FF95638FE3F5BB279880D4AD6C32D5387
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157656.jpgsave_picture_157656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157656.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0A0E594E3E10B64F240271A8E3464E08D64589C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157657.jpgsave_picture_157657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157657.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E336B7C7944D384440A23376624A48A5F5A213D1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157659.jpgsave_picture_157659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157659.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Acoustic Chill Out, Tantric Sexuality Masters - Sensual Night Chillout (2019) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157660.jpgsave_picture_157660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157660.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:524E87226FB60161E638CA2D8BEE3A31758B7089
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157661.jpgsave_picture_157661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157661.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E9361175BE64C58535BA9BDB97D49CC6BDA0ED26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157663.jpgsave_picture_157663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:240238A5E6C4B775EC324ABC127C084803A61B92
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157664.jpgsave_picture_157664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157664.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:15575935F40A230806D0FD871911D5C7C60980D9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157665.jpgsave_picture_157665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157665.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:CC1338631B4B3C3A9BAF5F3BA1B69708FC270CD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157666.jpgsave_picture_157666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157666.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpgsave_picture_157667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157668.jpgsave_picture_157668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157668.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:573F5474CE6D1A089070421FC1D641D3A95DCD43
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157669.jpgsave_picture_157669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157669.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:90852C91DA18733FE519D266DE7921AF53315168
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157670.jpgsave_picture_157670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157670.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:F64BE4908F78B2B54013FA708C11EB8873B84AAA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157671.jpgsave_picture_157671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157671.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:398EC53DD6F5DF92A147CE2DBA8BE50456F1ECBA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157672.jpgsave_picture_157672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157672.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157673.jpgsave_picture_157673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157673.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpgsave_picture_157674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157675.jpgsave_picture_157675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157675.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157676.jpgsave_picture_157676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157676.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mick Clarke - Relentless Boogie - The Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157677.jpgsave_picture_157677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157677.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:21C30BC0C3744AEDD4148D14D15D5DB2DDFBC2AC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157678.jpgsave_picture_157678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157678.jpg" />
 </div>
 
 

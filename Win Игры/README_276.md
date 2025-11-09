@@ -6,7 +6,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpgsave_picture_202396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpgsave_picture_202397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpgsave_picture_202398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpgsave_picture_202399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202438.jpgsave_picture_202438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202438.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202439.jpgsave_picture_202439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202439.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpgsave_picture_202440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpgsave_picture_202441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpgsave_picture_202442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpgsave_picture_202452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202452.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202453.jpgsave_picture_202453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202453.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpgsave_picture_202454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202455.jpgsave_picture_202455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202455.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-26) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpgsave_picture_202456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpgsave_picture_202458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpgsave_picture_202459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202460.jpgsave_picture_202460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202460.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpgsave_picture_202471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpgsave_picture_202481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202569.jpgsave_picture_202569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202569.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202573.jpgsave_picture_202573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202573.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpgsave_picture_202582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Out Zone (2023) [Multi] (23) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202589.jpgsave_picture_202589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202589.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202595.jpgsave_picture_202595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202595.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpgsave_picture_202742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202783.jpgsave_picture_202783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202783.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242075.jpgsave_picture_242075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242075.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242076.jpgsave_picture_242076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242076.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242077.jpgsave_picture_242077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242077.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:B13C006B9EE00CAB6956CBBB2CB440E236044E34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242078.jpgsave_picture_242078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242078.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kong - Traders of Truth (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242080.jpgsave_picture_242080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242080.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ A Better Finder Rename 11 v11.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242081.jpgsave_picture_242081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242081.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242082.jpgsave_picture_242082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242082.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:80C35C7F14DA76748ED047B592F36D092F0EF14F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242083.jpgsave_picture_242083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242083.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Black Spiders - Black Spiders (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242084.jpgsave_picture_242084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242084.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tom Scott - Flashpoint (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242085.jpgsave_picture_242085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242085.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242086.jpgsave_picture_242086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242086.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Scorpions - Wind Of Change (The Collection) (2013) [FLAC|Lossless|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242088.jpgsave_picture_242088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242088.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 2 (2014) [AAC|~320 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242089.jpgsave_picture_242089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242089.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Altar Of I - Human Resources (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242090.jpgsave_picture_242090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242090.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ iThoughtsX 5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242091.jpgsave_picture_242091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242091.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242092.jpgsave_picture_242092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242092.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242093.jpgsave_picture_242093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242093.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Typora for Mac 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242094.jpgsave_picture_242094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242094.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D3E366E0E045934D88D12AD49398192082B74E64
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242096.jpgsave_picture_242096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242096.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Naughty Professor - In the Flesh (2016)[FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242097.jpgsave_picture_242097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242097.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Ellie Goulding - Higher Than Heaven (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242098.jpgsave_picture_242098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242098.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tang - Big Bright Empty Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242099.jpgsave_picture_242099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242099.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:E662D84A2852EAC634626E5FA6F634AE5FE4FC5B
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242100.jpgsave_picture_242100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242100.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Venom Inc. - There's Only Black (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242101.jpgsave_picture_242101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242101.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Antonio Carlos Jobim And Friends - Live at the Free Jazz Festival in Sao Paulo (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242102.jpgsave_picture_242102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242102.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:7D44267C6724F3A9D537D21B9142CF7F6F8CA2E1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242103.jpgsave_picture_242103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242103.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64710.jpgsave_picture_64710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64710.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:787422D4DE6F377C07A3DEF5B72DDD397873E38A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64711.jpgsave_picture_64711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64711.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B368645C93B7089291DAF6B3B21FFA635A158D0B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64712.jpgsave_picture_64712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64712.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:72D5272145E24C437E40049CFB2EEBA21FE167B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64713.jpgsave_picture_64713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64713.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64714.jpgsave_picture_64714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64714.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64715.jpgsave_picture_64715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64715.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powervi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64716.jpgsave_picture_64716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64716.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:94EB48588B97B26F3E8DFE633B6AF0C18BBE22FC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64717.jpgsave_picture_64717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64717.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:0498621E19A789E99D5E809DF3A2E3611E924278
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64718.jpgsave_picture_64718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64718.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:7DE82F55572415DEF3103C3B101B6CA67D525E55
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64719.jpgsave_picture_64719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64719.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64720.jpgsave_picture_64720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64720.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:763EABE2A867ACF0B9A8C5B50281F9C52D51F20A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64721.jpgsave_picture_64721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64721.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:768132BDA19054EE6C3EDB0438F3308CEDE97761
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64722.jpgsave_picture_64722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64722.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:58A674E65C4415CB50F7769B2C6ECE975FA0ADA9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64723.jpgsave_picture_64723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64723.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - 25 Years Of Anjuna Mixed By Bart Claessen (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64724.jpgsave_picture_64724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64724.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:587B2D61DC2E09BEB796D07894168539E5E814B4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64725.jpgsave_picture_64725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64725.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:5B88DB4352FAC94D743983F5E10EEF2408C6D537
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64726.jpgsave_picture_64726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64726.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:12F921C8ECF5823C2E3A8F1AF0AC10AF57947B5A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64727.jpgsave_picture_64727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64727.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:80207BD68B117369138EB469A1AE2FACF5D3414F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64728.jpgsave_picture_64728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64728.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64729.jpgsave_picture_64729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64729.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:8A474784A1372764745CB67C78ED7F970D715350
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64730.jpgsave_picture_64730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64730.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Enuff Z'Nuff - Xtra - Cherries (2025) [FLAC|Lossless|image + .cue] <Pop Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64731.jpgsave_picture_64731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64731.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3BEFF5322DEA99AC004CBBC12841CC1732828651
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64732.jpgsave_picture_64732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64732.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:8BAECBE2020A80F439A91470158BFFE95643D842
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64733.jpgsave_picture_64733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64733.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:610DF1D8BA17C53E3F9F343D3E3454C58603C0EE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64734.jpgsave_picture_64734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64734.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64735.jpgsave_picture_64735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64735.jpg" />
 </div>
 
 

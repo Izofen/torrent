@@ -6,7 +6,7 @@ PhotoInstrument 7.7 Build 1052 RePack by softwox [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206797.jpgsave_picture_206797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206797.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Photo Supreme 2023.2.0.4954 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206808.jpgsave_picture_206808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206808.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bricklink Studio 2.23.7 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207287.jpgsave_picture_207287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207287.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:917473BFDB97AEB517DA029DB0A317F7C07A3846
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207376.jpgsave_picture_207376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207376.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wise Video Converter Pro 2.3.1.66 (акция Comss)  [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207578.jpgsave_picture_207578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207578.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DrawingBotV3 Premium 1.5.3 Retail [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208058.jpgsave_picture_208058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208058.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Crescendo Music Notation Editor 9.62 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208308.jpgsave_picture_208308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208308.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ DrawingBotV3 Free 1.6.1 beta + Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208376.jpgsave_picture_208376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208376.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Mixxx 2.3.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208783.jpgsave_picture_208783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208783.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Adobe InCopy 2023 18.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209648.jpgsave_picture_209648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209648.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ MAGIX Samplitude Pro X8 Suite 19.0.0.23112 + Sam INI Tool 3.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209743.jpgsave_picture_209743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209743.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Serif Affinity Designer 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209992.jpgsave_picture_209992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209992.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Serif Affinity Photo 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210016.jpgsave_picture_210016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210016.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210024.jpgsave_picture_210024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210024.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Serif Affinity Publisher 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210040.jpgsave_picture_210040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210040.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211106.jpgsave_picture_211106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211106.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ JixiPix Chromatic Edges 1.0.26 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpgsave_picture_211950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Serif Affinity Photo 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpgsave_picture_212126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Serif Affinity Publisher 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpgsave_picture_212127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Serif Affinity Designer 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpgsave_picture_212128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Reaper 7.49 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212130.jpgsave_picture_212130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212130.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ GIMP 3.0.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpgsave_picture_212164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Winxvideo AI 4.5 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212186.jpgsave_picture_212186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212186.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Capture One 23 Pro/Enterprise 16.7.0.3201 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212188.jpgsave_picture_212188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212188.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Chaos Vantage 3.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212202.jpgsave_picture_212202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212202.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Adobe Photoshop 2025 26.11.1.5 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpgsave_picture_212233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpg" />
 </div>
 
 

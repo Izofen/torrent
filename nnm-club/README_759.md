@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20060.jpgsave_picture_20060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20060.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1FB3594A977E13D1146E02703DBCDE6B8C8C9F46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20061.jpgsave_picture_20061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20061.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20062.jpgsave_picture_20062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20062.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20063.jpgsave_picture_20063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20063.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9D781E493C4722D3D295E0186C24A4F2BA27EA58
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20064.jpgsave_picture_20064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20064.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C3D57A7C37E41501E7F365E9144536EA88CCFCA3
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20065.jpgsave_picture_20065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20065.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2D020DD544D90406303B75CA5A0A373CFDD1CC91
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20066.jpgsave_picture_20066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20066.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ WinMerge 2.16.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20067.jpgsave_picture_20067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20067.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20068.jpgsave_picture_20068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20068.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Balabolka 2.15.0.894 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20069.jpgsave_picture_20069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20069.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:6215CB0D6089CD478B82EAF31B0C635E14FB6E9B
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20070.jpgsave_picture_20070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20070.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Music News For Forum vol.078 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20071.jpgsave_picture_20071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20071.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CEC35CE3FB138484D32447F43FDAD5F857194D13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20072.jpgsave_picture_20072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20072.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20073.jpgsave_picture_20073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20073.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F35EA54D1C81A9CF2803925FF44A5A9D5E03200F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20074.jpgsave_picture_20074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20074.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A45866102EBB2D32AB78EB297B3EAC7A93DA866A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20075.jpgsave_picture_20075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20075.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 27 Public Beta 2 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20076.jpgsave_picture_20076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20076.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:11F4A41503C60C26199ECFA46AE8538C3453CEE4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20077.jpgsave_picture_20077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20077.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20078.jpgsave_picture_20078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20078.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ By Click Downloader Premium 2.4.22 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20079.jpgsave_picture_20079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20079.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:F4A83EAE60A8C9B3B3C254B4D177E47653FF9A4D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20080.jpgsave_picture_20080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20080.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4F923567913230A52C0936F744F9CAB0E0DC83C6
 >>Менты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20081.jpgsave_picture_20081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20081.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:FB2D38821DB71CFCD03023B0E36015DBEF4B6A5E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20082.jpgsave_picture_20082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20082.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20083.jpgsave_picture_20083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20083.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 Bonus Stage | Да благословя
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20084.jpgsave_picture_20084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20084.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:DC9E0FEDC46486F0A8E9A7AEE122BADD070CAE5E
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20085.jpgsave_picture_20085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20085.jpg" />
 </div>
 
 

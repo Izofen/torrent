@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149305.jpgsave_picture_149305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149305.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB3A6E6B7751122181C1171FFA5575D3D6A8D30A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149306.jpgsave_picture_149306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149306.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1C15436E621179A55BA1FD8FBEEDCAAD3F73F021
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149307.jpgsave_picture_149307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149307.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6B944B9310AC185297820F259755DF56F391EB2B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149309.jpgsave_picture_149309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149309.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2E697F7DA68AB7872E1EA07EE0CC6FAA34123B4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149310.jpgsave_picture_149310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149310.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0C705E03386C0B5F502B290ECF69EBC48EC443AF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149312.jpgsave_picture_149312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149312.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ F.E.A.R. [Platinum Collection] (2005-2007) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149313.jpgsave_picture_149313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149313.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:43647BC48D00B71A027CEEA6A70AF702E0FDAE3C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149315.jpgsave_picture_149315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149315.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:66D4BDD526ABE062A8068536ACCB0CB2BB2FF4B6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149316.jpgsave_picture_149316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149316.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A28D6391494818007618CF65592E805C40B5226E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149318.jpgsave_picture_149318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149318.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ IObit Smart Defrag Pro 6.6.5.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149319.jpgsave_picture_149319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149319.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5C7E70DA8113EF438487B4A10396B51FE9696C69
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149320.jpgsave_picture_149320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149320.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:702DEBCB22FA7D0A9D30006D84E4035587061D99
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149321.jpgsave_picture_149321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149321.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:95781D975BBC2D914563802BE1BC2D816129A276
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149322.jpgsave_picture_149322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149322.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FAB4B070E25A81898DD24996F903CDD2D561808D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149323.jpgsave_picture_149323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149323.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:84B7F4DF019E390BACDFB5E8C191B8360E938F1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149325.jpgsave_picture_149325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149325.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Microsoft Visual Studio 2019 Professional 16.8.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149326.jpgsave_picture_149326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149326.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:45AC3500984D727D1643E0637342F06E412F0EE3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149327.jpgsave_picture_149327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149327.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:0135157C6B7C11E2468E38FA0A0D016148A722E2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149328.jpgsave_picture_149328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149328.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FD7563A3DDF06577F4121CB3B781D606D3E4E359
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149329.jpgsave_picture_149329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149329.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D32817C584A808949C69DAF1AE33146E7DBD4AE5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149331.jpgsave_picture_149331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149331.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:7631B634AAF72C40F499D6E9DFC3E93505D58890
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149332.jpgsave_picture_149332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149332.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149334.jpgsave_picture_149334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149334.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ SPY - Jungle Mixtape (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149335.jpgsave_picture_149335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149335.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jethro Tull - Too Old To Rock 'N' Roll: Too Young To Die! (1976) 2CD Box Set, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149336.jpgsave_picture_149336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149336.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:E0663AB427964B16041F2D6D2CD9782FA91CF511
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149337.jpgsave_picture_149337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149337.jpg" />
 </div>
 
 

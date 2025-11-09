@@ -6,7 +6,7 @@ Endseeker - Mount Carcass (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240893.jpgsave_picture_240893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C357E44272EE0CABF96AEBD27E52BC8BC784E841
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240894.jpgsave_picture_240894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240894.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2BD84166496B8BF4A4421BE1A1F55E48DEF2461F
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240895.jpgsave_picture_240895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240895.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Soho Riot - Square One (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240896.jpgsave_picture_240896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240896.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ TechSmith Camtasia 22.1.0 (Build 39645) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240897.jpgsave_picture_240897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240897.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Valentina Studio Pro 11.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240898.jpgsave_picture_240898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240898.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Dynamite Disco (2023) [MP3|320 Kbps] <Disco, Instrumental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240899.jpgsave_picture_240899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240899.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240900.jpgsave_picture_240900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240900.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Wireshark 4.0.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240901.jpgsave_picture_240901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240901.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Heterogeneous Andead - Chaotic Fragments (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240902.jpgsave_picture_240902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240902.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:CB5AD0B1360D65298971E16B3A7336742020BD21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240903.jpgsave_picture_240903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240903.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ BetterZip 5 v5.1.1 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240904.jpgsave_picture_240904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240904.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Kings of Dance (2023) [MP3|320 Kbps] <Dancehall, Afro House, R&B, Reggae>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240905.jpgsave_picture_240905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240905.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:C7F5B0FA20549BC7050AAC74C02E626E2C6838EC
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240906.jpgsave_picture_240906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240906.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:3CCC1BB87F13B2A17A11927A8D1A27F39AE075B4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240907.jpgsave_picture_240907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240907.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:DB1A00A046A3CC77E3BFF84ADAC907536329A192
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240908.jpgsave_picture_240908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240908.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:233939AB8FF25DB4223235E32F223E1B1A900D1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240909.jpgsave_picture_240909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240909.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240910.jpgsave_picture_240910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240910.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:0613187C6E4A478DC2FA54A8824A56D2C6F85123
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240911.jpgsave_picture_240911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240911.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:B86A3179EF88D15EF86A48D7128C2841F1DCB008
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240912.jpgsave_picture_240912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240912.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Отдыхаем душой на Шансоне. Часть № 9 (2017) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240913.jpgsave_picture_240913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240913.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Chillin' on the Foreshore (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240914.jpgsave_picture_240914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240914.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Shadowspawn - The Biology Of Disbelief (2021) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240915.jpgsave_picture_240915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240915.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:F7CDB4D1041DBCB585E45CF840E47958BFE67853
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240916.jpgsave_picture_240916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240916.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Radiant Photo 1.1.1.266 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240917.jpgsave_picture_240917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240917.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:9F668120CE1C4088AE3C83260399FF3C14A63693
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240918.jpgsave_picture_240918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240918.jpg" />
 </div>
 
 

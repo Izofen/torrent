@@ -6,7 +6,7 @@ U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134330.jpgsave_picture_134330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134330.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - ROCK para el trabajo (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134332.jpgsave_picture_134332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134332.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Widespread Panic - Boone 1999 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134337.jpgsave_picture_134337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134337.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpgsave_picture_134343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpgsave_picture_134355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cranio - 11:11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134364.jpgsave_picture_134364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134364.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shadowspawn - Blasphemica (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134366.jpgsave_picture_134366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134366.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sacrifire - The Art of Decay (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134368.jpgsave_picture_134368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134368.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Scarblade - The Cosmic Wrath (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134377.jpgsave_picture_134377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134377.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Crotals - Conjure (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134385.jpgsave_picture_134385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134385.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134397.jpgsave_picture_134397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134397.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134522.jpgsave_picture_134522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134522.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ S.N.A.K.E. - Three (2023) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134547.jpgsave_picture_134547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134547.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134551.jpgsave_picture_134551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134551.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134577.jpgsave_picture_134577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134577.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Romeo's Daughter - Slipstream (2023) [FLAC|Lossless|image + .cue] <Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134583.jpgsave_picture_134583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134583.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Stay Away - СССР 2077 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134589.jpgsave_picture_134589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134589.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Dave & The Dudes - Down For The Count (2023) [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134591.jpgsave_picture_134591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134591.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ White Heat - Perfect Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134595.jpgsave_picture_134595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134595.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Nova Skellis - Life Amongst the Damned (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134604.jpgsave_picture_134604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134604.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:23A0F9FDFF78815BFEDA4DDFBE44CC4E9C017343
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpgsave_picture_134606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MindLight - N.A.M.I. (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134619.jpgsave_picture_134619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134619.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpgsave_picture_134623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Silverbones - Brethren Of The Coast (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134627.jpgsave_picture_134627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134627.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Of Darkness - Missa Tridentina (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134634.jpgsave_picture_134634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134634.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Sonus Mortis - Of Red Barren Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134645.jpgsave_picture_134645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134645.jpg" />
 </div>
 
 

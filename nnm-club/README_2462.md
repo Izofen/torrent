@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64762.jpgsave_picture_64762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64762.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Stoner Rock, Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64763.jpgsave_picture_64763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64763.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3942F192A2F3A5803EF37F2B0CBEF70F4AFEF044
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64764.jpgsave_picture_64764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64764.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6C62694EA5C116935F0168135D5D0BD3D01D60D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64765.jpgsave_picture_64765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64765.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64766.jpgsave_picture_64766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64766.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:7F49A3FAB49E9D0860CC51F1D888C5DCB7E809B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64767.jpgsave_picture_64767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64767.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5DE1DDCB7245F4DC6A8F559296B487E3D6600C0A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64768.jpgsave_picture_64768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64768.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:688F99E619A87C1B8D5856B6055CD990D0B6C940
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64769.jpgsave_picture_64769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64769.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpgsave_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64770.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64771.jpgsave_picture_64771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64771.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64772.jpgsave_picture_64772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64772.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:35CB3A50B9DCB45FA1E91302B250FE96E3C49D32
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64773.jpgsave_picture_64773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64773.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Robin Trower - Come And Find Me (2025) [FLAC|Lossless|tracks + .cue] <Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64774.jpgsave_picture_64774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64774.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:81CFA03D2EFFFB47B5EDB35893BAD567C458027C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64775.jpgsave_picture_64775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64775.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:FC5AB8C162AEF7AA08591F1D21343061ADF3989E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64776.jpgsave_picture_64776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64776.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:58079CC5924BF216135D5A07546340A47F8CA045
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64777.jpgsave_picture_64777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64777.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:58478F3D16AEB4197BD4BAC106C23009EF786D4A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64778.jpgsave_picture_64778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64778.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:70EB5345376F5B90CB94775AC88FDBD6F557C29D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64779.jpgsave_picture_64779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64779.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:63D97C55E29898F068265352CAA6E0B07D5455F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64780.jpgsave_picture_64780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64780.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:500F56ABBE4A36B207B00C1EA0CE487BE935E1FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64781.jpgsave_picture_64781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64781.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:09861F8E98AD1205A278D7E388868C6528F29D6F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64782.jpgsave_picture_64782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64782.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Green Lung - Woodland Rites (2019) 2020, Limited Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64783.jpgsave_picture_64783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64783.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64784.jpgsave_picture_64784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64784.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64785.jpgsave_picture_64785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64785.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64786.jpgsave_picture_64786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64786.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64787.jpgsave_picture_64787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64787.jpg" />
 </div>
 
 

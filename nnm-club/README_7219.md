@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246934.jpgsave_picture_246934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246934.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:24BBDB15A621A9E9D81419356EC4972A0038221B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246935.jpgsave_picture_246935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246935.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8039EBEB5813AB01F81795A4113EF9A3F038F916
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246936.jpgsave_picture_246936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246936.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AC8738FE4FAD7D07B4E5FE5AFD745038E96B5B3E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246937.jpgsave_picture_246937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246937.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0AD9287DBCEE3A849E984C750554E287A1EFDEE8
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246938.jpgsave_picture_246938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246938.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246939.jpgsave_picture_246939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246939.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Snappy Driver Installer 1.23.5 (R2305) | Драйверпаки 23.07.0 [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246940.jpgsave_picture_246940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246940.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7982273C9E8F60FF6730F493B6760ECF054E4771
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246941.jpgsave_picture_246941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246941.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:19418DC386873ADB3721B2B3531A5D148C6C5EBA
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246942.jpgsave_picture_246942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246942.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:5BC70C8A01ABDCCEF4C5FF6710D672022D0D290E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246943.jpgsave_picture_246943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246943.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (07.2023) [Ru/En]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246945.jpgsave_picture_246945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246945.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7DA78A4D4193070441FE70289E07378CAD36E5FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246946.jpgsave_picture_246946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246946.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E328A5C633912A7A65ABF8391E55BBD73E13C1D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246947.jpgsave_picture_246947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246947.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2910E99C29C0555699A04B52AEB313D1D54E14A9
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246948.jpgsave_picture_246948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246948.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:31C8DF771579F0C2095CC49F9F6704DA4986164E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246949.jpgsave_picture_246949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246949.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:63F92DB1E71C5B12E53D181DEC30B19F01B1AB42
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246951.jpgsave_picture_246951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246951.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246952.jpgsave_picture_246952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ GPS АнтиРадар v37.0  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246953.jpgsave_picture_246953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246953.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C4CF45E744D24A0F0406455EBE4BBA17253EF56A
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246954.jpgsave_picture_246954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246954.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:16B9CAC68EBCB98BAC5E0EDA8DD9DDD44422555D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246955.jpgsave_picture_246955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246955.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpgsave_picture_246956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:FDFDBA4498DA3280836B70EAA3B685E0440AFC3D
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246957.jpgsave_picture_246957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246957.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Windows 7 SP1 6.1 (Build 7601.26623) (15.07.2023) (13in2) x86/x64 by Sergei Stre
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246958.jpgsave_picture_246958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246958.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:511A4E12C5FB7A3A8D909B1286E9998E2131A17B
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246959.jpgsave_picture_246959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246959.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:534AAC78F0FDC6A4F957120394F6C948DB6EE086
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246960.jpgsave_picture_246960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246960.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:670DB674FFED3F2A6DD53B0004BC90DD953A9724
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246961.jpgsave_picture_246961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246961.jpg" />
 </div>
 
 

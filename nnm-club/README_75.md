@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1987.jpgsave_picture_1987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1987.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1988.jpgsave_picture_1988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1988.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Paradise Lost - Ascension (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1989.jpgsave_picture_1989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1989.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Magic Deep-House, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1990.jpgsave_picture_1990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1990.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:EAE545BE7A2BD308436A7F2E3338D531C5E88EF4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1991.jpgsave_picture_1991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1991.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Aiseesoft Screen Recorder 3.1.36 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1992.jpgsave_picture_1992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1992.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Chaos Vantage 3.0.1 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1993.jpgsave_picture_1993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1993.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:78AF3284E31972CDA0CDB7824F142488607E2BF4
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1994.jpgsave_picture_1994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1994.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1995.jpgsave_picture_1995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1995.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1996.jpgsave_picture_1996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1996.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:7E27594D39314719877D6AB0147EC522E9159C31
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1997.jpgsave_picture_1997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1997.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:C84D56404008D7E1298520F898CE8F0A949EFFB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1998.jpgsave_picture_1998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1998.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:14F3BA97D55998B2FF67F9B161C3FFC8786FC21C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1999.jpgsave_picture_1999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1999.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2000.jpgsave_picture_2000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2000.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2001.jpgsave_picture_2001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2001.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:17BF572098D7F7E72CEEF721B00380B5E94F97FD
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2002.jpgsave_picture_2002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2002.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C62FFB43DA6D45A17A4603102D6438A448FFF728
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2003.jpgsave_picture_2003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2003.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:6E27611F8BF4F2E792CAB68273FD3640E536D9EE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2004.jpgsave_picture_2004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2004.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FAFF16A5A140752DA6E1731BDB50B41858216824
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2005.jpgsave_picture_2005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2005.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:1D46B18938FA8F3B4A76B3943A8A613ACD8A053B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2006.jpgsave_picture_2006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2006.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2007.jpgsave_picture_2007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2007.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Xezzo - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2008.jpgsave_picture_2008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2008.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Best of Vocal Trance 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2009.jpgsave_picture_2009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2009.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:903FE583C0F6D7172FA6A281968B7DC44FE54AF8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2010.jpgsave_picture_2010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2010.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:22D0389DD8CD32775180C89A3A5EC4026AD76584
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2011.jpgsave_picture_2011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2011.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:B859D63089478207A6AA746FF382110669645AB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2012.jpgsave_picture_2012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2012.jpg" />
 </div>
 
 

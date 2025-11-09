@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140519.jpgsave_picture_140519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C13EDD509A26744771D97FEBC1553B7729FE168D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140520.jpgsave_picture_140520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140520.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140521.jpgsave_picture_140521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140521.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140523.jpgsave_picture_140523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140523.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140524.jpgsave_picture_140524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140524.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A97F56B5A8C96789D0FA33BD5D0AC196D709FE6D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140526.jpgsave_picture_140526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140526.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140527.jpgsave_picture_140527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140527.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4FF29FE39E34D6749494D1BDF8DF50E138E084FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140528.jpgsave_picture_140528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140528.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9F4877E564EB1B820F5452C5E1226566BDF5E1E3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140529.jpgsave_picture_140529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140529.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:DA29191D7D7B374D09BEC840F4FBB2AB63E0F824
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140530.jpgsave_picture_140530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140530.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140531.jpgsave_picture_140531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140531.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140532.jpgsave_picture_140532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140532.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ SQLiteFlow 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140533.jpgsave_picture_140533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140533.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:5A53D6133FCC6B839A40C7820D5190332AA4F611
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140535.jpgsave_picture_140535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140535.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140536.jpgsave_picture_140536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140536.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140537.jpgsave_picture_140537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140537.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:999AFAD6724824029261CFC1755D803E0A488DEF
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140538.jpgsave_picture_140538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140538.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F2F4AB81E3B4DB91AABD08468E8B0F6389589102
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140539.jpgsave_picture_140539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140539.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FAD0C4105DFE077812782B8109435CD0EF081669
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140541.jpgsave_picture_140541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140541.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:22D24D295895ED168F8256106AF51CC6813F5B1E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140543.jpgsave_picture_140543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140543.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140544.jpgsave_picture_140544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C23F62C5AC272DF38A22FB5168FC22CB378A02FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140545.jpgsave_picture_140545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140545.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Troglodyte - Don't Go In The Woods (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140546.jpgsave_picture_140546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140546.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Timemator 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140547.jpgsave_picture_140547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140547.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:DA909C416CF24B87DCEC03BF220FDBDF7C151347
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140548.jpgsave_picture_140548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140548.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:43F8F2CB5226E6D5AFE6877566B004EE175078E7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140549.jpgsave_picture_140549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140549.jpg" />
 </div>
 
 

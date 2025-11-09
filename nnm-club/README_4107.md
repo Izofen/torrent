@@ -6,7 +6,7 @@ VA - With Us or Against Us (1995) Compilation, Napalm Records [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127357.jpgsave_picture_127357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Consume - Genetic Waste (2023) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127358.jpgsave_picture_127358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127358.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5A7DFA32993E561C1C180921AF21E11BA3C36A51
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127359.jpgsave_picture_127359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127359.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127360.jpgsave_picture_127360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127360.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:43254D845E4C9D99F73400C9F6A6DFBDCDB2374B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127361.jpgsave_picture_127361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127361.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:62D612E63091445E8A05359426E7B306C118020E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127362.jpgsave_picture_127362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127362.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:C327BC55238BA60AE3D4DC355758545B0F0AD7DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127363.jpgsave_picture_127363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127363.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Rosie Darling - Lanterns (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127364.jpgsave_picture_127364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127364.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C91E393FEC110A04685F0A2312781467EF1EFCC5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127365.jpgsave_picture_127365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127365.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lissa - Гости без будущего (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127366.jpgsave_picture_127366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127366.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:A998CB94DF7206062AF779FC15CB980F2BFBC07C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127367.jpgsave_picture_127367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127367.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:CC6017DFF772C88F1144723B89854DD6B2601512
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127368.jpgsave_picture_127368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127368.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NeoMaster - Марафон (2006) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127369.jpgsave_picture_127369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127369.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Valentino Francavilla - Midnight Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127370.jpgsave_picture_127370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127370.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ahmad Jamal - Four Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127371.jpgsave_picture_127371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127371.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Art Pepper - Tokyo Debut (1977) 1995, Fantasy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127372.jpgsave_picture_127372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127372.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Avenged Sevenfold - Hail To The King (2013) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127373.jpgsave_picture_127373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127373.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:EF8B95F9E044605E005C6CEFF7FC1F22C097145D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127374.jpgsave_picture_127374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127374.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:1946773D979BE7F0A23BB3F00A29A18265801766
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127375.jpgsave_picture_127375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127375.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:83A53C0B84413A14549D91C548C36BB1D9E6B55A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127376.jpgsave_picture_127376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127376.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127377.jpgsave_picture_127377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127377.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127378.jpgsave_picture_127378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127378.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127379.jpgsave_picture_127379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127379.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:BF06DDA1056DFE4E509032DEEF4577B82DF20B05
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127380.jpgsave_picture_127380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127380.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127381.jpgsave_picture_127381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127381.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:8140C9E77193547556EC8699D347B9293345005C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127382.jpgsave_picture_127382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127382.jpg" />
 </div>
 
 

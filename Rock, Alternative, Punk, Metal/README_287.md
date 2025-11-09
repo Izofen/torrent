@@ -6,7 +6,7 @@ The Haxans - The Dead And Restless (2023) [MP3|320 Kbps] <Alternative Rock, Goth
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172103.jpgsave_picture_172103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172103.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LASCALA - LINEA (2023) Deluxe Edition [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172109.jpgsave_picture_172109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172109.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5A72244128243E7982FB254C7F9A5689A43FCEC8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172112.jpgsave_picture_172112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172112.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5D0318AE96A54312291CCF5DEF3BE444A4B2C376
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172117.jpgsave_picture_172117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172117.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:2F85CAE60C29F2AD09ED513B3DDDCA27A47736C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpgsave_picture_172125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|image + .cue] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpgsave_picture_172131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blink-182 - One More Time... (2023) [MP3|320 Kbps] <Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172228.jpgsave_picture_172228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172228.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172263.jpgsave_picture_172263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chemical Sweet Kid - Kiss The Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172292.jpgsave_picture_172292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172292.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Arena - Lifian Tour MMXXII (2023) [MP3|320 Kbps] <Progressive Metal, Neo Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172319.jpgsave_picture_172319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172319.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172324.jpgsave_picture_172324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172324.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Who - Live At Leeds (1970) Deluxe Edition, 2014, Geffen [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172338.jpgsave_picture_172338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172338.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Raven Tide - Eleven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172348.jpgsave_picture_172348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172348.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172355.jpgsave_picture_172355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172355.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Crow'near - Full Moon Fever. Anniversary Edition (1992) Compilation, Reissue, Re
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172356.jpgsave_picture_172356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172356.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172359.jpgsave_picture_172359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172359.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172362.jpgsave_picture_172362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172362.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Saclas - Achamoth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172367.jpgsave_picture_172367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172367.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ravendusk - Shadowcast (2001) [FLAC|Lossless|image + .cue] <Symphonic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172368.jpgsave_picture_172368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172368.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172447.jpgsave_picture_172447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172447.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Amorphis - Queen Of Time - Live At Tavastia (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172487.jpgsave_picture_172487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172487.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Psychework - The Dragon's Year (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172500.jpgsave_picture_172500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172500.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172504.jpgsave_picture_172504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172504.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Somnus Aeternus - A Nightmare Lit by a Dying Star (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172507.jpgsave_picture_172507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172507.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Psygnosis - Mercury (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172516.jpgsave_picture_172516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172516.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Psychework - Karelian Hills (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172522.jpgsave_picture_172522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172522.jpg" />
 </div>
 
 

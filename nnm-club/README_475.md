@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12594.jpgsave_picture_12594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12594.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12595.jpgsave_picture_12595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12595.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12596.jpgsave_picture_12596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12596.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E3443615F7A107FE1D79A28503D35D713B1079EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12597.jpgsave_picture_12597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12597.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Deep House Summer Mix (2025) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12598.jpgsave_picture_12598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12598.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8AFCF7A1F3E21BA0D6F3152A1D1CDD3A6CA7D668
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12599.jpgsave_picture_12599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12599.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BE78EE68BA9BBD257896AF63488E749E1A43936E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12600.jpgsave_picture_12600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12600.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpgsave_picture_12601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12602.jpgsave_picture_12602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12602.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F11A194D1A8803866C0C4FB8FC8B4E0DECE22DBA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12603.jpgsave_picture_12603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12603.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12604.jpgsave_picture_12604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12604.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Windows 10 Pro 22H2 19045.5965 x64 by SanLex [Lightweight] [Ru-En] (2025.07.04)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12605.jpgsave_picture_12605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12605.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12606.jpgsave_picture_12606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12606.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12607.jpgsave_picture_12607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12607.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:73B341F5F2FB05C365868B65AFA49A17B65DCB7C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12608.jpgsave_picture_12608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12608.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B225E21B47E1A8A4B132D8F97EEB865B2CEBEFD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12609.jpgsave_picture_12609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12609.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12610.jpgsave_picture_12610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12610.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12611.jpgsave_picture_12611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12611.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:327A1E0A09FA42FFE32668CA1CEEFC60C3467EDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12612.jpgsave_picture_12612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12612.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12613.jpgsave_picture_12613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12613.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12614.jpgsave_picture_12614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12614.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Понемногу отовсюду by Yuridar #А-Я (1986-2024) Compilati
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12615.jpgsave_picture_12615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12615.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C9242B8586C81409718176768BD4D75CC1ED3B90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12616.jpgsave_picture_12616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12616.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Spell Brigade (2024) [Ru/Multi] (0.11.0.4764) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12617.jpgsave_picture_12617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12617.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12618.jpgsave_picture_12618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12618.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D360AEA6B91AC289A7C444A2A2BCE4026C89146E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12619.jpgsave_picture_12619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12619.jpg" />
 </div>
 
 

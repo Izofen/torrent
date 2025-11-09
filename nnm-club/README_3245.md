@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104731.jpgsave_picture_104731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104731.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0409) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104732.jpgsave_picture_104732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104732.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MuseScore 4.4.1 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104733.jpgsave_picture_104733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104733.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:83923A522D91848DE17F820628F12B6369B47337
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104734.jpgsave_picture_104734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104734.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104735.jpgsave_picture_104735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104735.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104736.jpgsave_picture_104736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104736.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104737.jpgsave_picture_104737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104737.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lyran Lions - Chronicles of the Traveler (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104738.jpgsave_picture_104738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104738.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:0E17F164C948D52E91D23C4D2E6EE6CA739712A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104739.jpgsave_picture_104739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104739.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Jab Aggressors - Silent Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104740.jpgsave_picture_104740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104740.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:CC058AE82BE374169F7CF9DBFEC955962FA52512
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104741.jpgsave_picture_104741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104741.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Boguslaw Balcerak's Crylord - Endless Life (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104742.jpgsave_picture_104742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104742.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ SonicFlame - FLAME OF LIFE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104743.jpgsave_picture_104743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104743.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wheel - Hip Eponymous (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104744.jpgsave_picture_104744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104744.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3A621DFC1153393DB3CE988D6CDE1040F656A349
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104745.jpgsave_picture_104745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104745.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Powerdong - The Divine Phallusy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104746.jpgsave_picture_104746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104746.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104747.jpgsave_picture_104747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104747.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104748.jpgsave_picture_104748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104748.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:B65E433DE271CF2562310C7FAC22A3719DA2A538
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104749.jpgsave_picture_104749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104749.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Lyran Lions - Star Rider (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power, Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104750.jpgsave_picture_104750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104750.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104751.jpgsave_picture_104751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104751.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104752.jpgsave_picture_104752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104752.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104753.jpgsave_picture_104753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104753.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Process Lasso Pro 15.0.0.50 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104754.jpgsave_picture_104754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104754.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104755.jpgsave_picture_104755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104755.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:776EDDAD8149EBEDEFFD2956AEA6D16F301E7BA3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104756.jpgsave_picture_104756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104756.jpg" />
 </div>
 
 

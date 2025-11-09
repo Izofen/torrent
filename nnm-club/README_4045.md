@@ -6,7 +6,7 @@ Hekz - Terra Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpgsave_picture_125738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6F3473E96457EC7A7021F8047F3E3B83016DBC1F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125739.jpgsave_picture_125739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125739.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:917523CAA89319EDE147828313735D51D33CCFE4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125740.jpgsave_picture_125740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125740.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:48D4D26FAE39BB09254CAEA2A6FF13CE32C2DB45
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125741.jpgsave_picture_125741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125741.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:53CE4571E1961074D45090A0ED2C83ABA79946EC
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125742.jpgsave_picture_125742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125742.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5EC6FA006953CD1E415BD13100A88BCC5EF30822
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125743.jpgsave_picture_125743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125743.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Vivaldi 6.5.3206.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125744.jpgsave_picture_125744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125744.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125745.jpgsave_picture_125745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125745.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:DC304BC1FEA57F11361469BE4DF39E0968AC2E33
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125746.jpgsave_picture_125746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125746.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:6B8AE826D1DAC23B43361FB32E78E638382C395A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125747.jpgsave_picture_125747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125747.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9AC44A5637E830871A893218089E2222576A90D7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125748.jpgsave_picture_125748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125748.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:3D36618FF72F1AFD3E52D9333BD55309C4F8863F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125749.jpgsave_picture_125749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125749.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:2858F0FAD12700715F1B68C496E517F71E55E64F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125750.jpgsave_picture_125750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125750.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:7DC846CBA1422F385074E253CD86BB21C17B325E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125751.jpgsave_picture_125751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125751.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:90EDCD01BA066FB356DA9B0826A04C51502B4CAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125752.jpgsave_picture_125752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125752.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:33D845EC33EEA1AB23A769601FCFFFBDEB61244A
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125753.jpgsave_picture_125753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125753.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:BF83E91DDE96EF35889C495FBE8A53D53489EB29
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125754.jpgsave_picture_125754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125754.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125755.jpgsave_picture_125755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125755.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:603BC5B326E7767A1C3C694FAD8F135EECC531AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125756.jpgsave_picture_125756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125756.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:7251AC387063C55315F2099F0C0358F35C15286D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125757.jpgsave_picture_125757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125757.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:43EE30AFE26446459E4090C9C396840C49A68F11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125758.jpgsave_picture_125758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125758.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:8B18884D08485E204CEC347E4D7F8E864C2A597C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125759.jpgsave_picture_125759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125759.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Misuria - Saint Thomas Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125760.jpgsave_picture_125760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125760.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125762.jpgsave_picture_125762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125762.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Asya-Design, Александра Бавыкина | Курс по 3D визуа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125763.jpgsave_picture_125763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125763.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125764.jpgsave_picture_125764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125764.jpg" />
 </div>
 
 

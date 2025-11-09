@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204239.jpgsave_picture_204239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F66346D216E497D451B65772D0CF4E94B402913D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204240.jpgsave_picture_204240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204240.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lyn 2.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204241.jpgsave_picture_204241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204241.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Morpheus Project By Mustafa Khetty - On The Edge (2023) [FLAC|24/44.1|tracks|WEB
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204242.jpgsave_picture_204242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204242.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204243.jpgsave_picture_204243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204243.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204244.jpgsave_picture_204244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204244.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Casanovas - Backseat Rhythms (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204245.jpgsave_picture_204245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204245.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:9CF971CBCF6F79A080185AC01310784D36773A5A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204246.jpgsave_picture_204246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204246.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Vandenberg - Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204247.jpgsave_picture_204247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204247.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Hot Milk - A Call To The Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Fe
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204248.jpgsave_picture_204248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204248.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Topaz Photo AI 1.1.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204249.jpgsave_picture_204249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204249.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:FDB3AAE3D99349DB058DA00707E154662DEB8701
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204250.jpgsave_picture_204250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204250.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ The Dangerous Summer - Coming Home (2022) Deluxe Edition, 2023, Relapse Records 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204251.jpgsave_picture_204251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204251.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.82 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204252.jpgsave_picture_204252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204252.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204253.jpgsave_picture_204253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204253.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Concrete Castles - Brand New Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204254.jpgsave_picture_204254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204254.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C3695B646EFDBCD390F85D1C8C0DEFB6939DFE48
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204255.jpgsave_picture_204255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204255.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:CEC3F6156DDDB002026554E9689A62BE89771F9C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204256.jpgsave_picture_204256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204256.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ FaceLab v2.19.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204257.jpgsave_picture_204257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204257.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204258.jpgsave_picture_204258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204258.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Serpent Bite - Army of Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204259.jpgsave_picture_204259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204259.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Word Alive - Hard Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204260.jpgsave_picture_204260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204260.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:8FC89D239EFEE384773BB641E415CDAE12CD1CFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204261.jpgsave_picture_204261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204261.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:0F234BC169D4BB6595D768EF8EBE9AD23EC6F5B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204262.jpgsave_picture_204262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204262.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:137C751A69C1A64AB485A8F8289B8CBB226D8351
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204263.jpgsave_picture_204263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204263.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Seraina Telli - Addicted To Color (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204264.jpgsave_picture_204264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204264.jpg" />
 </div>
 
 

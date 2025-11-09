@@ -6,7 +6,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232539.jpgsave_picture_232539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232539.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232541.jpgsave_picture_232541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232541.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iON: Internet Status 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232542.jpgsave_picture_232542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232542.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232544.jpgsave_picture_232544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232544.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:282478BDB9046F32CE1BFACF6E84B2B5542EF345
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232545.jpgsave_picture_232545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232545.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232547.jpgsave_picture_232547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232547.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:487A0A8F0B29434DA92244AF60D869691136FC2D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232550.jpgsave_picture_232550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232550.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ The Animal State - 3 Albums (2020-2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232551.jpgsave_picture_232551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232551.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:60FC6F3B9773090BE85273512EAEDC81EF5F9AD9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232552.jpgsave_picture_232552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232552.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anima Tempo - Chaos Paradox (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232554.jpgsave_picture_232554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232554.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Johnny The Boy - You (2023) [MP3|320 Kbps] <Blackened Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232555.jpgsave_picture_232555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232555.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ RTG. Курская магнитная аномалия (2014) HDTV [H.264/1080i
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232557.jpgsave_picture_232557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232557.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Snowblind - Behind The Snow (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232558.jpgsave_picture_232558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232558.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Bud Shank - The Pacific Jazz Studio Sessions (1956 - 1961) 5CD, 1998, Mosaic Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232561.jpgsave_picture_232561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232561.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Monje - Culto al Fin de los Tiempos (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232562.jpgsave_picture_232562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232562.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mozilla Thunderbird 102.11.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232563.jpgsave_picture_232563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232563.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232566.jpgsave_picture_232566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232566.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sulfure - Anthropocene (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232567.jpgsave_picture_232567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232567.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232569.jpgsave_picture_232569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232569.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ File Juicer 4.98 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232571.jpgsave_picture_232571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232571.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232573.jpgsave_picture_232573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232573.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Structure - Structure (2022) EP, Remastered [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232574.jpgsave_picture_232574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232574.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:95B337C5324157246A497DDB70F6398AF66FF011
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232575.jpgsave_picture_232575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232575.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:5940A5EDF9DE824B419A66790BBEFE7230409245
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232577.jpgsave_picture_232577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232577.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232580.jpgsave_picture_232580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232580.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ A Gram Trip - Long Overdue (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232582.jpgsave_picture_232582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232582.jpg" />
 </div>
 
 

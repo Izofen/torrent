@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241520.jpgsave_picture_241520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [MP3|320 Kbps] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241521.jpgsave_picture_241521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241521.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3D16A739218FB913B4868A6AC8A5C8A51FE2DC0C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241522.jpgsave_picture_241522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241522.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ADEBFCA4F635EEA646DD855684670B481800A3EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241523.jpgsave_picture_241523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241523.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241524.jpgsave_picture_241524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241524.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241525.jpgsave_picture_241525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241525.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241526.jpgsave_picture_241526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241526.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:75037E032C622C251F7B3477FE2E300BA475579A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241527.jpgsave_picture_241527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241527.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hit The Ground Runnin' - Sudden Impact (1989) 2xCD, Reissue, Remastered, 2022, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241528.jpgsave_picture_241528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241528.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpgsave_picture_241529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241530.jpgsave_picture_241530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241530.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Super PhotoCut Pro 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241531.jpgsave_picture_241531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241531.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:D4A0AA6377D1C9D498EBCD432B6B94E039FFBB39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241532.jpgsave_picture_241532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241532.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:21EE6B12B4056E733DA62EDFD5649EF022E3B772
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241533.jpgsave_picture_241533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241533.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:197323D6193746F8A67A1DA9E01C2348CFAB4647
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241534.jpgsave_picture_241534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241534.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:81C92F91A68A5B4B0102D185C8918117F12E0FB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241535.jpgsave_picture_241535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241535.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:81C92F91A68A5B4B0102D185C8918117F12E0FB5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241536.jpgsave_picture_241536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241536.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241537.jpgsave_picture_241537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241537.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Rezn - Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241538.jpgsave_picture_241538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241538.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A52039580711EFAA48DB2EDE048A1B7874C2A8DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241539.jpgsave_picture_241539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241539.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:CE29ECFCB0E4B970BF0C50B3C3AC169E36C240FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241540.jpgsave_picture_241540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241540.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:C06B5D9BAA3A0D9E48F87F326F7B5CE82495451D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241541.jpgsave_picture_241541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241541.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Drum Night DJ Set (2020) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241542.jpgsave_picture_241542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241542.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:F8FA192FDC62478C9BEA0D0A3A29E867416C38B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241543.jpgsave_picture_241543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241543.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:858BCB380BDBD1A6BA786B5FD01D3671164B7348
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241544.jpgsave_picture_241544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241544.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Murderbait - Nostalgia Like Cancer (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241545.jpgsave_picture_241545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241545.jpg" />
 </div>
 
 

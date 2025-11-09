@@ -6,7 +6,7 @@ Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpgsave_picture_172120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172121.jpgsave_picture_172121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172121.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinCatalog 2024.3.2.1018 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172122.jpgsave_picture_172122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172122.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - 10 Years Of Suanda Music - Mixed by FEEL (2023) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172123.jpgsave_picture_172123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172123.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172124.jpgsave_picture_172124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172124.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:57831353B5A1E1EDB74AB679BCB3D1B775D62639
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpgsave_picture_172125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:E19DE4023072BFDE07A1D1ED456F561DA3095C97
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172126.jpgsave_picture_172126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172126.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - 30 Sophisticated, Elegant, Inviting and Harmonious Tunes to Relax (2023) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172128.jpgsave_picture_172128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172128.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:3CE95AC64B417F14A08F8A8B288994ABE7F644D6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172129.jpgsave_picture_172129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172129.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:50B9E56EEB5B476CFD7263A9F2938BC429DA2EAF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172130.jpgsave_picture_172130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172130.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|image + .cue] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpgsave_picture_172131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Project Office X Pro 1.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172132.jpgsave_picture_172132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172132.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Apeaksoft Screen Recorder for Mac 2.1.38 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172133.jpgsave_picture_172133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172133.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Movie Thumbnails Maker 4.4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172134.jpgsave_picture_172134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172134.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ DockView 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172135.jpgsave_picture_172135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172135.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172136.jpgsave_picture_172136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172136.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:16B1936BE9F6882F6CB3666BC3A8D11F85BDDC57
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172137.jpgsave_picture_172137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172137.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sublime Text 4.0 Build 4159 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172138.jpgsave_picture_172138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172138.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ SpamSieve 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172139.jpgsave_picture_172139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172139.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:EADCC24A28D9D4DDCD87777854F32A07BEA461C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172140.jpgsave_picture_172140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172140.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressiv
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpgsave_picture_172141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ EazyDraw 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172142.jpgsave_picture_172142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172142.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Debit & Credit Premium 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172143.jpgsave_picture_172143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172143.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Folder-Factory 7.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172144.jpgsave_picture_172144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172144.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kenny Drew Trio - At The Brewhouse (1992) Storyville [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172145.jpgsave_picture_172145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172145.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ SnippetsLab 2.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172146.jpgsave_picture_172146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172146.jpg" />
 </div>
 
 

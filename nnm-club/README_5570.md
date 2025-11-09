@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171808.jpgsave_picture_171808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171808.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bookmanager modelplusmodel 2.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171809.jpgsave_picture_171809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171809.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3784C21557921927E175EB82706A3973E239C945
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171810.jpgsave_picture_171810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171810.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171811.jpgsave_picture_171811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171811.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0098A79B10EC71126DE455839D4DA0502ADD52B9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171812.jpgsave_picture_171812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171812.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Red Dead Redemption (2023) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171813.jpgsave_picture_171813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171813.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Space Wreck (2023) [En] (1.3.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpgsave_picture_171814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171815.jpgsave_picture_171815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171815.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171816.jpgsave_picture_171816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171816.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:ABDA78301A9AAFF04FB218D6FD3F68F391AD2870
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171817.jpgsave_picture_171817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E3D20AEDCB07DF14D8B0C0AF4567E6851B0E5CC6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171818.jpgsave_picture_171818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171818.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F937BC4FFCCC4D1919DF4F4AE1710270CDD05E72
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171819.jpgsave_picture_171819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171819.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:701B57FA99C2F804EF454A79BDB2E33B4B53F5E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171820.jpgsave_picture_171820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171820.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4F07DDAB8C10E0F9A6EA412BE23A1DB4C20A3439
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171821.jpgsave_picture_171821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171821.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:0114D6B7979E6EE2912CFF7238E565335F3C5E78
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171822.jpgsave_picture_171822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171822.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:AE25FEADED8961AD99ECFBC97A2148ED719B9ABE
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171823.jpgsave_picture_171823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171823.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:AE25FEADED8961AD99ECFBC97A2148ED719B9ABE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171824.jpgsave_picture_171824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171824.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:34E54C85AAD03689DF92045A669B220E024FEE85
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171825.jpgsave_picture_171825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171825.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:656A4036506918DA4A9948C47868443558A47DD9
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171826.jpgsave_picture_171826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171826.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:2F138FA82DBEA7DCC797AC2E2A774D77C9552757
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171827.jpgsave_picture_171827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171827.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8E3719889A56299711D38FA7EDA3392D4A6E2F09
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171828.jpgsave_picture_171828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171828.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C37315BFE90102861686DD029B7450BB290FF5A0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171829.jpgsave_picture_171829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171829.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C0B09103C7147105F139739558B7FF66F447EA72
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171830.jpgsave_picture_171830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171830.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171831.jpgsave_picture_171831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171831.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:AF1161BCE9B11D52417A0E73F0C6600E6A9AA96D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171832.jpgsave_picture_171832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171832.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:2167CF7D5B7476ACE34F2D3B3F8C550B361A2DD5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171833.jpgsave_picture_171833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171833.jpg" />
 </div>
 
 

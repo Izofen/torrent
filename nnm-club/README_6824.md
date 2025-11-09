@@ -6,7 +6,7 @@ PDF Expert 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234591.jpgsave_picture_234591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234591.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F46D7FF2AF358955D977FAA2BB616BE2CCADE001
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234592.jpgsave_picture_234592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234592.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Videoleap by Lightricks 1.5.12 Mod by PieMods, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234593.jpgsave_picture_234593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234593.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AAA719DBDD291EA596FEC9128B79D8B2E177E28B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234594.jpgsave_picture_234594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234594.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Slidepad 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234595.jpgsave_picture_234595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234595.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1EA06F41A0F1B4304100CEB8FF67CA49CE35221E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234596.jpgsave_picture_234596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234596.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5B577DB39A98640E326A7C524EBEA3775E3ED20F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234597.jpgsave_picture_234597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234597.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234598.jpgsave_picture_234598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234598.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8B3CE1125C3F226A2F82518FD316F5DC37B65655
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234599.jpgsave_picture_234599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234599.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.2075]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234600.jpgsave_picture_234600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234600.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234601.jpgsave_picture_234601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234601.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234602.jpgsave_picture_234602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234602.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Purveyor Of Chaos - Purveyor Of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234603.jpgsave_picture_234603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234603.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:89E5D11D075D22E42EAA15F3C2DB0289EA92967B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234604.jpgsave_picture_234604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234604.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:4EF86E875FAF661AD00693567FB95F18FD6DAB83
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234605.jpgsave_picture_234605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234605.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ FSNotes 6.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234606.jpgsave_picture_234606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234606.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Alchemy Fire - Alchemy Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234607.jpgsave_picture_234607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234607.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ RTG. Малые музеи Петербурга. Искусство веера (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234608.jpgsave_picture_234608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234608.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:45E37F6B79D8DBA3E1D35A10FAFB9221DF155D5B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234609.jpgsave_picture_234609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234609.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F82CB8A8645697233064FA36C35955515161C366
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234610.jpgsave_picture_234610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234610.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:50F9661F12B63853BEF6B0FC8F8D32618AEF2EE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234611.jpgsave_picture_234611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234611.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:D0DBE670AE856DADE83BA09C3161D2E64DA3950E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234612.jpgsave_picture_234612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234612.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234613.jpgsave_picture_234613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234613.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cooling Tower - Saint Vitus (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234614.jpgsave_picture_234614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234614.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:F43BF9D50BA817DF6B7F328D143B85EFC6128A6B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234615.jpgsave_picture_234615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234615.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234616.jpgsave_picture_234616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234616.jpg" />
 </div>
 
 

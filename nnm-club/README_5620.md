@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173112.jpgsave_picture_173112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173112.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ David Matuszek | Quick Java (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173113.jpgsave_picture_173113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173113.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E5F4267BDA27BAE53845373902A22512CA1DEE85
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173114.jpgsave_picture_173114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173114.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E5F4267BDA27BAE53845373902A22512CA1DEE85
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173115.jpgsave_picture_173115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173115.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Morten Barklund, Azat Mardan | React Quickly, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173116.jpgsave_picture_173116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173116.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:EDD29D08188E43CA0A60C8008C87A1678DF47EE0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173117.jpgsave_picture_173117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173117.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Irina Dominte | Web API Development for the Absolute Beginner (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173118.jpgsave_picture_173118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173118.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:24B91AADA30759CBB18CF8BA2EDEBC50E203A4FE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173119.jpgsave_picture_173119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173119.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:507BC9705E051DE6F879B6B12CD7579FA56DCCB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173120.jpgsave_picture_173120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173120.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Alfonso Antolinez Garcia | Hands-on Guide to Apache Spark 3 (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173121.jpgsave_picture_173121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173121.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:01B97A7756160F7B0123D18466516CC3D6DDA33E
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173122.jpgsave_picture_173122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173122.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Bridge 2024 v.14.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173123.jpgsave_picture_173123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173123.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173124.jpgsave_picture_173124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173124.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:EA1410E8F127F5726BE581BFFB313DB307E2CE9D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173125.jpgsave_picture_173125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173125.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Dylan Hildenbrand | SvelteKit Up and Running (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173126.jpgsave_picture_173126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173126.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Avi Tsadok | The Ultimate iOS Interview Playbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173127.jpgsave_picture_173127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173127.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173128.jpgsave_picture_173128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173128.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E2B3932DFF814039149EE444329989C2C3AF82AD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173129.jpgsave_picture_173129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173129.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4723CA9F45AFD11C4147FC39C224B7F65331DBC1
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173130.jpgsave_picture_173130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173130.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:63A496B194A87A4949580189DB6E9DBB361F3E38
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173131.jpgsave_picture_173131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173131.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173132.jpgsave_picture_173132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173132.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:96A6B672A8167B20D1EE59E9C461AE0E63D89DDA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173133.jpgsave_picture_173133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173133.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:CA487334F271D494F411760D9D29F68A33DC6C57
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173134.jpgsave_picture_173134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173134.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:7BCF134BB8D11662239030DF2AC0236E46546D60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173135.jpgsave_picture_173135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173135.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Udemy, Meta Brains | ChatGPT Coding Express: Fast-Track Coding with ChatGPT (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173136.jpgsave_picture_173136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173136.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:5B9EEECD62FEEEF7EA50F17C58DA8BA1EE1D5988
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173137.jpgsave_picture_173137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173137.jpg" />
 </div>
 
 

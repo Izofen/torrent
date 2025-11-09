@@ -6,7 +6,7 @@ Inherus - Beholden (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237900.jpgsave_picture_237900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237900.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Random Earth Project - Airwaves (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237901.jpgsave_picture_237901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237901.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237902.jpgsave_picture_237902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237902.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tim Schaufert - Our Wreckage (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237903.jpgsave_picture_237903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237903.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Geekbench 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237904.jpgsave_picture_237904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237904.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ WhatsApp Messenger for Android 2.22.18.76 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237905.jpgsave_picture_237905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237905.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:98A534A9687D1CBF428677E27CA5CA4D3369D59B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237906.jpgsave_picture_237906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237906.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Eloy - The Best Of Eloy, Vol. 1-2 (1994-1996) 2CD, Compilations [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237907.jpgsave_picture_237907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237907.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:D4649384ACCEE1A012F43FBB2F5090AFB11908A3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237908.jpgsave_picture_237908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237908.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpgsave_picture_237909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237910.jpgsave_picture_237910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237910.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C220D582446426097A6B58A63502FC9EE918AFA3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237911.jpgsave_picture_237911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237911.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ The Dust - Underdogs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues, Stoner>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237912.jpgsave_picture_237912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237912.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:783AACF94295262DF626CAEAC56F68D632C061B1
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237913.jpgsave_picture_237913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237913.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:6C5A61AF828271526E57CE758BE7A4FF55F85AFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237914.jpgsave_picture_237914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237914.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:BBCB313D642EC331999BEC0AA2477811CF806BF6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237915.jpgsave_picture_237915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237915.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:1EA323B56321FF8E18B2E925BAF778C88CC6ACA8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237916.jpgsave_picture_237916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237916.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ WinToHDD 6.0 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237917.jpgsave_picture_237917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237917.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Folder Designer: Custom Icon‪s 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237918.jpgsave_picture_237918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237918.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:92B94FA882130E2225A65746D4561316DF840291
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237919.jpgsave_picture_237919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237919.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:93E1816B85D5BBCC353FD559CCCC7E11DA0B20A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237920.jpgsave_picture_237920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237920.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:93260ADD107EFAF25D637177EB64DE7997349C26
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237921.jpgsave_picture_237921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237921.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ iStat Menus 6 v.6.62 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237922.jpgsave_picture_237922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237922.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237923.jpgsave_picture_237923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237923.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Unswabbed - 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237924.jpgsave_picture_237924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237924.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ FileZilla 3.64.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237925.jpgsave_picture_237925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237925.jpg" />
 </div>
 
 

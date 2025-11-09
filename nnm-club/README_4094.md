@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127019.jpgsave_picture_127019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E845DB14315E82032DD80145DC07A1E5C17F541
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127020.jpgsave_picture_127020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127020.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 10 [10.0.19045.3803], Version 22H2 (Updated December 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127021.jpgsave_picture_127021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127021.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B55180520112E9C6D7D7518E7949AB3B7FC2DAB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127022.jpgsave_picture_127022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127022.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5F0086BFB2A7A86D0D33330F32F0D4D56BA93C39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127023.jpgsave_picture_127023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127023.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127024.jpgsave_picture_127024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127024.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:355DE41B2C215F82C0AEF8B1AA0A6C390594C18F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127025.jpgsave_picture_127025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127025.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:52DEE3C7CE77E2793F1B809AFFA3A04139EA0414
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127026.jpgsave_picture_127026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127026.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127027.jpgsave_picture_127027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127027.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127028.jpgsave_picture_127028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127028.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:85ED2769AC5142AC8662E41B503954C0B32A52A6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127029.jpgsave_picture_127029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127029.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2E8D5D89A7C6BA8EF955A3D32E5A5224F40D9020
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127030.jpgsave_picture_127030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127030.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Secret Of Darkness - Blacksun Rising (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127031.jpgsave_picture_127031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127031.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:21A93A49718FE8766EF4D90D7CD7FD0D69523411
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127032.jpgsave_picture_127032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127032.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Lunacy - Disconnection (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove, Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127033.jpgsave_picture_127033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127033.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127034.jpgsave_picture_127034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127034.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127035.jpgsave_picture_127035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127035.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Warcrab - The Howling Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127036.jpgsave_picture_127036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127036.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127037.jpgsave_picture_127037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127037.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Warcrab - Scars of Aeons (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127038.jpgsave_picture_127038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127038.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127039.jpgsave_picture_127039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127039.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127040.jpgsave_picture_127040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127040.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:66F3D4958398BFE806913CC49EF8EEE0A13A0220
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127041.jpgsave_picture_127041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127041.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:DC20A5121027AFAA8048D9D92D0F79854BDB6D16
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127042.jpgsave_picture_127042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127042.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:52A2A0BB862ABE00E5A9662A3E15EA4744BEAF1C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127043.jpgsave_picture_127043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127043.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:6C6143E3A6F5B9C00B9A18370F786DD67439580C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127044.jpgsave_picture_127044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127044.jpg" />
 </div>
 
 

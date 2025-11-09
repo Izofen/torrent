@@ -6,7 +6,7 @@
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158384.jpgsave_picture_158384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158384.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BAD4DC4ECD84F49B84A7C1F6AB10366AA8712380
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158385.jpgsave_picture_158385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158385.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0B0ABAE4226B1B8A45556E087D9FED6FF5EA6DB9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158386.jpgsave_picture_158386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158386.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2BC276361FB34784D10C1E1E29A98FF4CDB67DF5
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158387.jpgsave_picture_158387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158387.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6812A365BDBE3225200CE229C504D181A4285E46
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158388.jpgsave_picture_158388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158388.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Axel Rudi Pell - Game Of Sins (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158389.jpgsave_picture_158389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158389.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SoftColor PhotoEQ 10.0 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158390.jpgsave_picture_158390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158390.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:777618F454D5721656444FEED7A9281B9A1A4E49
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158391.jpgsave_picture_158391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158391.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:247F93B27DC1AF9B6E6103499156D5E9F1216355
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158392.jpgsave_picture_158392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158392.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Readiris Pro 15.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158393.jpgsave_picture_158393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158393.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1DE5AA679B04AC4FEBF7AB329E61C5842337CD96
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158394.jpgsave_picture_158394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158394.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6D0DF4B01B72EECBF4592B2F2FB1AADD56E82C0F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158395.jpgsave_picture_158395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158395.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4DC4894CF77A186CF50F4B264E3E2105EC005997
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158396.jpgsave_picture_158396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158396.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8CE09159E02F5081DA4661B1BDEE02797E34F7D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158397.jpgsave_picture_158397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158397.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:79A2B9231E6C7848D4D2EE0948DABE7253C3BF52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158398.jpgsave_picture_158398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158398.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AdwCleaner 5.026 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158399.jpgsave_picture_158399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158399.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C121168FA93CBA62DC0AF2A1D138D6CCC686176A
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158400.jpgsave_picture_158400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158400.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:40150955DAC3FB8329D0900C7B7DF644B4E18E41
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158401.jpgsave_picture_158401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158401.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4FB907921AD9DFCBEDDA027EAC541400863A4156
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158402.jpgsave_picture_158402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158402.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Glary Utilities Pro 5.41.0.61 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158403.jpgsave_picture_158403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158403.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5AEDA781F9567F1D7302919987F0DBD5E12963C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158404.jpgsave_picture_158404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158404.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Method Man - The Meth Lab (2015) [MP3|~256 кб/с] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158405.jpgsave_picture_158405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158405.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:B8C9284AD1C8F1DAE85B903CC242AF78CAD0D50D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158406.jpgsave_picture_158406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158406.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ PhoneClean Pro 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158407.jpgsave_picture_158407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158407.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Hoozuki no Reitetsu / Хладнокровный Ходзуки [2014, TV, 13 ep
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158408.jpgsave_picture_158408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158408.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:296903F3DAB8331B91E786A438228D321E12D38F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158409.jpgsave_picture_158409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158409.jpg" />
 </div>
 
 

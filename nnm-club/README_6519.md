@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207203.jpgsave_picture_207203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Internet Download Manager 6.41 Build 17 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207206.jpgsave_picture_207206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207206.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ App Cleaner & Uninstaller Pro 8.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207207.jpgsave_picture_207207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207207.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Blue Iris 5.4.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207210.jpgsave_picture_207210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207210.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:852CA886D658DBF751189FF528E05494132440B7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207213.jpgsave_picture_207213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207213.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ JetBrains PyCharm Professional for Mac 2023.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207215.jpgsave_picture_207215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207215.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ PicPick Free+Pro 7.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207217.jpgsave_picture_207217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207217.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:99B231E11ADA59E942A7CC51F3532C89AEE695CE
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207218.jpgsave_picture_207218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207218.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:FD88F517ED5B7C75A0671F5DB90F37D08AB24974
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207220.jpgsave_picture_207220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207220.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:05DFCD94C58762B300AAEBBE02AEBF46232EED44
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207223.jpgsave_picture_207223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207223.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpgsave_picture_207225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207227.jpgsave_picture_207227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207227.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Vivaldi 6.1.3035.257 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207228.jpgsave_picture_207228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207228.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:424086E73163434C32F7302FD1505155D094628F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207231.jpgsave_picture_207231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207231.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7C42733ADD88D33D81C2B10A47C782A0C2BA2953
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207234.jpgsave_picture_207234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207234.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ R-Studio Network 9.3 Build 191223 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207235.jpgsave_picture_207235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207235.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C212094FAF98B6D3FA404DF3CE50B20E72B8C3C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207238.jpgsave_picture_207238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207238.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ YMusic - YouTube Music Player & Downloader Mod by ANiK555 3.7.22.1156 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207240.jpgsave_picture_207240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207240.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ TheAeroClock 8.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207243.jpgsave_picture_207243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207243.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:5A4B8FAB22C82883AD3E9FCDDCF07AB0967036FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207248.jpgsave_picture_207248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207248.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:61DCC44F5E988334ECFA21285B4A7FB14313F0FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207249.jpgsave_picture_207249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207249.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:F01C4AAEDD5FD6B8A2220CFFB58EF94B199C150F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207252.jpgsave_picture_207252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207252.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207254.jpgsave_picture_207254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207254.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mozilla Thunderbird 115.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207257.jpgsave_picture_207257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207257.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:179DD29987357A9A92023CC40476C3AB9DBD1FD7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207258.jpgsave_picture_207258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207258.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ FanControl V165 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207260.jpgsave_picture_207260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207260.jpg" />
 </div>
 
 

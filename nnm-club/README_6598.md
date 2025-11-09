@@ -6,7 +6,7 @@ Godslut - Procreation of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211743.jpgsave_picture_211743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211743.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211747.jpgsave_picture_211747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211747.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211750.jpgsave_picture_211750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211751.jpgsave_picture_211751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211751.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:8424F83CBFC02C96C1B616238B067309FF6893DA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211752.jpgsave_picture_211752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211752.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Lee Small - The Last Man On Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211755.jpgsave_picture_211755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211755.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211759.jpgsave_picture_211759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211759.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Lluvia JAZZ (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211761.jpgsave_picture_211761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211761.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Legion Of The Damned - The Poison Chalice (2023) [MP3|320 Kbps] <Death-Thrash-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211763.jpgsave_picture_211763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211763.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indi
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211765.jpgsave_picture_211765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211765.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211767.jpgsave_picture_211767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211767.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Ultimate Collection of Relaxing Chilly Jazz III (2023) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211769.jpgsave_picture_211769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211769.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chromium 114.0.5735.110 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211773.jpgsave_picture_211773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211773.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:936C51758005FEFEDA3B6051B684D0B50F8A41F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211776.jpgsave_picture_211776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211776.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1402022BC5BB06C4D3F4B6F0399370B283A6E6DC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211777.jpgsave_picture_211777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211777.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Calibre 6.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211780.jpgsave_picture_211780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211780.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B44F6A2B621BC36AE30F69F678675C0F899A381C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211782.jpgsave_picture_211782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211782.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211784.jpgsave_picture_211784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211784.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Slipknot - Adderall (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211785.jpgsave_picture_211785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211785.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:EF4F59C94DE377775B265CCEBC174B3BC8BFFF6C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211787.jpgsave_picture_211787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211787.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:436FBA479CC0348FEC9BD0A8097FE626CACA5AAC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211790.jpgsave_picture_211790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211790.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Milky Chance - Living In A Haze (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211792.jpgsave_picture_211792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211792.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:B8531FF6C82AB743D7DA5D29843C7D16F9A98B3F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211793.jpgsave_picture_211793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211793.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F76E8719B27A084E7CF6D659875E1D2DE63C3FE1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211795.jpgsave_picture_211795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211795.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Tropical & Deep House: Summer Mix 2023 [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211799.jpgsave_picture_211799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211799.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Alicia Keys - Songs In A Minor (2001) Deluxe Edition, 2023, J Records/Legacy [MP
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211800.jpgsave_picture_211800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211800.jpg" />
 </div>
 
 

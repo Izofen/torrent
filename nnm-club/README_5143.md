@@ -6,7 +6,7 @@ Eisbrecher - Zehn Jahre Kalt (2014) [FLAC|Lossless|image + .cue] <Industrial Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160454.jpgsave_picture_160454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160454.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mach Desktop HD 3 v.3.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160455.jpgsave_picture_160455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160455.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:92ED43371F847B09F5A3A4F4D16F06FDD3E0F844
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160456.jpgsave_picture_160456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160456.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mayhem - De Mysteriis Dom Sathanas Alive (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160457.jpgsave_picture_160457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160457.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Sublime Text 4.0 Build 4164 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160458.jpgsave_picture_160458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160458.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:5F3FDE68D5A7F2D3AA9CE1448BC4469E4E177A93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160459.jpgsave_picture_160459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160459.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ DxO FilmPack 7 for Mac v.7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160460.jpgsave_picture_160460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160460.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Eisbrecher - Eiskalt (2011) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160461.jpgsave_picture_160461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160461.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sylosis - Cycle Of Suffering (2020) [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160462.jpgsave_picture_160462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160462.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ JixiPix Artista Impresso Pro 1.8.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160463.jpgsave_picture_160463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160463.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Eisbrecher - Eiszeit (2010) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160464.jpgsave_picture_160464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160464.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Eisbrecher - Sunde (2008) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160465.jpgsave_picture_160465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160465.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ NCH DrawPad Pro 10.63 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160466.jpgsave_picture_160466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160466.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Battle Born - Battle Born (2020) EP [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160467.jpgsave_picture_160467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160467.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Graven Sin - Veil of the Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160468.jpgsave_picture_160468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160468.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Eisbrecher - Eisbrecher (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160469.jpgsave_picture_160469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160469.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160470.jpgsave_picture_160470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160470.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ LaunchBar 6 v.6.18.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160471.jpgsave_picture_160471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160471.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:69CC606C42A11ECF902ACB8D524927C27B1DAE07
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160472.jpgsave_picture_160472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160472.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Eisbrecher - Leider / Vergissmeinnicht (2006) [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160473.jpgsave_picture_160473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160473.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Marked 2 - Markdown Preview 2.6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160474.jpgsave_picture_160474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160474.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160475.jpgsave_picture_160475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160475.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160476.jpgsave_picture_160476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160476.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160477.jpgsave_picture_160477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Dash 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160478.jpgsave_picture_160478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160478.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Deckset 2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160479.jpgsave_picture_160479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160479.jpg" />
 </div>
 
 

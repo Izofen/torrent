@@ -6,7 +6,7 @@ Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240636.jpgsave_picture_240636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240636.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C301DB0C82D015A15F002BA6EA15F42C23329C5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240637.jpgsave_picture_240637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240637.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ New Mexican Doom Cult - Necropolis (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240638.jpgsave_picture_240638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240638.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Legends Never Die - Goodbye to a Perfect World (A Cryptic Ending) (2020) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240642.jpgsave_picture_240642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240642.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Desolate Realm - Legions (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240648.jpgsave_picture_240648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240648.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7DD3AAA9DF186F4817F236DE4F07BF2CB2016BE3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpgsave_picture_240655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:96CB72B215F172EF6214CF4AE18C65A3A3186F76
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240659.jpgsave_picture_240659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240659.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ninth Realm - A Fate Unbroken (2022) [FLAC|Lossless|WEB-DL|tracks] <Crossover, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240664.jpgsave_picture_240664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240664.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MACHINA BLGE - Barcode (2020) [MP3|320 Kbps] <Industrial, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240668.jpgsave_picture_240668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240668.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Perfect View - Bushido (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240671.jpgsave_picture_240671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240671.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Project Theory - Blood & Loyalty (2020) [MP3|320 Kbps] <Alternative Metal, Rapco
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240673.jpgsave_picture_240673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240673.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Evilleaf - Slow Burn (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240676.jpgsave_picture_240676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240676.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240678.jpgsave_picture_240678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240678.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Merzy - Merzy (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240679.jpgsave_picture_240679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240679.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Nighted - Absence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240680.jpgsave_picture_240680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240680.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240687.jpgsave_picture_240687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240687.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Black Mask - Queen of the Beasts (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240688.jpgsave_picture_240688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240688.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Nuevo Orden - Rehenes del Tiempo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240695.jpgsave_picture_240695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240695.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Nest of Plagues - To Kill A God (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240696.jpgsave_picture_240696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240696.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240704.jpgsave_picture_240704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240704.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Overkill - Scorched (2023) [MP3|320 Kbps] <Thrash-metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240708.jpgsave_picture_240708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240708.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Carcariass - Afterworld (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240712.jpgsave_picture_240712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240712.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Yarek Ovich - Introversion (2020) [MP3|320 Kbps] <Depressive Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240715.jpgsave_picture_240715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240715.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240718.jpgsave_picture_240718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240718.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Enigma Project - Living the Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240720.jpgsave_picture_240720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240720.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <A
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240721.jpgsave_picture_240721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240721.jpg" />
 </div>
 
 

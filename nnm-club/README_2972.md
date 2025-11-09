@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88525.jpgsave_picture_88525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAGIX Video Easy 3 HD 3.0.1.29 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88528.jpgsave_picture_88528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88528.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88529.jpgsave_picture_88529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88529.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A708CC603235647943C594E8E8D84EB997F4C1F8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88531.jpgsave_picture_88531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88531.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E5810F83480B346DC6DA7895D6E499533F1AACD2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88532.jpgsave_picture_88532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88532.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88534.jpgsave_picture_88534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88534.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:361EC2EEC61637E4866B83EE8DEE227301FEC665
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88536.jpgsave_picture_88536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88536.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88539.jpgsave_picture_88539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88539.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Ultrasound (1997) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88543.jpgsave_picture_88543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88543.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Ultrasound (1997) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88545.jpgsave_picture_88545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88545.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:90A4E44530C41F112C6F2035FA94D34331A99A16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88547.jpgsave_picture_88547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88547.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:B3322212E3115EED259BC1390E9359694CA921A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88550.jpgsave_picture_88550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88550.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:C1F7BF2221DBF03850AE3A1100D6C9BBBCD83BEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88551.jpgsave_picture_88551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88551.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:1FBF2D5065D46C9C21A072267651C102EF34AD67
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88553.jpgsave_picture_88553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88553.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:D75505F377C4267C57604DD5C1DF1B1D055B7099
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88557.jpgsave_picture_88557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88557.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:315FC1C95F7D0943C41B145C1C5EDBEF2D873FF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88558.jpgsave_picture_88558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88558.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:A0DB39FFE215A4D632431C92D72CDD2D5B89B269
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88561.jpgsave_picture_88561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88561.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Hardcore Legends Top 100 (2012) [MP3|320 kbps]<Hardcore>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88563.jpgsave_picture_88563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88563.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Far Corporation - Star Collection (2009) [FLAC|Lossless]<Pop-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88565.jpgsave_picture_88565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88565.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88569.jpgsave_picture_88569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88569.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88571.jpgsave_picture_88571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88571.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:7DAE6B5355FF19217C33189CF18398420D081B27
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88573.jpgsave_picture_88573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88573.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lightweight Portable Security 1.3.3 [x86] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88574.jpgsave_picture_88574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88574.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Красота медленных хитов (2012) [MP3|~256 kbps]<Pop | R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88579.jpgsave_picture_88579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88579.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Gaudi - Everlasting (2012) [FLAC|Lossless]<Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88582.jpgsave_picture_88582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88582.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Gaudi - Everlasting (2012) [FLAC|Lossless]<Electronic>
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88585.jpgsave_picture_88585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88585.jpg" />
 </div>
 
 

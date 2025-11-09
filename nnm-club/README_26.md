@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_711.jpgsave_picture_711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_711.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:73358D139B6E3C418A4742CFE3D1709236BF60ED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_712.jpgsave_picture_712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_712.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:251C499CF48B43284EB32C8005EF10A3160AE5C7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_713.jpgsave_picture_713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_713.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_714.jpgsave_picture_714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_714.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ uTorrent Pack 1.2.3.98 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_715.jpgsave_picture_715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_715.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_716.jpgsave_picture_716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_716.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:AEFC2F63D40E9DB3625CAFCD8B2AC052AD6B7DB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_717.jpgsave_picture_717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_717.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A920FC9A61824ACEDEF20F727D9F6DA98E3CF9D2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_719.jpgsave_picture_719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_719.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ X4: Foundations (2018) [Ru/En] (8.00 HotFix 1/dlc) License GOG [Community of Pla
 >>18
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_720.jpgsave_picture_720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_720.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6.0/dlc) Repack Let's�
 >>26
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_721.jpgsave_picture_721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_721.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_722.jpgsave_picture_722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_722.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.01.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_723.jpgsave_picture_723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_723.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_724.jpgsave_picture_724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_724.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_725.jpgsave_picture_725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_725.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_726.jpgsave_picture_726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_726.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_727.jpgsave_picture_727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_727.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F968D852388637B3878428D5620971CF8E473E1B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_728.jpgsave_picture_728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_728.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:EC1FCCB9C6FC51D472D80D05C7A6E8E9C231A843
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_729.jpgsave_picture_729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_729.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_730.jpgsave_picture_730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_730.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_731.jpgsave_picture_731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_731.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:0731218BBA6C8F85284BEFF516835A03CDC7C0DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_732.jpgsave_picture_732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_732.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DDED72B4D1F3139802EC73CE547A36C77DAC00AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_733.jpgsave_picture_733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_733.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniver
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_734.jpgsave_picture_734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_734.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_736.jpgsave_picture_736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_736.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_737.jpgsave_picture_737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_737.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9B64D36B530C95931F03426507430B1A986CE5A1
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_738.jpgsave_picture_738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_738.jpg" />
 </div>
 
 

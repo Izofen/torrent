@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59719.jpgsave_picture_59719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59719.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Top 50 - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59737.jpgsave_picture_59737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59737.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B341C83413417DD7042461046AC6AAC447A0304C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59753.jpgsave_picture_59753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59753.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock's Unsung Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59756.jpgsave_picture_59756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:72B13651A29F1E10E16F9A1317FC10F86F1F99D1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59763.jpgsave_picture_59763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59763.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:E5D9737D5FDBA6698D2380A3DE72AE10B80EEC6B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59769.jpgsave_picture_59769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59769.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:2CBF22C4FAD31B70B86E93E163114C76334E687B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59770.jpgsave_picture_59770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59770.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:1075A8CB584E3504EAA9A7AE32D414E61784CC83
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59778.jpgsave_picture_59778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59778.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:622C3B1722919DA808C62EAEB1D495C74A5926F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59793.jpgsave_picture_59793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59793.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:76321CBBF8316E877C60229ABFBDF2EBD64E3356
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59795.jpgsave_picture_59795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59795.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D7B5E693B4ADBD205C83DCA795253C12AF31E64E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59796.jpgsave_picture_59796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59796.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4218F32E09AE958D05AD33C8C55C94FA1B725016
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59845.jpgsave_picture_59845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59845.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9663A4876995CDBA853D44D56968D44C7B503051
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59854.jpgsave_picture_59854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59854.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9DF1C3217BB682FA0F1D9561099B4452367D687B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59855.jpgsave_picture_59855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59855.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Symphonian - Incarnation Of Reality (2011) [FLAC|Lossless]<Doom Metal, Gothic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59860.jpgsave_picture_59860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59860.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:81AF9CFD5F735E72DF2BAC7D9313B4720A9AAEBC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59864.jpgsave_picture_59864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59864.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:295EE2B23BE523634726718C442BE01AFEBB4591
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59865.jpgsave_picture_59865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59865.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:194AE8050818D4B7FFB38FCF8544D1D3A744487E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59869.jpgsave_picture_59869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59869.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:02DEC2D679894ED89F86ABCFDD4B5AF33AF3B84C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59870.jpgsave_picture_59870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59870.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:A5D88556631086FD2754E67A204C773B6251FAE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59872.jpgsave_picture_59872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59872.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:5A440AD845BBD68C29ACB7437DC536EBECCDE353
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59873.jpgsave_picture_59873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59873.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FC2AF6DF3DF857E14797880EAAF9C8740715DB35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59876.jpgsave_picture_59876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59876.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:472DD3BDDA32D3EBEC4ECD1F762E66010021D724
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59896.jpgsave_picture_59896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59896.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:1E8D63B9198459B3291FBC5B59A73AA6CEBDBC25
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59902.jpgsave_picture_59902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59902.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:15B94E4DEFC66EDB033C37D8EDC51FFAB45EBFD1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59903.jpgsave_picture_59903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59903.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59919.jpgsave_picture_59919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59919.jpg" />
 </div>
 
 

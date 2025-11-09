@@ -6,7 +6,7 @@ GiliSoft Video Converter Discovery Edition 12.9.0 Pro RePack (& Portable) by elc
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20529.jpgsave_picture_20529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:846C6258EA8E438B8C775CBF875055E90C6184E3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20530.jpgsave_picture_20530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:21EBE042F1AF3DA18D6342562C2798DCD113EB07
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20531.jpgsave_picture_20531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20531.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Reg Organizer 9.71 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20532.jpgsave_picture_20532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20532.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Gigapixel AI Pro 8.3.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20533.jpgsave_picture_20533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20533.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.35112.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20534.jpgsave_picture_20534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20534.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0BF185FDB745780C3C184BCD3E132474D225BF5D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20535.jpgsave_picture_20535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20535.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6BC2D59F289281F0658D90083E27C748BBFB2731
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20536.jpgsave_picture_20536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20536.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1B7D7CC397B858BA04A6054421D2BCE4F76472BE
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20537.jpgsave_picture_20537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20537.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9EA537488F56366961617B3AC60388A34866FE3F
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20538.jpgsave_picture_20538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20538.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9EA537488F56366961617B3AC60388A34866FE3F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20539.jpgsave_picture_20539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20539.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:80A3F0C08EE4970840E544EB8227C33C971B1661
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20540.jpgsave_picture_20540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20540.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:538AFD77AAE1438341698716E94F552452887434
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20541.jpgsave_picture_20541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20541.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:678612A7F160736619BA8BEF65A9847CAAA55215
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20542.jpgsave_picture_20542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20542.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20543.jpgsave_picture_20543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20543.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20544.jpgsave_picture_20544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20544.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:ABA8040839C260155E58465EB88CE9029FF4A23A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20545.jpgsave_picture_20545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20545.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Microsoft  Visual C++ Runtimes AIO v0.90.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20546.jpgsave_picture_20546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20546.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Total War: EMPIRE v1.6.4RC3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20547.jpgsave_picture_20547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20547.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:24748208EF56FD5F6201AF912B95B4696EEB93D4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20548.jpgsave_picture_20548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20548.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9CC7BE4F365B1C0688DDBA68B16AECCF40125A08
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20549.jpgsave_picture_20549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20549.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Internet Download Manager 6.42 Build 33 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20550.jpgsave_picture_20550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20550.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:405CB2BD0A3510E09293D06786BC720F070DC64F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20551.jpgsave_picture_20551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20551.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:34E0283F336E5A01CE020F308A5B1F3879B945A2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20552.jpgsave_picture_20552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20552.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:B5AA3E7868FCB1703C49D83EC8EF841E5C50F06E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20553.jpgsave_picture_20553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20553.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20555.jpgsave_picture_20555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20555.jpg" />
 </div>
 
 

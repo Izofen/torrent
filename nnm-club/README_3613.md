@@ -6,7 +6,7 @@ MetaRename for Mac 1.0.10 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114313.jpgsave_picture_114313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Syncovery for Mac 10.12.4 ARM/iNTEL [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114314.jpgsave_picture_114314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114315.jpgsave_picture_114315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114315.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpgsave_picture_114316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114317.jpgsave_picture_114317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114317.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:901A31E462661FE357329D0B1C3F6099B72BD981
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114318.jpgsave_picture_114318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114318.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114319.jpgsave_picture_114319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114319.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114320.jpgsave_picture_114320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114320.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114321.jpgsave_picture_114321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114321.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114322.jpgsave_picture_114322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114322.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114323.jpgsave_picture_114323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114323.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114324.jpgsave_picture_114324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114324.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ TunesKit AceMovi Video Editor 4.9.23 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpgsave_picture_114325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpgsave_picture_114326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpgsave_picture_114327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpgsave_picture_114328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpgsave_picture_114329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Data Extractor 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpgsave_picture_114330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Reader for Mac 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpgsave_picture_114331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114332.jpgsave_picture_114332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114332.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114333.jpgsave_picture_114333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114333.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114334.jpgsave_picture_114334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114334.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpgsave_picture_114335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ K-Lite Codec Pack Update 18.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114336.jpgsave_picture_114336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114336.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ djay - DJ App & AI Mixer 5.1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114337.jpgsave_picture_114337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114337.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ USB Device Tree Viewer 4.0.5.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114338.jpgsave_picture_114338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114338.jpg" />
 </div>
 
 

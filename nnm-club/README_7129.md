@@ -6,7 +6,7 @@ Void Column - Admonition of Clarity (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244293.jpgsave_picture_244293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244293.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B67E529D34CC1225D53BD01F96C51E9360D76A36
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244294.jpgsave_picture_244294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244294.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244295.jpgsave_picture_244295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244295.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:04BC04F2586881B3E15CA3F7BFCF89DEDE203FD6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244296.jpgsave_picture_244296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244296.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Everlust (Compiled by Seel) (2021) [AAC|~323 Kbps] <Deep House, Organic Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244297.jpgsave_picture_244297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244297.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Mega Hits 2010 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244298.jpgsave_picture_244298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244298.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4C25EAA84AD810EF1BB3C6140C98B3199190081C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244299.jpgsave_picture_244299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244299.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244300.jpgsave_picture_244300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244300.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Vargas Blues Band - Stoner Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244301.jpgsave_picture_244301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244301.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:308D17E05E78DDE1E042695FB6E7FA62F17A0D65
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244302.jpgsave_picture_244302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244302.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:FEFE01A36D09282E7F4B254FE5A415DFB5ED25F5
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244303.jpgsave_picture_244303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244303.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244304.jpgsave_picture_244304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244304.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244305.jpgsave_picture_244305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244305.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244306.jpgsave_picture_244306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244306.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244307.jpgsave_picture_244307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244307.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Amsterdam Dance Night (2023) [MP3|320 Kbps] <Electronica, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244308.jpgsave_picture_244308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244308.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9A6C26213E2FB3E3863AB30B1B3221B72D1EEB32
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244309.jpgsave_picture_244309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244309.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ ScreenFlow 10.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244310.jpgsave_picture_244310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244310.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Templates for Pages – DesiGN 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244311.jpgsave_picture_244311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244311.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244312.jpgsave_picture_244312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244312.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244313.jpgsave_picture_244313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244313.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Topaz Video AI 3.1.11 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244314.jpgsave_picture_244314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244314.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ XLN Audio - Addictive Drums 2 Complete 2.2.5.6 STANDALONE, VSTi, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244315.jpgsave_picture_244315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244315.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N'
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244316.jpgsave_picture_244316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244316.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244317.jpgsave_picture_244317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244317.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:B1D46836075221D8B6063A2CEF3C523E612C1122
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244318.jpgsave_picture_244318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244318.jpg" />
 </div>
 
 

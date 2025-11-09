@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237246.jpgsave_picture_237246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237246.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16E19DD42C4716B314C18968D9DBA3B5B3FE0DBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237247.jpgsave_picture_237247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237247.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Privacy Eraser Free 5.38.0 Build 4520 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237248.jpgsave_picture_237248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237248.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237249.jpgsave_picture_237249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237249.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F7A964B9991D19602043FDFE7F273B1953FABA7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237251.jpgsave_picture_237251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237251.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Nevercenter CameraBag Pro 2021.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237252.jpgsave_picture_237252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237252.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ The 69 Eyes - Death Of Darkness (2023) [FLAC|Lossless|image + .cue] <Goth Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237253.jpgsave_picture_237253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237253.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2DD6C38DC561838A190CD6B9D02958C1CB6119FA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237255.jpgsave_picture_237255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237255.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BFC6E8AC69A44468E084B5C5A916C4BC62A7907E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237256.jpgsave_picture_237256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237256.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B85B60E7C251FC1380665C004E96962B74395184
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237257.jpgsave_picture_237257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237257.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Xliff Editor 2.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237258.jpgsave_picture_237258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237258.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpgsave_picture_237259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237260.jpgsave_picture_237260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237260.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2F27EBE0302DAD6A973017BBF39B3F6A40F5A6A6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237262.jpgsave_picture_237262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237262.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237264.jpgsave_picture_237264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237264.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BAFEE26032F3133A77787A6CD740CC0BC7F8EF7E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237265.jpgsave_picture_237265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237265.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ OmniOutliner Pro 5 v5.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237266.jpgsave_picture_237266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237266.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237267.jpgsave_picture_237267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237267.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:BDC37909F995FCDFD56FA54BDAD64B58A796C68C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237269.jpgsave_picture_237269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237269.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ ExpanDrive 7 v7.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237271.jpgsave_picture_237271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237271.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:3DD1504C4A6D4785F8A803C837EB1084CA128D97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237272.jpgsave_picture_237272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237272.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Monkey's Audio 10.16 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237274.jpgsave_picture_237274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237274.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:E537514005921E8C8539159A95F4835C4710D618
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237275.jpgsave_picture_237275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237275.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ System Dashboard Pro 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237278.jpgsave_picture_237278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237278.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Integrity Plus 10.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237279.jpgsave_picture_237279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237279.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:A56D2F5FD0A0080A5F971D6C704CB89D2CF00F68
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237280.jpgsave_picture_237280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237280.jpg" />
 </div>
 
 

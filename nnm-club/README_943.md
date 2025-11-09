@@ -6,7 +6,7 @@ CorelDRAW Technical Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24859.jpgsave_picture_24859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A980431CB208ECC4C6B380396DAA8373992A730D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24860.jpgsave_picture_24860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24860.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8FE26AD63A14FA911F36FF8743FCAE2A394FC597
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24862.jpgsave_picture_24862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24862.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4380740781A489F9A1658EF69D8E4B1160E5078B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24863.jpgsave_picture_24863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24863.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PotPlayer 250312 (1.7.22506) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24864.jpgsave_picture_24864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24864.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ R-Studio Network 9.4 Build 191460 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24865.jpgsave_picture_24865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24865.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 7 SP1 7601.27618 x64 3in1 by OneSmiLe [13.03.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24866.jpgsave_picture_24866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24866.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C2D038C09A3FE5AED1084D4A7CF098D8B8269915
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24868.jpgsave_picture_24868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24868.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:218B13E21DB5A1F2106F8C3E9D11B4679D2DBEE3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24869.jpgsave_picture_24869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24869.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AB3EC5EBFD6CF19CFED2179AB46C813EBEDA7114
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24870.jpgsave_picture_24870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24870.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C71E4198E98022C150004D1BE9BAD5B2ACD042F0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24871.jpgsave_picture_24871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24871.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pig - Wrecked (1996) Remastered, 2024, Metropolis Records [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24872.jpgsave_picture_24872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24872.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:D28F949629A0B4754133CFAD7D65D5EFCBA377A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24873.jpgsave_picture_24873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24873.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EA0FAC9D32B111BE5BC93A4B67AF7CA350ED89D4
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24874.jpgsave_picture_24874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24874.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The Doors - 3 Live Albums (1970) Remastered, 2025, Homespun, DMG[FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24875.jpgsave_picture_24875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24875.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8CBAEA8D0CC4EF496EFF0667C40202EE2C530022
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24876.jpgsave_picture_24876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24876.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B896ADFEDD7D7733514F544C55985676BA66EFAD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24877.jpgsave_picture_24877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24877.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.45 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24878.jpgsave_picture_24878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24878.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Tobias Sammet's Avantasia - Here Be Dragons (2025) 3 x CD, Deluxe Edition, Limit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24879.jpgsave_picture_24879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24879.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:205ADACCCF55EE0CBDEAAA872129E976C8BF4EB2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24880.jpgsave_picture_24880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24880.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sandboxie 5.70.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24881.jpgsave_picture_24881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24881.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Deep On The Beach (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24882.jpgsave_picture_24882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24882.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:CF6899FBF15B2D0BE7F0DB19352D56BD12F95D0C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24883.jpgsave_picture_24883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24883.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Chill Synthwave Mix - Synth Wave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24884.jpgsave_picture_24884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24884.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:42AE62B207A22595E27BDD2369F6142BB5C8336A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24885.jpgsave_picture_24885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24885.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ FanControl V216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24886.jpgsave_picture_24886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24886.jpg" />
 </div>
 
 

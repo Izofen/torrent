@@ -6,7 +6,7 @@ Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpgsave_picture_110451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpgsave_picture_110452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpgsave_picture_110453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpgsave_picture_110454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpgsave_picture_110455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpgsave_picture_110456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpgsave_picture_110457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110458.jpgsave_picture_110458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110458.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Niels van Gogh - The Rebel (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Har
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpgsave_picture_110459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110459.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110460.jpgsave_picture_110460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110460.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpgsave_picture_110461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpgsave_picture_110462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpgsave_picture_110463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpgsave_picture_110464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpgsave_picture_110465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110466.jpgsave_picture_110466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110466.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110467.jpgsave_picture_110467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110467.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110468.jpgsave_picture_110468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110468.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110469.jpgsave_picture_110469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110469.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110470.jpgsave_picture_110470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110470.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:02D2979A753632A4128348882AC1A2A6CA48B84B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110471.jpgsave_picture_110471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110471.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpgsave_picture_110472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110473.jpgsave_picture_110473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110473.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A4AF0F99AEA2D968A952ABB0D26E706A90012FC5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110474.jpgsave_picture_110474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110474.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110475.jpgsave_picture_110475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110475.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110476.jpgsave_picture_110476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110476.jpg" />
 </div>
 
 

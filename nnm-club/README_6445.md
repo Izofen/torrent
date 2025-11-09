@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204265.jpgsave_picture_204265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpgsave_picture_204266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Hasleo Windows ISO Downloader 1.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204267.jpgsave_picture_204267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204267.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Yaakov Young | Полный курс иврита от А1 до С2 (2023) WEBRi
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204268.jpgsave_picture_204268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204268.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ MouseBoost 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204269.jpgsave_picture_204269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204269.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Image Resizer – Resize Photos 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204270.jpgsave_picture_204270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204270.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:52E337ACE72DA6A62F39B3FCC5FB405B1D71115D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204271.jpgsave_picture_204271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204271.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2D15AD4B6C18A6A5B98BEC7C99AAF51518B4009D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204272.jpgsave_picture_204272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204272.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B00A4230FE77E7F73EE7B660F9D2BDCDF7E97922
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204273.jpgsave_picture_204273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204273.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Sip Pro 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204274.jpgsave_picture_204274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204274.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1709E4F380741A55977686B013A7DF1A8BDF5C2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204275.jpgsave_picture_204275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204275.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7AC017673A00355E2093D661511177322FFED56E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204276.jpgsave_picture_204276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204276.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C00E67FDDF8929B12D7DB5842DDE0CFD50EC3C45
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204277.jpgsave_picture_204277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204277.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:320ADFB7417331439EE23AE792B5AEBC04A6485C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204278.jpgsave_picture_204278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204278.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ IconTo Pro 7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204279.jpgsave_picture_204279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204279.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:6A1D08F7DE111EF9A28DB661750F8BAE50F45369
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204280.jpgsave_picture_204280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204280.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Enigma - Best Of 3CD (2009) 3 x CD, Compilation, Reissue, 2012, Virgin Music [FL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204281.jpgsave_picture_204281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204281.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D6588AA6271DFED328EB873A20E4B79E9FC8EF23
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204282.jpgsave_picture_204282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204282.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ R-Studio Network 9.2 Build 191115 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204283.jpgsave_picture_204283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204283.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Dance Top 100 - Summer 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204284.jpgsave_picture_204284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204284.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B522467BF3A5B453698BCCC9017630B8BCE6BB97
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204285.jpgsave_picture_204285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204285.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A105C7391C7F35560E6733CB60877EFA68F8F7E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204286.jpgsave_picture_204286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204286.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204287.jpgsave_picture_204287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204287.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AC5D862F2C07004B63653D2418040F5EF13C0ACD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204288.jpgsave_picture_204288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204288.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:5646685F5E6E67B5CD0E06F375FEF600D532CB45
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204289.jpgsave_picture_204289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204289.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Marvin Gaye - Let's Get It On (1978) 5CD, Deluxe Edition, 2023, Motown [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204290.jpgsave_picture_204290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204290.jpg" />
 </div>
 
 

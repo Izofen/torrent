@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193646.jpgsave_picture_193646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193646.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F0F8F5310A9BE1DAFD3D441FF20CCC89935DE4D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193647.jpgsave_picture_193647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193647.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193648.jpgsave_picture_193648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193648.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193649.jpgsave_picture_193649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193649.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193650.jpgsave_picture_193650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193650.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9F9A1DB8ECDEF050ACFD9A8FAB534C94D2AAEAB2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193651.jpgsave_picture_193651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193651.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:0F40D5F0E8097415626F37984A6E3CE8875026AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193652.jpgsave_picture_193652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193652.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C5BC2EBDD4AACD605FFE2960E49D7A21030E37DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193653.jpgsave_picture_193653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193653.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193654.jpgsave_picture_193654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193654.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Testament - Para Bellum (2025) 3 x CD, Japanese Edition, Deluxe Edition [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193655.jpgsave_picture_193655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193655.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F047FFB052A314FE386BDAC9138BB1458A24E70F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193656.jpgsave_picture_193656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193656.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:91EE3A852ED2A5647F98E0A6B981ACDA5FB69DCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193657.jpgsave_picture_193657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193657.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4B7FC707B60FA5E4E3F29C5DD133228F15BFA826
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193658.jpgsave_picture_193658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193658.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193659.jpgsave_picture_193659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193659.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:519AF27A7BE4B2BF2EC456D33823728FFB248D84
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193660.jpgsave_picture_193660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193660.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1090BD6909F296D77096FBA8AAB3596B5929EE07
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193661.jpgsave_picture_193661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193661.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2ACB7F9915DBDA129A825E112F909A9BFB311446
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193662.jpgsave_picture_193662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193662.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:F69DA96C9CC2EDE7FA903F33BDD75F416D753097
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193663.jpgsave_picture_193663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193663.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Melodic Rock 100 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193664.jpgsave_picture_193664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193664.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193665.jpgsave_picture_193665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193665.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ MultiTimer: МультиТаймер v1.10.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193666.jpgsave_picture_193666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193666.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:C420AAE268912F1A915686C37033F043ED2888FD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193667.jpgsave_picture_193667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193667.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:11D8831FD8E9CAD5809CE9C93023430CB27A4F97
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193668.jpgsave_picture_193668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193668.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A651BDCE84D88C1BDB04383A64AC836C3FA5A585
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193669.jpgsave_picture_193669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193669.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1F1BE66BECEC591C6D0B2D942679D30E4F635590
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193670.jpgsave_picture_193670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193670.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Blasphemous 2 (2023) [Ru/Multi] (1.0.5-cs43681) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193671.jpgsave_picture_193671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193671.jpg" />
 </div>
 
 

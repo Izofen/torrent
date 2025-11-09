@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229231.jpgsave_picture_229231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:034FF7502AB5938850BE1B0C018F8E09188CAB3A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229233.jpgsave_picture_229233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229233.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:21E4DC3D62AA36ED45BEE08C079F6EA1A780D749
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229235.jpgsave_picture_229235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229235.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ PDF Converter Master 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229237.jpgsave_picture_229237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229237.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Eternity's End - Embers Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229239.jpgsave_picture_229239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229239.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:070801FAABAFD667C9DCD48C262D4F135F3475DD
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229240.jpgsave_picture_229240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229240.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7CD745BB37AC9A37B7BAFCA11A2F7543EBDDCB21
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229242.jpgsave_picture_229242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229242.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3267C20FDAAD03E35B072125AFEDA94742A13888
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229244.jpgsave_picture_229244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229244.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:44C080583E1DC91C52D761DBF1634167B0DE554D
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229245.jpgsave_picture_229245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229245.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Amanda Lear - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229246.jpgsave_picture_229246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229246.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:D44994C52EA6A52E69753C8112A38C8BCF587D6E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229249.jpgsave_picture_229249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229249.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229251.jpgsave_picture_229251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229251.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Victory - Gods Of Tomorrow (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229252.jpgsave_picture_229252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229252.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Yura Hatsuki × Seraph — Princess of the Blue Flame (2014) /Doujin/ <Gothic Ro
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229254.jpgsave_picture_229254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229254.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A238577EC373390DEC021E6D4FEC74D540A4AA42
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229255.jpgsave_picture_229255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229255.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Ironskills, Иван Гордынец | Программист 1С: с нуля 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229256.jpgsave_picture_229256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229256.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:91E9993B33FA7933DBDB97BF57312FFA0E430549
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229257.jpgsave_picture_229257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229257.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Pastebot 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229258.jpgsave_picture_229258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229258.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229259.jpgsave_picture_229259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229259.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229260.jpgsave_picture_229260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229260.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:2E15471805B3B8FC242EA27EB8A6E465AAED1DE0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229261.jpgsave_picture_229261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229261.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B26057D32C9C1541141878BEEC9475300273947D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229263.jpgsave_picture_229263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229263.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:8A7100AD839D4F6BD88F6DF4522E5B9AE1604BBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229264.jpgsave_picture_229264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229264.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:25EDFE524157A349BD2122FC0BE146BF3C963248
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229265.jpgsave_picture_229265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229265.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Best Driving EDM 2020 (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229266.jpgsave_picture_229266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229266.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ QuartzCode 1.67.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229267.jpgsave_picture_229267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229267.jpg" />
 </div>
 
 

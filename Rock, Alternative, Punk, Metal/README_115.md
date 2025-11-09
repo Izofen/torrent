@@ -6,7 +6,7 @@ King Curious - Common Sense For The Animal (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106328.jpgsave_picture_106328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106328.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krypticy - The Non-Return (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106331.jpgsave_picture_106331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106331.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106340.jpgsave_picture_106340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106340.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dark Heart - Out Of The Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106355.jpgsave_picture_106355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106355.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpgsave_picture_106373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Santa Ana Winds - Final Rendezvous (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpgsave_picture_106374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rampant Beast - Into The Infernal Pyre (2024) [MP3|320 Kbps] <Black, Speed, Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpgsave_picture_106398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpgsave_picture_106400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpgsave_picture_106402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpgsave_picture_106424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpgsave_picture_106434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Crypt Sermon - The Stygian Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpgsave_picture_106488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Worshipper - One Way Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpgsave_picture_106492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpgsave_picture_106496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse with Madiraca & Pupi (2024) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpgsave_picture_106500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpgsave_picture_106503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|image + .cue] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpgsave_picture_106504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpgsave_picture_106508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpgsave_picture_106509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpgsave_picture_106518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpgsave_picture_106519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Devastation Inc. - Beyond The Shape Of Violence (2020) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpgsave_picture_106523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpgsave_picture_106524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpgsave_picture_106529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Glaciers - Ivory (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpgsave_picture_106554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Innuendo - Jigsaw Sunset (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpgsave_picture_106557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpg" />
 </div>
 
 

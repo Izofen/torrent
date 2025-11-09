@@ -6,7 +6,7 @@ Jim Keller - End Of The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250487.jpgsave_picture_250487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250487.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7341BEC6720D3011BB849E1C06619D5481EF899C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250488.jpgsave_picture_250488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250488.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jeff McMillan - Momma Says There'll Be Days Like This (2025) [FLAC 24/44.1|Lossl
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250489.jpgsave_picture_250489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250489.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gerrit Veldman Band - Shifting Gears (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250490.jpgsave_picture_250490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250490.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Fat Harry & The Fuzzy Licks - Zero Ten Alley (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250491.jpgsave_picture_250491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250491.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Keiko Lee - KEIKO LEE sings Super Standards 3 (2025) [FLAC 24/96|Lossless|WEB-DL
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250492.jpgsave_picture_250492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250492.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Alma Micic & Eric Alexander - Lilac Wine 〜Tribute to Helen Merrill (2025) [FLA
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250493.jpgsave_picture_250493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250493.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:3F786E2BF67098DCF7EFBF8AD049F9068CEC45F2
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250494.jpgsave_picture_250494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250494.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Photo Editor v12.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250495.jpgsave_picture_250495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250495.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Photo Editor v12.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250496.jpgsave_picture_250496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250496.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E80FA54F1F017B60B628A79ABF5EE9BB91D06A82
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250497.jpgsave_picture_250497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250497.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:FD10ACF200302055A68B731AE5B413A4DFCCEB5B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250498.jpgsave_picture_250498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250498.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:8E66CF92602963B441442DB9E7EBA341335A0FBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250499.jpgsave_picture_250499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250499.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ DLNow Video Downloader 1.54.2025.11.01 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250500.jpgsave_picture_250500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250500.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Chromium 142.0.7444.60 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250501.jpgsave_picture_250501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250501.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Phantom Squad (2025) [Ru/Multi] (1.0.0.fb6954) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250502.jpgsave_picture_250502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250502.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250503.jpgsave_picture_250503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250503.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250504.jpgsave_picture_250504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250504.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:94F48039717AC8A6B860002BB0984CF1DE5165FF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250505.jpgsave_picture_250505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250505.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ OCCT 15.0.7 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250506.jpgsave_picture_250506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250506.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:B654F30CAB5624BBA0A3ABC44F2C9B5C1483ADBE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250507.jpgsave_picture_250507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250507.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PotPlayer 251028 (1.7.22691) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250508.jpgsave_picture_250508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250508.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VideoProc Converter AI 8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250509.jpgsave_picture_250509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250509.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:A46FFA1A7ECEF8B1E114D233329D34F13FB9A8DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250510.jpgsave_picture_250510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250510.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:864BDEDE5F9EDF6449949761D60EEFAB690510C1
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250513.jpgsave_picture_250513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250513.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:864BDEDE5F9EDF6449949761D60EEFAB690510C1
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250514.jpgsave_picture_250514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250514.jpg" />
 </div>
 
 

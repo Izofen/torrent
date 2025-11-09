@@ -6,7 +6,7 @@ Karpathian Relict - Never Be After (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190197.jpgsave_picture_190197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190197.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EFF0AA3C2848D68106BDE94729848F2FDD8C3FE7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190198.jpgsave_picture_190198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190198.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Boxy SVG 4.12.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190199.jpgsave_picture_190199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190199.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Antipod - Eveil (2023) [FLAC|Lossless|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190201.jpgsave_picture_190201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190201.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3DE8FB1CCF525209A19EE3372A65CEC0386A7EE4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190202.jpgsave_picture_190202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190202.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:CECA98EF3D7F525ACA3367613B066F595E08CB74
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190203.jpgsave_picture_190203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190203.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Spirit Adrift - Divided By Darkness (2019) 2020 [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190205.jpgsave_picture_190205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190205.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190207.jpgsave_picture_190207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190207.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190209.jpgsave_picture_190209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190209.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Daiistar - Good Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ und Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190211.jpgsave_picture_190211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190211.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ App Tamer 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190213.jpgsave_picture_190213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190213.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:533E0D97D58AC1A765D89D2F0A50FA9EE118928B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190214.jpgsave_picture_190214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190214.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Dropzone 4 Pro 4.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190215.jpgsave_picture_190215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190215.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Majesty of Revival - Timeless (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190217.jpgsave_picture_190217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190217.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpgsave_picture_190219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Viper FTP 6.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190225.jpgsave_picture_190225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190225.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:42A58A0133045866F81D6AF29058434146CBFDE6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190226.jpgsave_picture_190226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190226.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dato 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190227.jpgsave_picture_190227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190227.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ WSCC (Windows System Control Center) 7.0.5.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190228.jpgsave_picture_190228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190228.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3DBDB462D659CC2C94CF6EDEA5F4328392913BB8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190229.jpgsave_picture_190229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190229.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpgsave_picture_190230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ A Canorous Quintet - The Only Pure Hate MMXVIII (2018) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190231.jpgsave_picture_190231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190231.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ AirMail Pro 5 v.5.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190233.jpgsave_picture_190233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190233.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Data Guardian 7 v.7.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190234.jpgsave_picture_190234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190234.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dropshare 5 v.5.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190235.jpgsave_picture_190235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190235.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:2AA12E77A45D7F0D6032E669BA6F4ACAFE5F6B1E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190236.jpgsave_picture_190236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190236.jpg" />
 </div>
 
 

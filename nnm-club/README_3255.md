@@ -6,7 +6,7 @@ Fostermother - Echo Manor (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104991.jpgsave_picture_104991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104991.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B542EA58E22069C1F906CBD68772747238B34924
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104992.jpgsave_picture_104992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104992.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Grimskull - Gathering Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104993.jpgsave_picture_104993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104993.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Oh He Dead - Ugly (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104994.jpgsave_picture_104994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104994.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Picture Bird - Bird Identifier v2.9.27 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104995.jpgsave_picture_104995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104995.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Fast Video Cutter Joiner 5.3.0.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104996.jpgsave_picture_104996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104996.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ PowerISO 8.9 Portable by FC Portables [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104997.jpgsave_picture_104997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104997.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Cockos REAPER 7.22 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104998.jpgsave_picture_104998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104998.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Beat Find / Распознавание музыки v1.6.3 Mod by NURIK kz [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104999.jpgsave_picture_104999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104999.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:1487B552247D9E95234914BBE08D0C66A393CD1B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105000.jpgsave_picture_105000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105000.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ YT Downloader 9.10.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105001.jpgsave_picture_105001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105001.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ SnapEdit - AI photo editor v6.8.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105002.jpgsave_picture_105002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105002.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (2408) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105003.jpgsave_picture_105003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105003.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ CrystalDiskInfo 9.4.2 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105004.jpgsave_picture_105004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105004.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C56BFC07D821EDC6E4D1254C1308D89571F3F289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105005.jpgsave_picture_105005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105005.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C56BFC07D821EDC6E4D1254C1308D89571F3F289
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105006.jpgsave_picture_105006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105006.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:85C1FC13863C5F7DA168927DDD715ACDA887C6D0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105007.jpgsave_picture_105007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105007.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105008.jpgsave_picture_105008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E6732CFDE61D702C82CDFA949735E938CBD3B69B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105009.jpgsave_picture_105009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105009.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:85DA55DE8DCCD19B9061DC58E3F8AA1CB6E5F655
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105010.jpgsave_picture_105010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105010.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Joe Pass - Whitestone (1985) 1987, Pablo [APE|Lossless|image + .cue] <Jazz Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105011.jpgsave_picture_105011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105011.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105012.jpgsave_picture_105012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105012.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Andre Matos (& Virgo (Matos-Paeth)) - Studio Albums (4 releases) (2001-2012) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpgsave_picture_105013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:63EA7575DE25778EFF3E2697726E580448A5D058
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105014.jpgsave_picture_105014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105014.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105015.jpgsave_picture_105015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105015.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0809) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105016.jpgsave_picture_105016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105016.jpg" />
 </div>
 
 

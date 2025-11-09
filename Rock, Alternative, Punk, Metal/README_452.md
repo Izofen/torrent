@@ -6,7 +6,7 @@ Rampage - Asgard (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240823.jpgsave_picture_240823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240825.jpgsave_picture_240825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240825.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240830.jpgsave_picture_240830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240830.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240834.jpgsave_picture_240834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240840.jpgsave_picture_240840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240840.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240842.jpgsave_picture_240842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240842.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hypocrisy - The Fourth Dimension (1994) Remaster, 2023, Nuclear Blast Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240843.jpgsave_picture_240843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240843.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Anthems Of Gomorrah - Aelvica (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Det
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240846.jpgsave_picture_240846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240846.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Khanate - To Be Cruel (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240851.jpgsave_picture_240851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240851.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240855.jpgsave_picture_240855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240855.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dark Princess - Phoenix (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240858.jpgsave_picture_240858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240858.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Invent Animate - Heavener (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240868.jpgsave_picture_240868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240868.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Gathering - Interference (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240873.jpgsave_picture_240873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240873.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Crystal Tears - Generation X (2010) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240874.jpgsave_picture_240874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240874.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Julius Project - Cut The Tongue (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240878.jpgsave_picture_240878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240878.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Samarithan - Tales Of Doom (2022) [MP3|320 Kbps] <Heavy Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240879.jpgsave_picture_240879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240879.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Invisible - Heavy Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240883.jpgsave_picture_240883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240883.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Alexey Amusin - The Rocker (2020) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240891.jpgsave_picture_240891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240891.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Endseeker - Mount Carcass (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240893.jpgsave_picture_240893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240893.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Soho Riot - Square One (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240896.jpgsave_picture_240896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240896.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Shadowspawn - The Biology Of Disbelief (2021) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240915.jpgsave_picture_240915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240915.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Neverlove - Добро пожаловать на бал (2023) [MP3|320 Kbps] <A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240924.jpgsave_picture_240924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240924.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Celestial Season - The Secret Teachings (2020) [FLAC|Lossless|image + .cue] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240934.jpgsave_picture_240934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240934.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nовая Zямля - Вечно живой (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240951.jpgsave_picture_240951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240951.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Paul Wardingham - Day Zero I: Rise Of The Horde (2020) [MP3|320 Kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240963.jpgsave_picture_240963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240963.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Temtris - Khaos Divine (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240970.jpgsave_picture_240970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240970.jpg" />
 </div>
 
 

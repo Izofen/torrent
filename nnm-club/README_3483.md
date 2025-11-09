@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110919.jpgsave_picture_110919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110919.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:652AA308C2002D91C465AF062460D438D2A50087
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110920.jpgsave_picture_110920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110920.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110921.jpgsave_picture_110921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110921.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110922.jpgsave_picture_110922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110922.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:2F1ECC0BF5D32C56803C256A39A8F62C5DC67CF5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110923.jpgsave_picture_110923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110923.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C5379A281B1D3A84B0E156B85155849708ED99A0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110924.jpgsave_picture_110924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110924.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110925.jpgsave_picture_110925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110925.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110926.jpgsave_picture_110926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110926.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110927.jpgsave_picture_110927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110927.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110928.jpgsave_picture_110928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110928.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:AA5E191C44497C589CE1B0F2BCA63BDFF3EB0539
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110929.jpgsave_picture_110929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110929.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:DA00D17F763683C43408BB119EA5192CCAA8A2D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110930.jpgsave_picture_110930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110930.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110931.jpgsave_picture_110931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110931.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2561D8B0B5DC175ADB6D51EA40A5AEC5292FB2C4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110932.jpgsave_picture_110932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110932.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Strava: бег, велоезда, хайкинг v357.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110933.jpgsave_picture_110933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110933.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:8A16528C872317ECD89E6A2A1029E1B97037AF8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110934.jpgsave_picture_110934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110934.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:C225BDED818527ADEA2475931BE71614F33978A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110935.jpgsave_picture_110935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110935.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:B2D1C4C004D7FF66850AB9EA17B149FAEC0F6595
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110936.jpgsave_picture_110936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110937.jpgsave_picture_110937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110937.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Vivaldi 6.7.3329.17 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110938.jpgsave_picture_110938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110938.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:BE97F28DD3B25371212EEE8292819276C96F983C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110939.jpgsave_picture_110939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110939.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B9A95A225E9118C9A2C95AB728895039F55D6461
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110940.jpgsave_picture_110940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110940.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpgsave_picture_110941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110941.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Google Chrome 124.0.6367.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110942.jpgsave_picture_110942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110942.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:6CDF55A941343A15EE16AC6555CE14469F3FAA50
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110943.jpgsave_picture_110943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110943.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Photo Lab PRO v3.13.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110944.jpgsave_picture_110944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110944.jpg" />
 </div>
 
 

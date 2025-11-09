@@ -6,7 +6,7 @@ VA - Manuel Rocca Presents: White Clouds Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31789.jpgsave_picture_31789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31789.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4B02F55E91569C1BAFDB2DAE437274A701359960
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31790.jpgsave_picture_31790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31790.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:982F1F99D280270B2B6556CD29FF9EBE1B75F78D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31791.jpgsave_picture_31791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31791.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Music News For Forum vol.054 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31792.jpgsave_picture_31792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31792.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Janosik (2020) [Ru/Multi] (1.8.06a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31793.jpgsave_picture_31793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31793.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Any Video Downloader Pro 9.1.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31794.jpgsave_picture_31794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31794.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:7C6D9D4A1A3A270C4368CAD78FB80AA54DD1D346
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31795.jpgsave_picture_31795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31795.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Franzis FOCUS 6 Pro 6.13.04017 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31796.jpgsave_picture_31796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31796.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:C719CF4EE15DC13205432C5825C5B38B42B04DBC
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31797.jpgsave_picture_31797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31797.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:C951E9E13934D7AAA2A7C7577544B15943799F23
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31798.jpgsave_picture_31798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31798.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31799.jpgsave_picture_31799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31799.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31800.jpgsave_picture_31800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31800.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:58DA836E7AFBBC1AC9D63B3683C3CF0B262E57BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31801.jpgsave_picture_31801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31801.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Clipboard Master 5.8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31802.jpgsave_picture_31802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31802.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0740BD542838DD7F54890FED3E3173AD837C862A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31803.jpgsave_picture_31803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31803.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Adrian & Raz Vocal Trance Top 10 Volume 1 - 3 (2013) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31804.jpgsave_picture_31804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31804.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:484A5192634991B32C86FCA1EA41341680148E01
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31805.jpgsave_picture_31805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31805.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:0E659088E7214546777AD0A73177E68BE07A4397
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31806.jpgsave_picture_31806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31806.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ascold Flow | Вторжение (Книга 2). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31807.jpgsave_picture_31807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31807.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Massive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31808.jpgsave_picture_31808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31808.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:3F7656C0A010988F18B4873CC6EA48D4A156BC21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31809.jpgsave_picture_31809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31809.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31810.jpgsave_picture_31810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31810.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:9E1C1558DDB47DB92F188FFD0129B867B9C2DBD8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31811.jpgsave_picture_31811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31811.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:FAE3DAD8A8493BDEB50F41D526168C2A543D074B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31812.jpgsave_picture_31812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31812.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpgsave_picture_31813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31814.jpgsave_picture_31814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31814.jpg" />
 </div>
 
 

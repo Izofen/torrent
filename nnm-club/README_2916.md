@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85972.jpgsave_picture_85972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85972.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F6FAC0C972E5B108AAA3E34610BDD263B59222A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85973.jpgsave_picture_85973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85973.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0BDECB87B1FAE4EEA74980A32E64100965E48CCB
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85976.jpgsave_picture_85976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85976.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BB882CA84844BE0264E9E0282B73BAD14F0D593D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85977.jpgsave_picture_85977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85977.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BB882CA84844BE0264E9E0282B73BAD14F0D593D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85978.jpgsave_picture_85978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85978.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85980.jpgsave_picture_85980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85980.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85981.jpgsave_picture_85981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85981.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Elect
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85982.jpgsave_picture_85982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85982.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Volko Audio - Volko Alaturka Drum v1.1 by ASSiGN (VST)[английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85984.jpgsave_picture_85984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85984.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Volko Alaturka Drum - виртуальный барабанный модуль �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85988.jpgsave_picture_85988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85988.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85989.jpgsave_picture_85989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85989.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E51EF67D82CCAAFC0EBE0DE4B7CC7E311C9338C4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85990.jpgsave_picture_85990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85990.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Perfect Icon 2.40 [Rus] RePack
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85993.jpgsave_picture_85993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85993.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Perfect Icon - это мощный и, в то же время, очень пр�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85994.jpgsave_picture_85994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85994.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Perfect Icon - это мощный и, в то же время, очень пр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85995.jpgsave_picture_85995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85995.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Perfect Icon - это мощный и, в то же время, очень пр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85996.jpgsave_picture_85996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85996.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C6F8FF5DAD45226AEC218D8EEA8D630758FEC50F
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85997.jpgsave_picture_85997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85997.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:569BFEEB783FADB31799700EE348DD42FA098FAC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85998.jpgsave_picture_85998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85998.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D99ADB86E8FCA999708928DEE2CB4183BEA9190C
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85999.jpgsave_picture_85999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85999.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D99ADB86E8FCA999708928DEE2CB4183BEA9190C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86000.jpgsave_picture_86000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86000.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:FAB670425B576DFCC825DC1206D1970464BF6060
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86002.jpgsave_picture_86002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86002.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:77300F64BB4900ECD24F899E634F8D8151C54F76
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86003.jpgsave_picture_86003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86003.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ MyLanViewer 4.9.11 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86006.jpgsave_picture_86006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86006.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mylanviewer - простой и удобный сканер-вьювер ваш�
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86007.jpgsave_picture_86007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86007.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7C20273C13AA691D46800D36E700DD193B9D0927
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86009.jpgsave_picture_86009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86009.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Freeware WPI by q1q1 x64 Edition 1.0 (04/2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86010.jpgsave_picture_86010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86010.jpg" />
 </div>
 
 

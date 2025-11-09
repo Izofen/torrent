@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpgsave_picture_134816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134818.jpgsave_picture_134818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134818.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134823.jpgsave_picture_134823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134823.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134824.jpgsave_picture_134824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134824.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134825.jpgsave_picture_134825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134825.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134826.jpgsave_picture_134826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134826.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:EAF99EB2A018C4537D4839E28467AB670F64F57D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134829.jpgsave_picture_134829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134829.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134831.jpgsave_picture_134831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134831.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134832.jpgsave_picture_134832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134832.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134833.jpgsave_picture_134833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134833.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:E5702A5DBDD7B2B6DDEBEE9EE2700830F3AE12FC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134835.jpgsave_picture_134835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134835.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:F2EB7D2423D9EC3CF30A1D1200A161390CB2168B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134836.jpgsave_picture_134836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134836.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:3C34D3BCAA252D2F8F32F781FCAF42675EF674DF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134837.jpgsave_picture_134837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134837.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ FileOptimizer 16.40.2781 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134839.jpgsave_picture_134839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134839.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ City Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134840.jpgsave_picture_134840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134840.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:7192D5FC278AA33FBAE75F43A06F3D99F626E494
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134841.jpgsave_picture_134841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134841.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134842.jpgsave_picture_134842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134842.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:16BC83B85C68B1189C59EA30E5E8CF6A728188DC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134843.jpgsave_picture_134843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134843.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:AC93630B1DC098027A7F39EA72A041EAFF6163F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134844.jpgsave_picture_134844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134844.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134845.jpgsave_picture_134845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134845.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:64230FF31194330B4DF6B7EDBD45EC74AAB14CFA
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134846.jpgsave_picture_134846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134846.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:71F35AC13F920EC85C29F4E1F46B64B6ECA36C15
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134847.jpgsave_picture_134847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134847.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Udemy, Chris Sivewright | Strokes disable. Heart attacks/strokes also kill - tho
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134848.jpgsave_picture_134848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134848.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:850F30BE0FDC903CC5659FC3AF2166154148D894
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134849.jpgsave_picture_134849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134849.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ K-Lite Codec Pack Update 17.9.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134850.jpgsave_picture_134850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134850.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Winter Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134851.jpgsave_picture_134851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134851.jpg" />
 </div>
 
 

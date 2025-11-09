@@ -6,7 +6,7 @@
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221087.jpgsave_picture_221087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221087.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Chromium 115.0.5790.171 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221097.jpgsave_picture_221097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221097.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PDF Expert 3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221103.jpgsave_picture_221103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221103.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A83EB1D42A6FCA00D0E9FA0C183C5D9C46199B92
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221108.jpgsave_picture_221108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221108.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:29EDB7F36AC417166F51721030B3E20E90765CD8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221114.jpgsave_picture_221114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221114.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:AB52F2719A411F7A4E822E9DAEBF1F4340518E0E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221119.jpgsave_picture_221119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221119.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ MacCleaner 3 PRO 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221122.jpgsave_picture_221122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221122.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3A030EEECFF3D024AB5F6AE93BEFE52C878768D8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221128.jpgsave_picture_221128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221128.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3C043402C7466F10EFBF2D5150C4F7FD592ACCDE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221134.jpgsave_picture_221134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221134.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221144.jpgsave_picture_221144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221144.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221154.jpgsave_picture_221154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221154.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221161.jpgsave_picture_221161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221161.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221169.jpgsave_picture_221169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221169.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221181.jpgsave_picture_221181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221181.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221192.jpgsave_picture_221192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221192.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221224.jpgsave_picture_221224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221224.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221233.jpgsave_picture_221233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221233.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:F83CBB63BC2D266B17F67B1200BA64BA1DAE11C8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221239.jpgsave_picture_221239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221239.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:DD87F5A8CF541355189D752F9EC3E111BDB36B2B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221242.jpgsave_picture_221242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221242.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Joel Hoekstra's 13 - Crash Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221247.jpgsave_picture_221247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221247.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Tram - Tram (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Elect
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221255.jpgsave_picture_221255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221255.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221263.jpgsave_picture_221263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221263.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221264.jpgsave_picture_221264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221264.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221270.jpgsave_picture_221270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221270.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:71800411A4B48A0995FF8BF3F1A4426A4195F149
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221271.jpgsave_picture_221271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221271.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sam Rucker - In Position, The Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221277.jpgsave_picture_221277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221277.jpg" />
 </div>
 
 

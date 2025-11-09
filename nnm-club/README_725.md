@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19176.jpgsave_picture_19176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19176.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Free Download Manager 6.27.0.6265 x64 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19177.jpgsave_picture_19177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19177.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E22C84348ED05E8478A0090391EB95BD2FF3F856
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19178.jpgsave_picture_19178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19178.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Auslogics Registry Cleaner Pro 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19179.jpgsave_picture_19179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19179.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Vivaldi 7.3.3635.12 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19180.jpgsave_picture_19180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19180.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:83579D11F07B145DD297CFC65E7E71AFDBDC819A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19181.jpgsave_picture_19181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19181.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E61D14C88B814E6E0CFB1CEA0BE04410132C57D8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19182.jpgsave_picture_19182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19182.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19183.jpgsave_picture_19183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19183.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:CC58BD97383F9BC2DD74ECEA20FE1D55F30E7657
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19184.jpgsave_picture_19184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19184.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Imagine 2.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19185.jpgsave_picture_19185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19185.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ USB Safely Remove 7.1.1.1326 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19186.jpgsave_picture_19186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19186.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Auslogics Driver Updater 2.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19187.jpgsave_picture_19187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19187.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PotPlayer 250313 (1.7.22508) RePack (& Portable) by elchupacabra (06.05.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19188.jpgsave_picture_19188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19188.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:B2468911D2F82B86E38C8E8A3BD6CFFC23297C97
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19189.jpgsave_picture_19189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19189.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19190.jpgsave_picture_19190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19190.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19191.jpgsave_picture_19191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19191.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:6606F27D8941EAD88358505EE981F3065B007B84
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19192.jpgsave_picture_19192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19192.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:2E9DB3AAE6A0EB6314A91C213548C498BABBE347
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19193.jpgsave_picture_19193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19193.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E0F250CB417F0E4C684F5406B312C867B6F76DB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19194.jpgsave_picture_19194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19194.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F0BBA71969A5EA4ABB6A9643E7F67D1F65E587CA
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19195.jpgsave_picture_19195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19195.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19196.jpgsave_picture_19196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19196.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:904106423C197133E9E8217AF345AB24BB3A2727
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19197.jpgsave_picture_19197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19197.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3A966F68A115D083E75F7D9B238F5B5FB40F5BA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19198.jpgsave_picture_19198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19198.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19199.jpgsave_picture_19199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19199.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19200.jpgsave_picture_19200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19200.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19201.jpgsave_picture_19201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19201.jpg" />
 </div>
 
 

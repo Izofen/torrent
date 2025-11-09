@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229480.jpgsave_picture_229480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229480.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Big Bass: Drum Sound Musical Collection Vol.01 (2020) [MP3|320 Kbps] <Drum 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229481.jpgsave_picture_229481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229481.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Native SQLite Manager 1.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229482.jpgsave_picture_229482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229482.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A1789EE11FEAD44CCDC0682BC0E74AC774034FFC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229484.jpgsave_picture_229484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229484.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229485.jpgsave_picture_229485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229485.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229486.jpgsave_picture_229486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229486.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Rouge - 1 Album, 5 Singles & EPs (1985-1988) (ex. Arabesque) [MP3|320 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229487.jpgsave_picture_229487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229487.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Melt - Replica of Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229488.jpgsave_picture_229488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229488.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7E12ACD4E6EBEB916FEED024EABC82B50D48D073
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229489.jpgsave_picture_229489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229489.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Find Any File (FAF) 2.3.2 b9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229490.jpgsave_picture_229490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229490.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1B838125BC9885D36943FD488010E97BE74456FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229491.jpgsave_picture_229491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229491.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:BA0804D601BD894F7E53B1FEAD38F64256B48AC0
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229492.jpgsave_picture_229492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229492.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:A3FDEF3BCFBE55EC9E2A6FFC46AC77401C360F1F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229493.jpgsave_picture_229493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229493.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Death Destroyer - Death Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229494.jpgsave_picture_229494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229494.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:75C0B97D372796D2598AE08D6D4805B9BDA96D53
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229495.jpgsave_picture_229495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229495.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:EC428F9F100182BBB045D3848FB590D199717240
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229496.jpgsave_picture_229496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229496.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Chillout Adventures, Pt. 3 (Compiled by Lydia) (2021) [AAC|~327 Kbps] <Ambi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229498.jpgsave_picture_229498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229498.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:029D90CB77D32D2835403B1C113AF9EDAA433CA9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229499.jpgsave_picture_229499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229499.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6532F2AFD46F22979E314E3D8FBE85CC25083DA4
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229500.jpgsave_picture_229500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229500.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Next Limit RealFlow 2015 9.1.1.0186 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229501.jpgsave_picture_229501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229501.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Green Labyrinth - Shadow of My Past (2014) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229502.jpgsave_picture_229502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229502.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:C3403537F891CD491C9AE98D1F4E9F691A61171D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229503.jpgsave_picture_229503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229503.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Art Of Life - Find the Light (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229504.jpgsave_picture_229504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229504.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ SnapMotion Unlimited 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229506.jpgsave_picture_229506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229506.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - New Dance Musical Releases (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229507.jpgsave_picture_229507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229507.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Luxion Keyshot Pro 6.0.266 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229508.jpgsave_picture_229508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229508.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204567.jpgsave_picture_204567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204594.jpgsave_picture_204594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204594.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn In
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204654.jpgsave_picture_204654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204654.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204764.jpgsave_picture_204764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204764.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204927.jpgsave_picture_204927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204927.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205109.jpgsave_picture_205109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205109.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206608.jpgsave_picture_206608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206608.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206766.jpgsave_picture_206766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206766.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Udemy, Richard Chesterwood | Docker - Hands On for Java Developers (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207989.jpgsave_picture_207989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207989.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208660.jpgsave_picture_208660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208660.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ JUG Ru Group | Mobius 2023 Spring. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208682.jpgsave_picture_208682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208682.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & Design of Modern Large Scal
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208804.jpgsave_picture_208804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208804.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Opti
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208821.jpgsave_picture_208821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208821.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212134.jpgsave_picture_212134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212134.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:340A24934D956EB19836DA357A2358A1DE45F67F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212572.jpgsave_picture_212572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212572.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212609.jpgsave_picture_212609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212609.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212623.jpgsave_picture_212623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212623.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212625.jpgsave_picture_212625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212625.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213458.jpgsave_picture_213458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213458.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213459.jpgsave_picture_213459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213459.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215058.jpgsave_picture_215058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215058.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ OTUS, Вадим Заигрин | Apache Kafka (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217537.jpgsave_picture_217537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217537.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228907.jpgsave_picture_228907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228907.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229011.jpgsave_picture_229011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229011.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229257.jpgsave_picture_229257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229257.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229530.jpgsave_picture_229530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229530.jpg" />
 </div>
 
 

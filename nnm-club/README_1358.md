@@ -6,7 +6,7 @@ Kylie Minogue - Compilation (1988-2024) [MP3|320 Kbps] <Pop, Dance pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35663.jpgsave_picture_35663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35663.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FA837A00400C1D95D539A172D3CCD41A7D0D1B10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35664.jpgsave_picture_35664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35664.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CF6188605FAE781AFD3480E2063BC0D7D5A3EF0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35665.jpgsave_picture_35665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35665.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CF6188605FAE781AFD3480E2063BC0D7D5A3EF0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35666.jpgsave_picture_35666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35666.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ A pet shop after dark (2022) [Ru/Multi] (1.051) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35667.jpgsave_picture_35667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35667.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Daff Moon Phase (Фазы Луны) v3.42 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35668.jpgsave_picture_35668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35668.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E195E633676203244848105B9AFA466356B5F45A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35669.jpgsave_picture_35669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35669.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2AA157F3E0979B33D3AA77DDD211363960D1E05C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35670.jpgsave_picture_35670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35670.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Sky Oceans: Wings for Hire (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpgsave_picture_35671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35671.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpgsave_picture_35672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35672.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35673.jpgsave_picture_35673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35673.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ruslan Sharipov | Изи навыки - (UX) (2024) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35674.jpgsave_picture_35674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35674.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:74823D5A92FA8F59E72F6B6D21CF3AB8EB5FE85D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35675.jpgsave_picture_35675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35675.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Elementary OS 8 Circe [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35676.jpgsave_picture_35676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35676.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35677.jpgsave_picture_35677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35677.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3DF7DED63B51435350635EF1A8666D4FAD62409B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35678.jpgsave_picture_35678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35678.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:BB69D8DD548F96620190F07E664BF71786D3B66D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35679.jpgsave_picture_35679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35679.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35680.jpgsave_picture_35680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35680.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35681.jpgsave_picture_35681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35681.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B5C8D9ABABEB3B56B8796669349E972593FC1BEA
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35682.jpgsave_picture_35682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35682.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Office Tab Enterprise 16.00 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35683.jpgsave_picture_35683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35683.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35684.jpgsave_picture_35684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35684.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35685.jpgsave_picture_35685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35685.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:AB0DA4268B6FB1C0C5A552E4E7840C955CE1262A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35686.jpgsave_picture_35686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35686.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:F9BDB97463F42DBC7F529FA31FD0EE336C015ED1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35687.jpgsave_picture_35687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35687.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35688.jpgsave_picture_35688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35688.jpg" />
 </div>
 
 

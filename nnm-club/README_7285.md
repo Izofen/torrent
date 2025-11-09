@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249447.jpgsave_picture_249447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76B60AA176E4910242A2FFA606817CD0F4DD7E0F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249448.jpgsave_picture_249448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5090678FCF402F7681CBE4F36A3EC3643279E7EA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249449.jpgsave_picture_249449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249449.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Aviana - Void (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249450.jpgsave_picture_249450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249450.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3E5034BAE039EB3F21D11B6FA86403E88A5E9A8E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249451.jpgsave_picture_249451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249451.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E026F990AF6061B6AC506861DD26AF5A9E1561A9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249452.jpgsave_picture_249452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249452.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249453.jpgsave_picture_249453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249453.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Soulwax - All Systems Are Lying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249454.jpgsave_picture_249454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249454.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A3DA79041019A7FE7BC55D644886C33D4837CAD8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249455.jpgsave_picture_249455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249455.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8A40A40142937A51FE931EC5844307F6CB2B062F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249456.jpgsave_picture_249456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249456.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:EDB2E0B56F9FA6034054584FB84DA44D5FFCB47D
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249457.jpgsave_picture_249457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249457.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpgsave_picture_249458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Blackmagic Design DaVinci Resolve Studio 18.0.0 Build 36 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249459.jpgsave_picture_249459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249459.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PortableApps.com Platform 21.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249460.jpgsave_picture_249460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249460.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249461.jpgsave_picture_249461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249461.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249462.jpgsave_picture_249462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249462.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:E8F501B36400B94A42C16AB6505E14482F36FD0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249463.jpgsave_picture_249463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249463.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Telegram for Android 9.5.4 (3227) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249464.jpgsave_picture_249464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249464.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Reg Organizer 8.91 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249465.jpgsave_picture_249465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249465.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249466.jpgsave_picture_249466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249466.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E6441EBE9226BE233BD334FB664E0FCF5F74CADF
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249467.jpgsave_picture_249467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249467.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eguana - Night Ambient (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249468.jpgsave_picture_249468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249468.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AnyDesk 7.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249469.jpgsave_picture_249469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249469.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:65CB68C605DD006E37BCBC4CEC6F98174A2D056D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249470.jpgsave_picture_249470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249470.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:AF4680AB2BBC49011F9FFE366F166EB8E7A728E0
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249471.jpgsave_picture_249471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249471.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ GOM Player Plus 2.3.75.5339 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249472.jpgsave_picture_249472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249472.jpg" />
 </div>
 
 

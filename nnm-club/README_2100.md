@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54967.jpgsave_picture_54967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54967.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.7.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54968.jpgsave_picture_54968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54968.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F7FED454EF37988BD6C79D7B1DA9DA2A11E21B3B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54969.jpgsave_picture_54969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54969.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CDB46EDC93318D737BEB3341C2D48BF5C509F73
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54970.jpgsave_picture_54970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54970.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DC4773B2AAECF615E469A215A265FACDA4176779
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54971.jpgsave_picture_54971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54971.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:482CF4B93867B08CC9B6183432C9CF7C1D1CB1AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54972.jpgsave_picture_54972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54972.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Opera One 110.0.5130.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54973.jpgsave_picture_54973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54973.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:409040B370FE740C5D0565BDF1C2FB5A67CF1D1E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54974.jpgsave_picture_54974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54974.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dirtyphonics - Magnetic (2024) [FLAC|Lossless|WEB-DL|tracks] <drum & bass, drums
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54975.jpgsave_picture_54975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54975.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54976.jpgsave_picture_54976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54976.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:459925BAC9DAF0A153582943FB39ED38A4C21966
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54977.jpgsave_picture_54977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54977.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Chillout & Lounge Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54978.jpgsave_picture_54978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54978.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Telegram Desktop 5.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54979.jpgsave_picture_54979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54979.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Microsoft .NET 6.0.31 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54980.jpgsave_picture_54980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54980.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Playlist #1 - Rock & Pop Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54981.jpgsave_picture_54981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54981.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Skype 8.120.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54982.jpgsave_picture_54982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54982.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Perfectly Clear WorkBench 4.6.1.2662 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54983.jpgsave_picture_54983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54983.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:AF804B62DD989F1457D874B48B9D577B05A009CA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54984.jpgsave_picture_54984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54984.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Headless Ghost - King Of Pain (2024) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54985.jpgsave_picture_54985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54985.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A2B78A6ECC5E75A63DF4606462377AB9A45ACDD6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54986.jpgsave_picture_54986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54986.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Firefox Browser 126.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54987.jpgsave_picture_54987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54987.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Marc P. Cosentino | Case in Point 9: Complete Case Interview Preparation (2016) 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54988.jpgsave_picture_54988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54988.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Motorhead - Remorse? No! (1984) Remaster, 2024, Sanctuary Records [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54989.jpgsave_picture_54989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54989.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HWiNFO 8.03 Build 5455 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54990.jpgsave_picture_54990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54990.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Waterfox Current G6.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54991.jpgsave_picture_54991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54991.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54992.jpgsave_picture_54992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54992.jpg" />
 </div>
 
 

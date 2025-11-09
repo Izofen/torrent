@@ -6,7 +6,7 @@ Murya | Buspin Jieber - Discography 9 Releases (2011-2020) Touched Music, Rafton
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185883.jpgsave_picture_185883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185883.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:46E3D2F6034CEF5436A200611BC7F348AD7FAA80
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185885.jpgsave_picture_185885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185885.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:8261DDD4C8A83AA9B4D23D2A10811BDEB83EF02A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185887.jpgsave_picture_185887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185887.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:7E4A947136C8D26F5C65CF7B7E2839870F2B75F8
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185888.jpgsave_picture_185888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185888.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185890.jpgsave_picture_185890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185890.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:27B2756B978609F0343C58164758E5BBBE26EADF
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185891.jpgsave_picture_185891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185891.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Firefox Browser 118.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185893.jpgsave_picture_185893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185893.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Tineidae - Shadows (2014) Tympanik Audo [FLAC|24/44.1|WEB|Tracks]<IDM, Downtempo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185894.jpgsave_picture_185894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185894.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:DFE69A4FE5B7FBD26716A0654ACC449D3C62929A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185896.jpgsave_picture_185896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185896.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5AF4D3301E2E7CD3E26CECAF9F6D9E667FB2149A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185897.jpgsave_picture_185897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185897.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185899.jpgsave_picture_185899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185899.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185900.jpgsave_picture_185900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185900.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A4F43F34651971AC308AC7593695F9CCD23B9924
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185902.jpgsave_picture_185902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185902.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185904.jpgsave_picture_185904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185904.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:28DF58023FCB787CF07B27404BA5DFEB73B433D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185906.jpgsave_picture_185906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185906.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:184078C3D47D0670577B301DA89B4328FAD3A751
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185908.jpgsave_picture_185908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185908.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DiskTrix UltimateDefrag 6.0.72.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185909.jpgsave_picture_185909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185909.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:0DC23DDE673A2020AC9F59C3325AF92CEBADB9DF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185911.jpgsave_picture_185911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185911.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Blondie & Deborah Harry - 19 Albums (1976-2017) Collection [MP3|320 Kbps] <Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185912.jpgsave_picture_185912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185912.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:BBB6A8C1AF86F5DCEF666A4BF11830869E3BF187
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185915.jpgsave_picture_185915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185915.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:1F58F24122A92D85773AEDEB90C7CBE7457D64A6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185917.jpgsave_picture_185917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185917.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:569FFF85078CC7194FB0CCEF0C0280C421AD6D45
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185918.jpgsave_picture_185918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185918.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185920.jpgsave_picture_185920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185920.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:80C49AD147F851F0CED57C552F171C15F6F937EA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185921.jpgsave_picture_185921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185921.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:29FF9FF07E1F184E3F8418BD5BF06A86B9E4CDD0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185923.jpgsave_picture_185923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185923.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sumatra PDF 3.5.15686 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185924.jpgsave_picture_185924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185924.jpg" />
 </div>
 
 

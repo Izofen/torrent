@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118712.jpgsave_picture_118712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118712.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C012718F44C84977E8ECEC9E3F5F80FAC812C0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118713.jpgsave_picture_118713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2FFE0438A5B63E3C092D573CC48EB20E8507D842
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118714.jpgsave_picture_118714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118714.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0298B784663D600CA2CE8E978A18078E24B1D1CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118715.jpgsave_picture_118715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118715.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118716.jpgsave_picture_118716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118716.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118717.jpgsave_picture_118717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118717.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8D7E3D5D655E53AEDD8B0AC26CD9228EF34507C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118718.jpgsave_picture_118718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118718.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:018BEA9437331A8845074F63B830C38D934A5602
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118719.jpgsave_picture_118719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118719.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D968044ACB6C7CB26FF46FA3C13792FA41D0ED36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118720.jpgsave_picture_118720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118720.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:25F928A09F842FC28475EF01E2993BBC2B41D19F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118721.jpgsave_picture_118721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118721.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ GFI Kerio Control 9.4.4 build 8365 [x64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118722.jpgsave_picture_118722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118722.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3436C4B487F1BE242B961FFA12ED66355630F69B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118723.jpgsave_picture_118723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118723.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3436C4B487F1BE242B961FFA12ED66355630F69B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118724.jpgsave_picture_118724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118724.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B35425A7E6D37BB8E5C714FE64A16C32A3753E45
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118725.jpgsave_picture_118725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118725.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Pneumatic Transit - Forbidden Trinkets (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118726.jpgsave_picture_118726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118726.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:0E567A8B63519EE1ECA427D333C7AF77617CB347
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118727.jpgsave_picture_118727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118727.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118728.jpgsave_picture_118728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118728.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:7D691F3EB2FE192D4811AF68297AB10131997F33
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118729.jpgsave_picture_118729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118729.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:914B1BAB2DE2F81844D8AAE3AE976A592F5BE79F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118730.jpgsave_picture_118730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118730.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6BEB5B1C08C010E90FB8FE264B08CBE8CD8FA0B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118731.jpgsave_picture_118731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118731.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D24CBF1F6260B51D1B0CDEC6C78237306CB0FD0E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118732.jpgsave_picture_118732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118732.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118733.jpgsave_picture_118733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118733.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118734.jpgsave_picture_118734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118734.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118735.jpgsave_picture_118735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118735.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118736.jpgsave_picture_118736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118736.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118737.jpgsave_picture_118737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118737.jpg" />
 </div>
 
 

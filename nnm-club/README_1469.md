@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38549.jpgsave_picture_38549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38549.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpgsave_picture_38550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38551.jpgsave_picture_38551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38551.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Run
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpgsave_picture_38552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38553.jpgsave_picture_38553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38553.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E322447DC19AB6FAA752227B2F40D00AB2E84F40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38554.jpgsave_picture_38554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38554.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9361844CBF6C10971183FF4E91BD38081285D724
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38555.jpgsave_picture_38555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38555.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:618A8C87C5DAA2C9A5C78409108D644086C8EE63
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38556.jpgsave_picture_38556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38556.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ WWE 2K24 (2024) [Multi] (1.22/dlc) Scene Rune [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpgsave_picture_38557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpgsave_picture_38558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38559.jpgsave_picture_38559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38559.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:3D235CFF43EBFB2B1C95188915DB3DAE71AABD23
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38560.jpgsave_picture_38560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38560.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ V-Ray 7.00.02 for 3ds Max 2020-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38561.jpgsave_picture_38561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38561.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:D96B96873A7EBF8E908CF22F8EDB0AAD085A30F9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38562.jpgsave_picture_38562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38562.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:9E32C04367A3752B73C7E284E8F56D870B16A123
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38563.jpgsave_picture_38563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38563.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:86C66203303377182FD0C18648AED2DD81ED1096
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38564.jpgsave_picture_38564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38564.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:791F8BF30331405441349E9C295B2696A040A944
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38565.jpgsave_picture_38565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38565.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5A879E36ECA14C0EB34FE34215FC7AE4211DDA98
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38566.jpgsave_picture_38566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38566.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E9CC8589DC1C6404C2ACF223896132E3C9CCC33D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38567.jpgsave_picture_38567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38567.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3FC491DFC5742C7F4CB1950214A97F52A9DCFC45
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38568.jpgsave_picture_38568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38568.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:8FCE56577EDC876E22813CC21D1A03CFA3DD0851
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38569.jpgsave_picture_38569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38569.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Comodo Internet Security Premium 12.3.3.8152 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38570.jpgsave_picture_38570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38570.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:18EF3D29E72E00249923BD8442C6FC4C19C1DD16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38571.jpgsave_picture_38571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38571.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38572.jpgsave_picture_38572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38572.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Chess King - Обучение шахматам v1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38573.jpgsave_picture_38573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38573.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38574.jpgsave_picture_38574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38574.jpg" />
 </div>
 
 

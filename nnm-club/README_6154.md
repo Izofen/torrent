@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193389.jpgsave_picture_193389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193389.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CF4F770F52158C404E7BB064011B51BAA82956A9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193390.jpgsave_picture_193390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193390.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Alfa eBooks Manager 9.4.5.1 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpgsave_picture_193391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4F7A59AA41F871CD5452349DA9AEEE32EE1AEDFC
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193392.jpgsave_picture_193392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193392.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:523CB29B6FE647E873EA6A6EB82B3A734175D8DB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193393.jpgsave_picture_193393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193393.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpgsave_picture_193394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193394.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D4E390F0380C8923F0105491AD2F23313AE506BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193396.jpgsave_picture_193396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193396.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7E880826E059BF884F3FD0E8B1CF0295D2CBB609
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193397.jpgsave_picture_193397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193397.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ KMS Tools Lite Portable by Ratiborus 24.10.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpgsave_picture_193398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:758CB43BE77096BCD0B59D555A6B5189F8C0699A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193399.jpgsave_picture_193399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193399.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpgsave_picture_193400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B6BE1BFE07728AAC1049EEAB371A334950213BFB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193401.jpgsave_picture_193401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193401.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193402.jpgsave_picture_193402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193402.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193403.jpgsave_picture_193403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193403.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193404.jpgsave_picture_193404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193404.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193405.jpgsave_picture_193405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193405.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Interplay Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Melodi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193406.jpgsave_picture_193406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193406.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E3BB639FF4D33590F6A99B42C3BD04B9B1C59F78
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193407.jpgsave_picture_193407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193407.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:06F6C87168DAA53ABFD6FC4C9C8AFECBDE4C2037
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193408.jpgsave_picture_193408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193408.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:CE5CCD958D0D49D26414125023100E5DCE00626F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193409.jpgsave_picture_193409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193409.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:04C61DA9D142A14DC5C1E4388F22E46E0CF5FB2C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193410.jpgsave_picture_193410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193410.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpgsave_picture_193411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193412.jpgsave_picture_193412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193412.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MAX Desktop 25.14.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpgsave_picture_193413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Far Manager 3.0.6575 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193414.jpgsave_picture_193414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193414.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:EEF709ABBEF0901DDAE5A0B5093FCFC65717DA29
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193415.jpgsave_picture_193415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193415.jpg" />
 </div>
 
 

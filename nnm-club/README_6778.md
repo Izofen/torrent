@@ -6,7 +6,7 @@ Tor Browser Bundle 11.0.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233304.jpgsave_picture_233304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233304.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Return of the Obra Dinn v.1.2.120 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233306.jpgsave_picture_233306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233306.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DB663EC79D0E7C3C777E2943A472BA4F7EBDDC13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233307.jpgsave_picture_233307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233307.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233308.jpgsave_picture_233308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233308.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B34308C1C0CE7058CFB527066321F032B1FDA310
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233309.jpgsave_picture_233309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233309.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Tas Cru - Compilation (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233310.jpgsave_picture_233310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233310.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233311.jpgsave_picture_233311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233311.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8D9F72521E265F21CBC3E771A3D8F67DA4952A96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233312.jpgsave_picture_233312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233312.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E005D78209236A1E2F53BF78E5802C33CD9450A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233313.jpgsave_picture_233313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233313.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpgsave_picture_233314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233316.jpgsave_picture_233316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233316.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Wizard Master - Ablanathanalba (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233317.jpgsave_picture_233317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233317.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:80EBB57AEDAD3B12D98A93922E49888E76634E01
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpgsave_picture_233318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233318.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ XO Armor - Nublar (2023) [FLAC|24/44.1|WEB-DL|tracks] <Nu Metalcore, Rapcore, Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233319.jpgsave_picture_233319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233319.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:D523B70B9ACC2902C836C6DA6D94A2D94B389FCC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233320.jpgsave_picture_233320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233320.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:E97C5EDAE310C1C22FA39B527EC322D9C4C03F37
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233321.jpgsave_picture_233321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233321.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rory Gallagher - I'm Not Awake Yet (2023) 2CD Compilation  [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233323.jpgsave_picture_233323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233323.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233324.jpgsave_picture_233324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233324.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1739]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233325.jpgsave_picture_233325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233325.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:034BFE2D1E2F8AD68EF8E36AAEC4C2143C3B206B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233326.jpgsave_picture_233326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233326.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lucky Thompson - I Offer You (1973) 2018, Solid Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233327.jpgsave_picture_233327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233327.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:BC1FFF3CEA5439C2592A277344D4708DB73ACD7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233328.jpgsave_picture_233328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233328.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:D44E7573D97288D2C19C0678D84D7089053107D9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233329.jpgsave_picture_233329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233329.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:37BBFEC6B8A069454780FB83915BFA724A5B23D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233331.jpgsave_picture_233331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233331.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpgsave_picture_233332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233332.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Tiger Moth Tales - A Song Of Spring (2022) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233333.jpgsave_picture_233333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233333.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48207.jpgsave_picture_48207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48209.jpgsave_picture_48209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48209.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Barrhell (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48213.jpgsave_picture_48213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48213.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48230.jpgsave_picture_48230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48230.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48233.jpgsave_picture_48233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48233.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48242.jpgsave_picture_48242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48242.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48248.jpgsave_picture_48248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48248.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dystobel (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48293.jpgsave_picture_48293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48293.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Bo: Path of the Teal Lotus (2024) [Ru/Multi] (1.0.6) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48307.jpgsave_picture_48307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48307.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48337.jpgsave_picture_48337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48337.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48339.jpgsave_picture_48339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48339.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ruzar - The Life Stone (2015) [Ru/Multi] (1.0) Scene PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48346.jpgsave_picture_48346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48346.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48407.jpgsave_picture_48407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48407.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48412.jpgsave_picture_48412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48412.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ State of Decay 2 (2020) [Ru/Multi] (34.0/dlc) Scene Rune [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48438.jpgsave_picture_48438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48438.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Renovator: Origins (2024) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48439.jpgsave_picture_48439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48439.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48451.jpgsave_picture_48451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48451.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Thaumaturge (2024) [Ru/Multi] (1.1.1 HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48454.jpgsave_picture_48454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48454.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48463.jpgsave_picture_48463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48463.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mystical Riddles 5: Haunted Portraits (2024) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48475.jpgsave_picture_48475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48475.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ THE ORIGIN: Blind Maid (2021) [Multi] (1.3.0) Repack FitGirl [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48491.jpgsave_picture_48491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48491.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Downward (2017) [Multi] (2.0.2) Repack FitGirl [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48502.jpgsave_picture_48502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48502.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Let's School (2023) [Ru/Multi] (1.3.4.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48503.jpgsave_picture_48503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48503.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48504.jpgsave_picture_48504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48504.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pinball FX (2023) [Multi] (1.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48505.jpgsave_picture_48505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48505.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48524.jpgsave_picture_48524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48524.jpg" />
 </div>
 
 

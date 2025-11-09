@@ -6,7 +6,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.0.56/dlc) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43075.jpgsave_picture_43075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:95B14FDCE63766C419A76A2231B42D7E953C7E97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43076.jpgsave_picture_43076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43076.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01222E06AC136D049DB7A43895CD0AF6DFC67902
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43077.jpgsave_picture_43077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43077.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E9F5B8E65714C6D553C23B66A1848128B7B5A077
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43078.jpgsave_picture_43078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43078.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43079.jpgsave_picture_43079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43079.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43080.jpgsave_picture_43080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43080.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A2B399B9FE8DB15A1D9D465F6B1C6644792629C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43081.jpgsave_picture_43081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43081.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A2B399B9FE8DB15A1D9D465F6B1C6644792629C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43082.jpgsave_picture_43082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43082.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ The Sims 5 не будет — будет единая "масштабная п�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43083.jpgsave_picture_43083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43083.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ EA сообщила, что над следующей игрой серии The 
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43084.jpgsave_picture_43084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43084.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:10376F1ED2D64366349D95B674BDDFC997BD22C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43085.jpgsave_picture_43085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43085.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:10376F1ED2D64366349D95B674BDDFC997BD22C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43086.jpgsave_picture_43086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43086.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4450C5671FCD7721D6ADB1EB83ED3CDD0F406CE5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43087.jpgsave_picture_43087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43087.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43088.jpgsave_picture_43088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43088.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Tor Browser Bundle 13.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43089.jpgsave_picture_43089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43089.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A17F4C51D77F4BE0528BF3652B8D58ABD79454EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43090.jpgsave_picture_43090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43090.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5D3B8BC19E29416F75EC9B5A8343C9C7BDB04660
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43091.jpgsave_picture_43091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43091.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5D3B8BC19E29416F75EC9B5A8343C9C7BDB04660
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43092.jpgsave_picture_43092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43092.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43093.jpgsave_picture_43093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43093.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ DxO PhotoLab Elite 8.0.0 build 417 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43094.jpgsave_picture_43094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43094.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:6D1206273A590FF1849CB68D6D6746E36023BB6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43095.jpgsave_picture_43095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43095.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6D1206273A590FF1849CB68D6D6746E36023BB6C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43096.jpgsave_picture_43096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43096.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D76C969000860276CBB4F38D9C205BB615FFBD77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43097.jpgsave_picture_43097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43097.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7060CD205F548D486A7DA6627958B650B472D361
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43098.jpgsave_picture_43098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43098.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpgsave_picture_43099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43100.jpgsave_picture_43100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43100.jpg" />
 </div>
 
 

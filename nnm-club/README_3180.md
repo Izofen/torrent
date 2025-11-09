@@ -6,7 +6,7 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103018.jpgsave_picture_103018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103018.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GeoGebra 6.0.868.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103019.jpgsave_picture_103019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103019.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EBF0B213947A78BDBDBC706EDE6BC7AF4970DA9F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103020.jpgsave_picture_103020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103020.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E916B1C31D6015A886116F496C4539A59E58531E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103021.jpgsave_picture_103021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103021.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:15A217CED30B533A747E535F69429B12A1C95907
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103022.jpgsave_picture_103022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103022.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F6452FA3F898571205F2E18796173D8F026909E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103023.jpgsave_picture_103023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103023.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Photo Lab PRO v3.13.38 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103024.jpgsave_picture_103024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103024.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8DC374C2FF6BAB18B601D23336C8A4994AFA0C1B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103025.jpgsave_picture_103025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103025.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103026.jpgsave_picture_103026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103026.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103027.jpgsave_picture_103027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103027.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:7810AD565CEFF3E9956BD1A473D6171FA694DF72
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103028.jpgsave_picture_103028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103028.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Hirsh Gardner - Third Time's A Charm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103029.jpgsave_picture_103029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103029.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DD2C8AC7D8F1BA32AA6D7BB8148A8E4E6AC72414
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103030.jpgsave_picture_103030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103030.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1F9302250E98AEBD70BF3A56776028172C6B776B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103031.jpgsave_picture_103031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103031.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Light Image Resizer 7.1.2.63[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103032.jpgsave_picture_103032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103032.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Pineapple Thief - Last To Run (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103033.jpgsave_picture_103033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103033.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103034.jpgsave_picture_103034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103034.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103035.jpgsave_picture_103035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103035.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103036.jpgsave_picture_103036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103036.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103037.jpgsave_picture_103037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103037.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103038.jpgsave_picture_103038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103038.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpgsave_picture_103039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103040.jpgsave_picture_103040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103040.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpgsave_picture_103041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103042.jpgsave_picture_103042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103042.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103043.jpgsave_picture_103043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103043.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151585.jpgsave_picture_151585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2205707B1F166FFECAEDB3C99A841715228FCDE4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151587.jpgsave_picture_151587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:10051344E90C7C2286E9388F36382040E1E6A365
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151588.jpgsave_picture_151588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151588.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151589.jpgsave_picture_151589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151589.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151590.jpgsave_picture_151590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151590.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:912C43C088CC9B0F8C7A3E42B22EF2823374BADA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151591.jpgsave_picture_151591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151591.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151592.jpgsave_picture_151592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151592.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EA440E0DE36A9E1CA58D5EB1829836846FC33A18
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151593.jpgsave_picture_151593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151593.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:87D6E75CA1312641E82B3476EE34DF79D5ACC4FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151594.jpgsave_picture_151594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151594.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.3 Build 19 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151595.jpgsave_picture_151595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151595.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0BD5AADAFBB4B447A268065E66A6423DA7628DA8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151596.jpgsave_picture_151596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151596.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151598.jpgsave_picture_151598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151598.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151599.jpgsave_picture_151599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151599.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:593F804FA0DCB3A324596BDA441CBB721C4053F0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151600.jpgsave_picture_151600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151600.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:E7AB3CDA303FFAE5BA770FA74777563168A24B39
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151601.jpgsave_picture_151601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151601.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Microsoft .Net Framework 14.11.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151602.jpgsave_picture_151602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151602.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A9C04DA528F9121D6D456FBEAA3685687BA8355B
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151603.jpgsave_picture_151603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151603.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Jeff Liberman - Celebrate The Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151604.jpgsave_picture_151604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151604.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:16C57EED348BF2FE1BE80D6EE1BF28A0B6008A40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151605.jpgsave_picture_151605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151605.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:AC15206EC33665201F660DE5991481C8CB5E9216
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151606.jpgsave_picture_151606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151606.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, Hou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151607.jpgsave_picture_151607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151607.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:425D3AE50F9FA59C1B1C304BF68F9262201E565D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151608.jpgsave_picture_151608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151608.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lionel Hampton & His Orchestra Featuring Sylvia Bennett - Sentimental Journey (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151609.jpgsave_picture_151609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151609.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra (DC 29.12.2022) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151611.jpgsave_picture_151611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151611.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:5A9E7235AC565006EE86CA9CE33C137D0495D6B3
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151612.jpgsave_picture_151612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151612.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:D85E6CB6D1BEE83AAEA64640DBCFF905FC28B69D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151613.jpgsave_picture_151613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151613.jpg" />
 </div>
 
 

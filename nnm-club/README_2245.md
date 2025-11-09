@@ -6,7 +6,7 @@ Microsoft Activation Scripts (MAS) 2.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58737.jpgsave_picture_58737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFA862285E15AADC1BCBB75DE14E5ECAA6C0B677
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58738.jpgsave_picture_58738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58739.jpgsave_picture_58739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop 2024 25.7.0.504 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58740.jpgsave_picture_58740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D130A8C3113D08CD94442D25EEED691E1B566003
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58741.jpgsave_picture_58741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58741.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pikuma, Gustavo Pezzi | 3D Computer Graphics Programming (2024) WEB-DLRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58742.jpgsave_picture_58742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58742.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6E58AAF85EC23CAE422ABC3396B4BFAC5FE2BC5B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58743.jpgsave_picture_58743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:99A4714CAE97BC72CFBC0EEE5A427F0127DEFDD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58744.jpgsave_picture_58744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58744.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:2F714B80D22F0C6C8A00AE32D19B674E37833AD9
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58745.jpgsave_picture_58745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58745.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58746.jpgsave_picture_58746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58747.jpgsave_picture_58747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58747.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58748.jpgsave_picture_58748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58748.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Audacity 3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58749.jpgsave_picture_58749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58749.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58750.jpgsave_picture_58750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58750.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HDCleaner 2.070 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58751.jpgsave_picture_58751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58751.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Skype 8.118.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58752.jpgsave_picture_58752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58752.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Q-Dir 11.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58753.jpgsave_picture_58753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58753.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Zoner Photo Studio X 19.2403.2.536 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58754.jpgsave_picture_58754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58754.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Acylum - Zuchthaus (2024) Bonus Version [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58755.jpgsave_picture_58755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58755.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Los Furios - Old Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <reggae, ska punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58756.jpgsave_picture_58756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58756.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F11BE3EB9F36141EAAC103A3E366FF87FA118589
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58757.jpgsave_picture_58757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58757.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:EFA4EA17B69353F3EDFCEC886EA40D33DCE43B91
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58758.jpgsave_picture_58758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58758.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58759.jpgsave_picture_58759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58759.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:B5AED6D5F69D874A62B10BFA18437E0735AB44C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58760.jpgsave_picture_58760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58760.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:69DA0E0382EE91872B9DB2851760101F12AB72E6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58761.jpgsave_picture_58761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58761.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:F1A47C7FD32935F6C51742B8EF299FE1219BE4EA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58762.jpgsave_picture_58762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58762.jpg" />
 </div>
 
 

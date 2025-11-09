@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194966.jpgsave_picture_194966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194966.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F1551F7286ED5DDD87633558182071788E0D2FBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194967.jpgsave_picture_194967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194967.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C4EBADD29ADFB894FBB1C5CB43F649D22E5B7718
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194968.jpgsave_picture_194968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194968.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Modern Tweaker 1.9.1 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194969.jpgsave_picture_194969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194969.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FC32CC9B2672B7A4C90B6F5969F679869325CE96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194970.jpgsave_picture_194970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194970.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:624F8C2D8546D7F41383F5BEF8EF363A8E69FFF5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194971.jpgsave_picture_194971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194971.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4D2C661958A0DA478ABF484AC1D998D115881BA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194972.jpgsave_picture_194972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194972.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Udemy, Nikita Sergeev | Excel: основное для работы с масс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194974.jpgsave_picture_194974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194974.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:51D69FA165389C73A7811639156C6B61093DCE37
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194975.jpgsave_picture_194975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194975.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BFA1D438A849ACFAFF8ABE8C47138C649CC8D56B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194976.jpgsave_picture_194976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194976.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194977.jpgsave_picture_194977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194977.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194978.jpgsave_picture_194978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194978.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Музыка для машины Vol.36 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194979.jpgsave_picture_194979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194979.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:33B159711A0187062DD2C160ED58A45C36598F12
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194980.jpgsave_picture_194980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194980.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194981.jpgsave_picture_194981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194981.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D04EA6E423577B909145E60DBABB48E67423AC36
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194982.jpgsave_picture_194982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194982.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194983.jpgsave_picture_194983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194983.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:56B7E0D96FC095B4B266E1F7B7F280C79909F15B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194984.jpgsave_picture_194984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194984.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194985.jpgsave_picture_194985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194985.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5FE0187B9BBC16EFC6C9DB0BB1C71A25DEDAEF61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194986.jpgsave_picture_194986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194986.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ FxSound Pro 1.1.19.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194987.jpgsave_picture_194987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194987.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:95B093B1F5DF2B695EF248EF5FC5956D72C2731A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194988.jpgsave_picture_194988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194988.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194989.jpgsave_picture_194989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194989.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4F6E5A9D838FB53CBABC21DBCE8F8A6A1182B562
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194990.jpgsave_picture_194990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194990.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpgsave_picture_194991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194992.jpgsave_picture_194992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194992.jpg" />
 </div>
 
 

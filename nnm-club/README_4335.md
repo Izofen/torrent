@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134755.jpgsave_picture_134755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134756.jpgsave_picture_134756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134756.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Internet Download Manager 6.42 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134757.jpgsave_picture_134757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134757.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:91A3EFB9B03408646A074A5D5905A7B4BE9F45F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134759.jpgsave_picture_134759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134759.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134760.jpgsave_picture_134760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134760.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134761.jpgsave_picture_134761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134761.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ James Newton Howard - Blood Diamond / Кровавый Алмаз (2006) [MP3|12
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134762.jpgsave_picture_134762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134762.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ USB Safely Remove 7.0.4.1319 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134763.jpgsave_picture_134763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134763.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D47722FAA2168E21F1A637DCB37F413F53EC8B38
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134764.jpgsave_picture_134764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134764.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C125D2811B1E5CF33C495319C47C643E96567458
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134765.jpgsave_picture_134765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134765.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ CCleaner Pro: ПО для очистки 23.22.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134766.jpgsave_picture_134766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134766.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ ABBA в Швейцарии / ABBA in Switzerland (1979) HDTV [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134767.jpgsave_picture_134767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134767.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:96D77AE18831AC7E9021DDEFF29C8AE6DB08DA0E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134768.jpgsave_picture_134768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134768.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3F9CE3A03F4634D2B5708E52AE01225CAC7A9BDF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134769.jpgsave_picture_134769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134769.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:71857C60B3FC07CE878108BC9829F11742F833F8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134770.jpgsave_picture_134770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134770.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpgsave_picture_134771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134772.jpgsave_picture_134772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134772.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:D0C23C1EEFDA276625A56D4F15910A48814E5160
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134774.jpgsave_picture_134774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134774.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Новогодний подарок от Взрослого Радио (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134775.jpgsave_picture_134775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134775.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:483762723C0C59A00BF8810765AA23AEDACE9EE3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134776.jpgsave_picture_134776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134776.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134778.jpgsave_picture_134778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134778.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134779.jpgsave_picture_134779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134779.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Winter Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134780.jpgsave_picture_134780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134780.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Space Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134781.jpgsave_picture_134781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134781.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:65C2538C05F3721B310BDBAB8CA5E0094FF25346
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134782.jpgsave_picture_134782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134782.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:36197E169A0D0B009AE0906B8358F676D3A47CAE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134783.jpgsave_picture_134783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134783.jpg" />
 </div>
 
 

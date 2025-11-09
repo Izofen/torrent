@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6110.jpgsave_picture_6110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6110.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Two Friends - Big Bootie Mix Vol. 26 (2025-06-05) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6111.jpgsave_picture_6111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6111.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6112.jpgsave_picture_6112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6112.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:716D3637A7F5972E6C5D40C866E55EE601AE920B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6113.jpgsave_picture_6113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6113.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Firefox Browser 142.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6114.jpgsave_picture_6114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6114.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E744E29A4FA68200B4708048C20F0F7814EEC9E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6115.jpgsave_picture_6115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6115.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6CCC2D8C648B5118E7472EDD267409A282689FD9
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6116.jpgsave_picture_6116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6116.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4C80F0F45F6B69A22085C91FD4EFFA2F1B0DCA30
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6117.jpgsave_picture_6117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6117.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D8FCB4A5DA89F658A1D6B629CA8CC2E5D779AB21
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6118.jpgsave_picture_6118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6118.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:494482A363E817037A95A6F2551F9B98133554A2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6119.jpgsave_picture_6119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6119.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:E767E8EE83A7CD4B2168939C47F8B349E04DAB6E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6120.jpgsave_picture_6120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6120.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Background Eraser (InShot Inc.) v2.285.87 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6121.jpgsave_picture_6121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6121.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:139B2E73B45BF8B7200132E433D1FC6124353B19
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6122.jpgsave_picture_6122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6122.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:1727320AC8A6416D09D0C2197456ABCC0FB754E2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6123.jpgsave_picture_6123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6123.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:45A97BB9EDF815D4C6D437AF03FF588022C123C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6124.jpgsave_picture_6124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6124.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Compilation Part 187 Electronic (2025) [MP3|320 Kbps] <Electronic, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6125.jpgsave_picture_6125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6125.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D0495BBAF809E482C9D4ACE1236204496AF645CF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6126.jpgsave_picture_6126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6126.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Listen Audiobook Player v5.3.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6127.jpgsave_picture_6127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6127.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3E23D4C6311490B6FD5896D5078AFC625CE23652
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6128.jpgsave_picture_6128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6128.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1159989A4B3144F230EAFCE8056C2621CB0441E7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6129.jpgsave_picture_6129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6129.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Firefox Browser ESR 140.2.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6130.jpgsave_picture_6130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6130.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ PicWish: AI Photo Editor v2.1.9 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6131.jpgsave_picture_6131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6131.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:8C90F01860BB0BAA2972998EB11DC75222EDA8C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6132.jpgsave_picture_6132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6132.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0BA633093311A2C38D49F08840078210C8BA88ED
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6133.jpgsave_picture_6133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6133.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Secret Garden - Compilation (2025) [MP3|320 Kbps] <Easy Listening, Instrumental,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6134.jpgsave_picture_6134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6134.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:41E2FFB018A1869193F6B30498D258ECC68A6D99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6135.jpgsave_picture_6135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6135.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189781.jpgsave_picture_189781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189781.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F498142A28CB5D7771D61B2AFA2DE78D56D29D5B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189782.jpgsave_picture_189782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189782.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Mutoid Man - 4 Albums (2014-2023) [MP3|320 Kbps] <Punk, Stoner, Prog, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189783.jpgsave_picture_189783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189783.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:3FBBC9BF42D8C3540D8E6705F403298D1D37D711
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189784.jpgsave_picture_189784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189784.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Downie 4 v.4.6.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189785.jpgsave_picture_189785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189785.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Onsegen Ensemble - Realms (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189786.jpgsave_picture_189786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189786.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4169EA67A30346A2FB02C6BC037731EB0D81C326
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189787.jpgsave_picture_189787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189787.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:B6C741DAE846163AB39FEB6A00998BE87097F3D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189788.jpgsave_picture_189788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189788.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:F72FF7F60EDD6E6D30439E2F03DDB77750CE1330
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189789.jpgsave_picture_189789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189789.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:E814A22D617DDA8DBC7A0C14359C1316F4D06C69
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189790.jpgsave_picture_189790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189790.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:B051BE8E554BB201EEB3B31946E9DF2FDD92BA7B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189791.jpgsave_picture_189791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189791.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2F2F356406F2C405715ADF9CCCF749BBA8C17902
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189792.jpgsave_picture_189792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189792.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:3C9DBAC476F02170475DF2D811022329EAC5BC44
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189793.jpgsave_picture_189793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189793.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ AirFoil+Airfoil Satellite 5.11.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189794.jpgsave_picture_189794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189794.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mecanicos de Satan - Nomade (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189795.jpgsave_picture_189795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189795.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:B90617D9FA52BBEAA0F8D4FFB411A633AA5D070A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189797.jpgsave_picture_189797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189797.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Omni Recover 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189798.jpgsave_picture_189798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189798.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:ACE8E60EB0CFD59A0A49EAB419456C05E4D44240
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189799.jpgsave_picture_189799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189799.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Headless Dawn - Crap on Demand (2022) [FLAC|Lossless|WEB-DL|tracks] <Grindcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189800.jpgsave_picture_189800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189800.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hell's Tape - Ancient Knights of Black Blood (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189801.jpgsave_picture_189801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189801.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189802.jpgsave_picture_189802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189802.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Phil Campbell And The Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189806.jpgsave_picture_189806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189806.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Windows 10 Pro x64 Lite 22H2 build 19045.2251 by Zosma [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189807.jpgsave_picture_189807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189807.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Skypro | Разработчик на Python (2021) WEB-DL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189808.jpgsave_picture_189808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189808.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Phlebotomized - Clouds 0f Confusion (2023) [FLAC|Lossless|image + .cue] <Avant-G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189809.jpgsave_picture_189809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189809.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Adobe Photoshop for Mac 2023 v.24 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189810.jpgsave_picture_189810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189810.jpg" />
 </div>
 
 

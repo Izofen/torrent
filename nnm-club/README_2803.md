@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80258.jpgsave_picture_80258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80258.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:7CF27684A11A5C8F1E470DB1B4FF29F8970ABE34
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80259.jpgsave_picture_80259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpgsave_picture_80261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80262.jpgsave_picture_80262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80262.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:4A14A4471299738D5FF9B6466A187656B7A1665C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80265.jpgsave_picture_80265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80265.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:4A14A4471299738D5FF9B6466A187656B7A1665C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80266.jpgsave_picture_80266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80266.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80268.jpgsave_picture_80268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80268.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80274.jpgsave_picture_80274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80274.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:C55E203A7799CD197AAF786582895804EEF6275D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80275.jpgsave_picture_80275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80275.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80282.jpgsave_picture_80282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80282.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80286.jpgsave_picture_80286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80286.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:921E7C3223E157F029CA6E185B3B4CEC0FF71EEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80287.jpgsave_picture_80287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80287.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:79C39C816CB830D3F19771332D275E6A67A1FED4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80288.jpgsave_picture_80288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80288.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:FB3A213D3B8FE232852801070E52FC565C1D73A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80290.jpgsave_picture_80290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80290.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80292.jpgsave_picture_80292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80292.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80297.jpgsave_picture_80297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80297.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80298.jpgsave_picture_80298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80298.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:46CB1BE33D2DDE5608C29D9E1F08F410D07A3278
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80299.jpgsave_picture_80299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80299.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:269718FCB1DAA1B769B0BD0F275A2A7A22AAD60E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80301.jpgsave_picture_80301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80301.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Windows7 Профессиональная x64x86 AUZsoft v.7.12. [RUS]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80313.jpgsave_picture_80313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80313.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Windows7 Профессиональная x64x86 AUZsoft v.7.12. [RUS]
 >>Библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80314.jpgsave_picture_80314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80314.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Unreal Tournament 2004 [Native] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80324.jpgsave_picture_80324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80324.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Freevods. Всё покерное видео (обновления по 01.03.20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80325.jpgsave_picture_80325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80325.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:624B51A36929437D197D6F9F3ED4696162142426
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80328.jpgsave_picture_80328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80328.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:624B51A36929437D197D6F9F3ED4696162142426
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80329.jpgsave_picture_80329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80329.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Adrenaline Mob - Omerta (2012) [FLAC|Lossless]<Heavy Metal / Progressive / Nu-Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80331.jpgsave_picture_80331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80331.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168749.jpgsave_picture_168749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168749.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ K-Lite Codec Pack Update 15.9.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168750.jpgsave_picture_168750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168750.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:78C5C56A71F5E57887342BDDF45263963D5D2C45
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168751.jpgsave_picture_168751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168751.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168752.jpgsave_picture_168752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168752.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Top Grade Disco Hits (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168753.jpgsave_picture_168753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168753.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:57D26122CCA3B0BBB0E4A3E0696AB2EEF9173607
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168754.jpgsave_picture_168754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168754.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CE35618096DBA65CF4A79F980D8C95206618B88C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168755.jpgsave_picture_168755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168755.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:854B44BC080E2D12078EDBBBF5B2F84BD15EDBB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168756.jpgsave_picture_168756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168756.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - The World Series of Chill Out, Vol. 4 (2021) [AAC|~309 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168757.jpgsave_picture_168757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168757.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:BC6F18CAF88BEE447DC8CF0FAAF2AA967556524C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168758.jpgsave_picture_168758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168758.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Schwarz & Funk - Back to the Beach (2019) [AAC|~306 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168759.jpgsave_picture_168759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168759.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:BB77B2A11A2E4D779E5FBADCBE283EBBFDB9AEDC
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168760.jpgsave_picture_168760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168760.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:7754F4516EC4A10257F7B9326FD743B5CF9BD4E8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168761.jpgsave_picture_168761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168761.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168762.jpgsave_picture_168762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168762.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - The World Series of Chill Out, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168763.jpgsave_picture_168763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168763.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1B362CFA6B5B5B0DB93B90D39558EB8F5CE3483B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168764.jpgsave_picture_168764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168764.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:5B86A0AF9E63DA3ED27F9D140140FB8542BC18F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168765.jpgsave_picture_168765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168765.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B77108A909D6E3E6DECD05AE51EE8C16FA9C9AD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168766.jpgsave_picture_168766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168766.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:15EC8B1AB12D68417305210509E4BA1267613A65
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168767.jpgsave_picture_168767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168767.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - The World Series of Chill Out, Vol. 2 (2021) [AAC|~305 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168768.jpgsave_picture_168768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168768.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:009BBB6A96E28A42684EDB08EA0F0CFAFCA47134
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168769.jpgsave_picture_168769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168769.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:5562976B81FCA5F3B81FC33ED33136E6F88361FD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168770.jpgsave_picture_168770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168770.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:430DFA92ACF313668ACE96737B25827DFCAA2D12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168771.jpgsave_picture_168771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168771.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:AAB9A802A6D108A904C8A84574C26D173B34D504
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168772.jpgsave_picture_168772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168772.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Jazzy Weekend, Vol. 1 (2021) [AAC|~318 Kbps] <Chill Out, Lounge, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168773.jpgsave_picture_168773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168773.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:B30D34C523DF30663CB07FBB09FD6776629C1F5B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168774.jpgsave_picture_168774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168774.jpg" />
 </div>
 
 

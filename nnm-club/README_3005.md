@@ -6,7 +6,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90680.jpgsave_picture_90680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90683.jpgsave_picture_90683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90686.jpgsave_picture_90686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90687.jpgsave_picture_90687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90687.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:99CF18A66FA1C2490208C45EB9C24AE2352F469C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90688.jpgsave_picture_90688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90688.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DCDB81D8126FCCFCDE77CAC7C18F66375BE70781
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90690.jpgsave_picture_90690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90690.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DCDB81D8126FCCFCDE77CAC7C18F66375BE70781
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90693.jpgsave_picture_90693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90693.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B81949145B74F534D674083B98AB6E24EAB8C090
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90695.jpgsave_picture_90695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90695.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ XXL – информационно-развлекательный журнал �
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90698.jpgsave_picture_90698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90698.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90705.jpgsave_picture_90705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90705.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90706.jpgsave_picture_90706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90706.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:90F695C0B09BE05649F9A21FD76688FAE2685CE6
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90707.jpgsave_picture_90707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90707.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:8A6F58B74C32541A403C9C965FCC012C850F7039
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90709.jpgsave_picture_90709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90709.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FC920517F0C050CD4FB25E38FBB7E5755E3C5F29
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90711.jpgsave_picture_90711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90711.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CF3B031EC0422B645E8C38C768C6D5371B885D65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90715.jpgsave_picture_90715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90715.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90716.jpgsave_picture_90716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90717.jpgsave_picture_90717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90717.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:97A773CD88F4F3328EB525EB12B19362F133F47E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90718.jpgsave_picture_90718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90718.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90722.jpgsave_picture_90722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90722.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90723.jpgsave_picture_90723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90723.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2D3719947ED8A97E3424997384E65CABB579C979
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90725.jpgsave_picture_90725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90725.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90727.jpgsave_picture_90727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90727.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90729.jpgsave_picture_90729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90729.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90730.jpgsave_picture_90730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90730.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Linux Mint Debian Edition (XFCE & MATE/Cinnamon) 201204 [x32 + x64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90731.jpgsave_picture_90731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90731.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90735.jpgsave_picture_90735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90735.jpg" />
 </div>
 
 

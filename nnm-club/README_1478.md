@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38783.jpgsave_picture_38783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38783.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Trap Second Edition (2024) [MP3|320 Kbps] <TRAP>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38784.jpgsave_picture_38784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38784.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1638BC57D8D4AEBA43279D71E02FB7DB90DF0251
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38785.jpgsave_picture_38785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38785.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:CB67DD23794DF5D8C8D8E5058256DA3E50649F81
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38786.jpgsave_picture_38786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38786.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Photo Studio PRO v2.7.11.3468 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38787.jpgsave_picture_38787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38787.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ GeoGebra 6.0.864.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38788.jpgsave_picture_38788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38788.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Nipper Swing Band - Vintage Radio (Swing Golden Age) (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38789.jpgsave_picture_38789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38789.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:667057BE489F57D09D0A6B1B4B21DB73B84B03FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38790.jpgsave_picture_38790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38790.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38791.jpgsave_picture_38791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38791.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:9D06313024EA63380DE4DD308CDE92A7725833A0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38792.jpgsave_picture_38792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38792.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38793.jpgsave_picture_38793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38793.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:47DEF8951774D71D5247A2A8D8EBF15E6BC703E8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38794.jpgsave_picture_38794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38794.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ PhotoDirector v19.7.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38795.jpgsave_picture_38795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38795.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Mark "Nessie" Nesmith - A Sinner's Prayer (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38796.jpgsave_picture_38796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38796.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Vision Bleak - Studio Albums (7 releases) (2004-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38797.jpgsave_picture_38797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38797.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38798.jpgsave_picture_38798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38798.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38799.jpgsave_picture_38799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38799.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38800.jpgsave_picture_38800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38800.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:1909456FDAE493C80452A8B1798DDF193BF13ADD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38801.jpgsave_picture_38801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38801.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bob Joyce - Safely Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38802.jpgsave_picture_38802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38802.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Kyshona - Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38803.jpgsave_picture_38803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38803.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Charles Tolliver Big Band - Emperor March: Live At The Blue Note (2009) Half Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38804.jpgsave_picture_38804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38804.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8F1DB03492588BDD1AAEF2BA899147903DC111A0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38805.jpgsave_picture_38805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38805.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38806.jpgsave_picture_38806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38806.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Deadly Days (2019) [Ru/Multi] (1.7.0f2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpgsave_picture_38807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38807.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:214E9A78A5CC1E016C1023D99744ED9255767E6B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38808.jpgsave_picture_38808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38808.jpg" />
 </div>
 
 

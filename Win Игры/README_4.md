@@ -6,7 +6,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1355.jpgsave_picture_1355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1355.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpgsave_picture_1366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1366.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpgsave_picture_1368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1368.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpgsave_picture_1369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1369.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Craft The World (2014) [Ru/Multi] (1.11.007/dlc) Repack Let'sРlay [Ultimate Cra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1370.jpgsave_picture_1370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1370.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1371.jpgsave_picture_1371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1371.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1372.jpgsave_picture_1372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1372.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpgsave_picture_1373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1373.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1378.jpgsave_picture_1378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1378.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1379.jpgsave_picture_1379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1379.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpgsave_picture_1380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1383.jpgsave_picture_1383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1383.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpgsave_picture_1384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1385.jpgsave_picture_1385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1385.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpgsave_picture_1389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1389.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1397.jpgsave_picture_1397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1397.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1400.jpgsave_picture_1400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1400.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1401.jpgsave_picture_1401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1401.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1402.jpgsave_picture_1402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1402.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1405.jpgsave_picture_1405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1405.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Do No Harm (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1407.jpgsave_picture_1407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1407.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1409.jpgsave_picture_1409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1409.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1507.jpgsave_picture_1507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1507.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpgsave_picture_1512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1514.jpgsave_picture_1514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1514.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpgsave_picture_1533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1533.jpg" />
 </div>
 
 

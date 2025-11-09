@@ -6,7 +6,7 @@ Things 3 v.3.20.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113585.jpgsave_picture_113585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113585.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PanoramaStudio 4 Pro for Mac v.4.0.0 iNTEL [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113586.jpgsave_picture_113586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113586.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpgsave_picture_113587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:5117310C952C2444FCC81F1E705322C1916057A1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113588.jpgsave_picture_113588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113588.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Vivaldi 6.6.3271.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113589.jpgsave_picture_113589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113589.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7842923DDB4C7CBBD2CC1DA3182CF76FC5DEC0D9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113590.jpgsave_picture_113590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113590.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2C1F6A9D42BF1CA73D83D97DC378658210699279
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113591.jpgsave_picture_113591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113591.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:B68C59E0640B8A1C48E311A6956A8E91D4E76AED
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113592.jpgsave_picture_113592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113592.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Летная погода. Песни на стихи Михаила Тан
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpgsave_picture_113593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ The Bad Dad Orchestra - Makin' Me Wild (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113594.jpgsave_picture_113594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113594.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113595.jpgsave_picture_113595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113595.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:16137A546291C66456BC0EAB61F471125543320F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113596.jpgsave_picture_113596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113596.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:34DC8A2A3BF09B4CF3061D5D3460DC23EF0AC09A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113597.jpgsave_picture_113597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113597.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Google Chrome 122.0.6261.129 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113598.jpgsave_picture_113598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113598.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ OBS Studio 30.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113599.jpgsave_picture_113599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113599.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:5B77F03D4427732ACFF2C2694648B1F1173B120D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113600.jpgsave_picture_113600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113600.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:7701802C153D51FACE8D84AEF1A29D75FA42D889
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113601.jpgsave_picture_113601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113601.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:10EEC2E9AA60FCCFEFB8F0A3339A38AB5F2A831C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113602.jpgsave_picture_113602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113602.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:799A511528F81F920F2F0BB7908C9FCDDB46B1BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113603.jpgsave_picture_113603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113603.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113604.jpgsave_picture_113604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113604.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:FBAE365BCFF9F9D8C04260CE41B76D4F4EE34C58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113605.jpgsave_picture_113605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113605.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Google Chrome 122.0.6261.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113606.jpgsave_picture_113606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113606.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:F037524824ABAA551119D1611612C41F4F8E1EA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113607.jpgsave_picture_113607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113607.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Music News vol.351 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113608.jpgsave_picture_113608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113608.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ BBEdit 15.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113609.jpgsave_picture_113609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113609.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:9D763708E56F30F95001B93E80E4F078E23CDB61
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113610.jpgsave_picture_113610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113610.jpg" />
 </div>
 
 

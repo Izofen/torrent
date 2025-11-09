@@ -6,7 +6,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpgsave_picture_126077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Junkyard Heights - Junkyard Heights (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126175.jpgsave_picture_126175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Critical Heartbeat - Revolution (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126180.jpgsave_picture_126180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126180.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126182.jpgsave_picture_126182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126182.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126183.jpgsave_picture_126183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126183.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126186.jpgsave_picture_126186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126186.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpgsave_picture_126187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpgsave_picture_126188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126195.jpgsave_picture_126195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126195.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126196.jpgsave_picture_126196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126196.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126198.jpgsave_picture_126198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126198.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126201.jpgsave_picture_126201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126201.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126203.jpgsave_picture_126203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126203.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126208.jpgsave_picture_126208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126208.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126209.jpgsave_picture_126209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126209.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126211.jpgsave_picture_126211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126211.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpgsave_picture_126213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpgsave_picture_126218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126224.jpgsave_picture_126224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126224.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126232.jpgsave_picture_126232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126232.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpgsave_picture_126244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Various Artists - Best Carnival Party Jazz 2023 Brazilian Vibes (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126248.jpgsave_picture_126248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126248.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Oktoberfest Drinking Songs 2023 Traditional German Beer Festival Music (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126272.jpgsave_picture_126272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126272.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126401.jpgsave_picture_126401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126401.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpgsave_picture_126576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Animal Джаz - Корни (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126596.jpgsave_picture_126596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126596.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Irist - 2 Albums (2020-2022) [MP3|320 Kbps] <Sludge, Groove, Post Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233388.jpgsave_picture_233388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233388.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Perfectly Clear WorkBench 4.5.0.2539 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233389.jpgsave_picture_233389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233389.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:FC8E195C79708F60EABF0667A4D9B6D177F55415
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233390.jpgsave_picture_233390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233390.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Smart Defrag Pro 8.5.0.281 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233391.jpgsave_picture_233391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233391.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:071623ECCEFCCA4F76B1D8774BE47C55E2BAB0F5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233393.jpgsave_picture_233393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233393.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D663334E4A5CE66499CB6AF63DCC928EBEE3B673
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233394.jpgsave_picture_233394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233394.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ AltTab 6.60.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233395.jpgsave_picture_233395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233395.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:A83BC5DCE1EFFB7D65157034DB3DE59CC1CD2574
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233397.jpgsave_picture_233397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233397.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Topaz Video AI 3.2.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233398.jpgsave_picture_233398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233398.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A9342E94AAF6F2EDBEEB365A4AA52D6F286791BF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233399.jpgsave_picture_233399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233399.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:AD7D10B6D1C10FB187AE1B488E356B9AEA1BC2DC
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233400.jpgsave_picture_233400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233400.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:C2A2E1F0703C6EFE5F59227320F5672D5DD291A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233401.jpgsave_picture_233401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233401.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:68638E5869CCCD6A5D7C1C94CF874B4BA5B5CFED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233402.jpgsave_picture_233402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233402.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Jacques Loussier - Four Classic Albums (1960 - 1962) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233404.jpgsave_picture_233404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233404.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E1939BE20772001BB653E2016194AD127C9541B6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpgsave_picture_233405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Blue Fish Collection (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233406.jpgsave_picture_233406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233406.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233407.jpgsave_picture_233407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233407.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:8343B6EFCCAB23AFEF0409457894613320645B57
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233408.jpgsave_picture_233408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233408.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:56FC19BA77398746FF59383DB8498E1C6F645059
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233409.jpgsave_picture_233409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233409.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Borealis - Illusions (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233411.jpgsave_picture_233411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233411.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:897A559B6C4B2E5769AF436FBEFF9C6FCCCD673B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233412.jpgsave_picture_233412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233412.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:076988F4C079E11CC2890DA024DB381705BCDA56
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233413.jpgsave_picture_233413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233413.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Movavi Video Converter 22.4.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233414.jpgsave_picture_233414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233414.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F8C26B769A11E4CD15EB0836C3B9029FB9015B50
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233415.jpgsave_picture_233415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233415.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ High Priest - Invocation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233416.jpgsave_picture_233416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233416.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:FC4FC9A4AD736FA79137C55584C532D237A59DDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233417.jpgsave_picture_233417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233417.jpg" />
 </div>
 
 

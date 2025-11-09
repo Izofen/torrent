@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87010.jpgsave_picture_87010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87012.jpgsave_picture_87012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87012.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpgsave_picture_87014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ ClearOS Community 6.2 RC1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87015.jpgsave_picture_87015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87015.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:BD4864A0920AFC220EEFB507B4837F08E393326D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87017.jpgsave_picture_87017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87017.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87019.jpgsave_picture_87019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87019.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:AA5B96AFBDBA2ECBFE4BCB9DBE263DAFFFF7FD50
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87020.jpgsave_picture_87020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87020.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VKontakteDJ 3.43 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87022.jpgsave_picture_87022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87022.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87023.jpgsave_picture_87023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87023.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87024.jpgsave_picture_87024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87024.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87026.jpgsave_picture_87026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87026.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87027.jpgsave_picture_87027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87027.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87029.jpgsave_picture_87029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Steve Miller Band - 4 альбома (1976-2011) [DTS 5.1|tracks (Upmix)]<He
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87031.jpgsave_picture_87031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87031.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D34B3A96B467D45B40274DD44E7C8AB8B9FE6073
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87032.jpgsave_picture_87032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87032.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87033.jpgsave_picture_87033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87033.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87035.jpgsave_picture_87035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87035.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:14500BBFD0975D2917BF27D60023B1610FEEBFC5
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87036.jpgsave_picture_87036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87036.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87037.jpgsave_picture_87037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87037.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87038.jpgsave_picture_87038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87038.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:12C1E5CC517831E60D8DC16650D55FAFA8DD20B8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87040.jpgsave_picture_87040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87040.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87041.jpgsave_picture_87041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87041.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87043.jpgsave_picture_87043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87043.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87046.jpgsave_picture_87046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87046.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87047.jpgsave_picture_87047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87047.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:D18286195C922EF38279758E39B5A4E1AE7AEF83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87049.jpgsave_picture_87049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87049.jpg" />
 </div>
 
 

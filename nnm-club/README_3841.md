@@ -6,7 +6,7 @@ Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120269.jpgsave_picture_120269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120269.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120270.jpgsave_picture_120270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120270.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120271.jpgsave_picture_120271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120271.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120272.jpgsave_picture_120272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:5ED5F102E0C196FF069EB7BDCB18D5D7F9010EC1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120273.jpgsave_picture_120273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120273.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Network Kit 9.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120274.jpgsave_picture_120274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120274.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120275.jpgsave_picture_120275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120275.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ DJ KUBA & NEITAN - Live @ Skandalizer x Level27, Poland (2024-01-19) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120276.jpgsave_picture_120276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120276.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ eBookBinder 1.12.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120277.jpgsave_picture_120277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120277.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120278.jpgsave_picture_120278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120278.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120279.jpgsave_picture_120279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120279.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120280.jpgsave_picture_120280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120280.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120281.jpgsave_picture_120281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120281.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120282.jpgsave_picture_120282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120282.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:D4461B1C4372C2A91419289A444768C047EB02C0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120283.jpgsave_picture_120283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120283.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D38A5CBD34911BB668B50B30E4C7C8BD2A270BA2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120284.jpgsave_picture_120284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120284.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:91D2E73FB9B1C9DCDEA4FC52A8037553A49DEE02
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120285.jpgsave_picture_120285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120285.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:DBB67D400451CC93926D4E965739A9DD88A9D99B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120286.jpgsave_picture_120286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120286.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A1B59B5DDA51A2ADEC476301F25326EDBF753EB3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120287.jpgsave_picture_120287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120287.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:39B9B128D9815221F28B2A40BCAD772C1830E78B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120288.jpgsave_picture_120288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120288.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DAA4FB2AD099A8EEB5F70F678467AC7C22B44DEE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120289.jpgsave_picture_120289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120289.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120290.jpgsave_picture_120290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120290.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A5F4C83FA4798BAB794B2BE5647580CBC2457D30
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120291.jpgsave_picture_120291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120291.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lovebites: Clockwork Immortality (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120292.jpgsave_picture_120292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120292.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ NonVisual Desktop Access (NVDA) 2023.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120293.jpgsave_picture_120293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120293.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:20D8C58867BDCAB2374BACBF91A4B54A204526ED
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120294.jpgsave_picture_120294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120294.jpg" />
 </div>
 
 

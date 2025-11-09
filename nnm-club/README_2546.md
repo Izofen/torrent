@@ -6,7 +6,7 @@ Keiko Lee - Voices (2002) Sony Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66946.jpgsave_picture_66946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66946.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fairy Tail Gaiden | Хвост Феи - Гайден (2015) [3 части, 53 г
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66947.jpgsave_picture_66947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66947.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9DDBFAE3037B17754047156C23BD666724F0E89D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66948.jpgsave_picture_66948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66948.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fairy Tail: Blue Mistral | Хвост Феи - Голубой Мистраль (
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66949.jpgsave_picture_66949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66949.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Carrion - Evil Is There (1986) [FLAC|24/96|image + .cue|Vinyl-Rip] <Speed, Thras
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66950.jpgsave_picture_66950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66950.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:961B776B4A590EBFCAA0FCE6F0AD12CD6C7AA0BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66951.jpgsave_picture_66951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66951.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:1A95F976EF1001AE99A5F0B9873E6F2A12AD5EBF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66952.jpgsave_picture_66952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66952.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F372CF3A20606342D91F8898E11E03D65A976E70
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66953.jpgsave_picture_66953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66953.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Gravecloud - A Tear in the Veil (2025) [MP3|320 Kbps] <Symphonic, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66954.jpgsave_picture_66954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66954.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Jimmy Scott - Falling In Love Is Wonderful (1962) 2002, Rhino Handmade [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66955.jpgsave_picture_66955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66955.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E170149770F16F047EDB830926E80A280847176D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66956.jpgsave_picture_66956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66956.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Hersir - Hateful Draugar from the Underground (2025) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66957.jpgsave_picture_66957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66957.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Psykosis - Mind Games (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66958.jpgsave_picture_66958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66958.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Random Hatred - Random Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66959.jpgsave_picture_66959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66959.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B668ED9104D296A4B1FB1DBAD735FDEF6B14F6BD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66960.jpgsave_picture_66960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66960.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B497FA9E12631E5D8D57A7B55592C667DA46912F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66961.jpgsave_picture_66961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66961.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66962.jpgsave_picture_66962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66962.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ MotoGP. Этап 06 из 22. Гран-при Франции. Спринт (10.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66963.jpgsave_picture_66963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66963.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Opia - I Welcome Thee, Eternal Sleep (2025) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66964.jpgsave_picture_66964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66964.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Statement - Sinister Thing (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66965.jpgsave_picture_66965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66965.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Tokyo Blade - Time Is the Fire (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66966.jpgsave_picture_66966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66966.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dawn Of Ouroboros - Bioluminescence (2025) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66967.jpgsave_picture_66967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66967.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:AA1CC09B44CA303900EE93B72C273C8D78AD4495
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66968.jpgsave_picture_66968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66968.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:77AE2520805015F0F905C6650A0CE06174C9B766
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66969.jpgsave_picture_66969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66969.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpgsave_picture_66970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpgsave_picture_66971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41905.jpgsave_picture_41905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FileZilla Server 1.9.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41906.jpgsave_picture_41906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41906.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Лучшие хиты шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41907.jpgsave_picture_41907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41907.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:33E9B9EFEF755BCED7B24FC7DCC019415945372D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41908.jpgsave_picture_41908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41908.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Smooth Jazz. Music Without Irritation (2024) [MP3|320 Kbps] <Smooth, Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41909.jpgsave_picture_41909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41909.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Xiaoloulou - Brave Enough to Love Again (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41910.jpgsave_picture_41910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41910.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Хитопад шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41911.jpgsave_picture_41911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41911.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mr.Kitty - Unreal (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41912.jpgsave_picture_41912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41912.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Format Factory 5.18.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41913.jpgsave_picture_41913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41913.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ JetBrains PhpStorm 2024.2.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41914.jpgsave_picture_41914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41914.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:DA775728C86C8D49E602B9260B4DBDE0C3971FA6
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41915.jpgsave_picture_41915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41915.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ HWiNFO 8.12 Build 5555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41916.jpgsave_picture_41916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41916.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:1FC84E90B90475BFDCE7FE1B76FD166C5E25D5BC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41917.jpgsave_picture_41917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41917.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:8CF5EA22AF47CFC52417E910C050749F1007984B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41918.jpgsave_picture_41918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41918.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:1AB0633AA53C22ED7C866ADCF9BE51502369CCDF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41919.jpgsave_picture_41919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41919.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:31A833B60AA3DBDAF5A4C04E2D25F72606E34997
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41920.jpgsave_picture_41920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41920.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:237C10BB57BC2F149D149CFF12FBE3C22DB54B95
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41921.jpgsave_picture_41921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41921.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Rosetta Stone: Изучение языков 8.28.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41922.jpgsave_picture_41922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41922.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:9AD7599AAECAA86E3955BF9F06422628A5E2CB20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41923.jpgsave_picture_41923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41923.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:DA223A825804D68947D7423C40B7C8D04E186E3A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41924.jpgsave_picture_41924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41924.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A11A5E44BD0EF91BFC890A9D2D71F447A44E90F4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41925.jpgsave_picture_41925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41925.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Video Thumbnails Maker Platinum 22.0.0.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41926.jpgsave_picture_41926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41926.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Mylene Farmer - Nevermore (Live) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41927.jpgsave_picture_41927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41927.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Plus Messenger (Telegram+) v11.1.3.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41928.jpgsave_picture_41928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41928.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D80C13699E201BA70343E61828636DCD71D8150F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41929.jpgsave_picture_41929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41929.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:47FBD5686DEACDC8F8CE14B2709D7A3B4CD94531
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41930.jpgsave_picture_41930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41930.jpg" />
 </div>
 
 

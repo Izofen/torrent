@@ -6,7 +6,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5181.jpgsave_picture_5181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5181.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5233.jpgsave_picture_5233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5233.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5316.jpgsave_picture_5316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5316.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5317.jpgsave_picture_5317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5317.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5318.jpgsave_picture_5318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5318.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5319.jpgsave_picture_5319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5319.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Who - Live At The Oval 1971 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5326.jpgsave_picture_5326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5326.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sweet Freedom - Blind Leading The Blind (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5337.jpgsave_picture_5337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5337.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5346.jpgsave_picture_5346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5346.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Belinda Carlisle - Once Upon a Time in California (2025) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5353.jpgsave_picture_5353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5353.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bryan Adams - Roll With The Punches (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5370.jpgsave_picture_5370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5370.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5373.jpgsave_picture_5373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5373.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Headless - Transitional Objects (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5481.jpgsave_picture_5481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5481.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5482.jpgsave_picture_5482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5482.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Suotana - Ounas II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5488.jpgsave_picture_5488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5488.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Asymmetric Universe - A Memory And What Came After (2025) [FLAC 24/48|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5490.jpgsave_picture_5490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5490.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Salvo/Сальво - Solo Tu/Только Ты (1981) [FLAC 2.0|24/96|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5505.jpgsave_picture_5505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5505.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:CD18AB015953071D46F25E3695D4443CE68F306E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5508.jpgsave_picture_5508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5508.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ In Mourning - The Immortal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5509.jpgsave_picture_5509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5509.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Orchestra Electrecord - Famous Romanian Tangos (1976) [FLAC 2.0|192/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5653.jpgsave_picture_5653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5653.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5690.jpgsave_picture_5690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5690.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5786.jpgsave_picture_5786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5786.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Hives - The Hives Forever Forever The Hives (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5801.jpgsave_picture_5801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5801.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5934.jpgsave_picture_5934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5934.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Holst, Grieg - Herbert von Karajan, Vienna Philharmonic - The Planets, Peer Gynt
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5953.jpgsave_picture_5953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5953.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6182.jpgsave_picture_6182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6182.jpg" />
 </div>
 
 

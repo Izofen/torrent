@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250383.jpgsave_picture_250383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Serpent Bite - Nightblade Of The Law (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250384.jpgsave_picture_250384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250384.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C6BE60ADD014EE0DC7F9FA3C1BD29C26A3A9BF9E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250385.jpgsave_picture_250385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250385.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:AD018B7C88992FB7FD61DAC3B118EC599832A78B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250386.jpgsave_picture_250386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250386.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D27BC79BE2D2B940D92CC7BD6B7AAE3BEE20D5EE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250387.jpgsave_picture_250387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250387.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250388.jpgsave_picture_250388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250388.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250389.jpgsave_picture_250389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250389.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Adobe Acrobat Pro 2025.001.20844 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250390.jpgsave_picture_250390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250390.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:9AF61F186300928D443E597B95E6CAF9D76D10B4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250391.jpgsave_picture_250391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250391.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250392.jpgsave_picture_250392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250392.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250393.jpgsave_picture_250393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250393.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250394.jpgsave_picture_250394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250394.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A88CAAF534E3AE09A9E75EB83DC34148B56825CF
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250395.jpgsave_picture_250395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250395.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250396.jpgsave_picture_250396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250396.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250397.jpgsave_picture_250397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250397.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Wildways - Сумерки (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardc
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250398.jpgsave_picture_250398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250398.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:48CF91D628E8D0843728E8C05293B3786AA1BB23
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250399.jpgsave_picture_250399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250399.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E9C450AAF3265F3E4EDBEF47ACE1084FD8656BAB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpgsave_picture_250400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:C86FAF540BDE7B2475B73EAFA04FCE99CFE2BC5D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250401.jpgsave_picture_250401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250401.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250402.jpgsave_picture_250402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250402.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250403.jpgsave_picture_250403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250403.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sky Words: Слова из Букв v1.4.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250404.jpgsave_picture_250404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250404.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Music News For Forum vol.144 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250405.jpgsave_picture_250405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250405.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:00D03757B2B016F74C90E90643523D951D30C9BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250406.jpgsave_picture_250406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250406.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:27961240E5CAB1C0038E76BE9931C50DECC0C2A7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250407.jpgsave_picture_250407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250407.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:A91E925D7EF21F6058ABDC40CECCE888FCD8A9E4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250408.jpgsave_picture_250408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250408.jpg" />
 </div>
 
 

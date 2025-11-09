@@ -6,7 +6,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156161.jpgsave_picture_156161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:464786935DFBF87C07B6C64601A33D69D7C212CE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156162.jpgsave_picture_156162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156162.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:FCC873A125FC608B8690F041D41E2ADCEAF63CE6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156163.jpgsave_picture_156163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156163.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A787CB46E5170064C27F08F88BDBCD3CB72358AE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156164.jpgsave_picture_156164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156164.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156165.jpgsave_picture_156165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156165.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AkiaveL - Veni Vidi Vici (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156167.jpgsave_picture_156167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156167.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ HeavenTools Resource Tuner Console 2.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156169.jpgsave_picture_156169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156169.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - С Новым Годом ННМ! (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156170.jpgsave_picture_156170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156170.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156172.jpgsave_picture_156172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Seven: семиминутные тренировки Full 4.3.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156174.jpgsave_picture_156174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156174.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:2B6DC51489A0D7BB0981A1BF521B456BFF150820
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156175.jpgsave_picture_156175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156175.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Nu Urban Jazz 1 (2015) [AAC|~343 Kbps] <Jazz, Nu Jazz, Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156176.jpgsave_picture_156176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156176.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:88EF8309C3FCB041F69010E6A2D241796C09FFF1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156177.jpgsave_picture_156177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156177.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:C256EB7C01D55B1620A2A685AB5F03E0FDC042C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156178.jpgsave_picture_156178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156178.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:545FD2CBD332C01AAAD6E04FB61411D2740E8D35
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156179.jpgsave_picture_156179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156179.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Зимняя свежая 30-тка Vol. 2 (2019) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156181.jpgsave_picture_156181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156181.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Microsoft  Visual C++ Runtimes AIO v0.77.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156182.jpgsave_picture_156182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156182.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ iReal Pro 2021.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156183.jpgsave_picture_156183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156183.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:E14A143D36A66B01F026F4F7F9E638EF349BBD7F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156184.jpgsave_picture_156184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156184.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156185.jpgsave_picture_156185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:40040557ED652845E0A513F14799EEEACD187E32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156186.jpgsave_picture_156186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156186.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156189.jpgsave_picture_156189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156189.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:84BBA44BA073A50110C51512C4ACC766199F2BA9
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156191.jpgsave_picture_156191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156191.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:AE1E8A407A2F17353A255DE876A70C670D752463
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156192.jpgsave_picture_156192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156192.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:D92DE3AD105D6CAC8BACF99ED4B3612F4228DAFB
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156193.jpgsave_picture_156193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156193.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:F6CBDF0E53A1FF935ED9A8652B78A65D3FBE9A88
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156194.jpgsave_picture_156194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156194.jpg" />
 </div>
 
 

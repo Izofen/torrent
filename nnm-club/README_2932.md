@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86610.jpgsave_picture_86610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86610.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nightwish -End Of Innocence (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86612.jpgsave_picture_86612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86612.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dторой оффициальный DVD группы Nightwish включает
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86613.jpgsave_picture_86613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86613.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A10C069407A2D322A1DE78ED5CB14E5CE0F38B4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86614.jpgsave_picture_86614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86614.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6B965109C181941EA939839699038A78ADA376FD
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86615.jpgsave_picture_86615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86615.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86616.jpgsave_picture_86616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86616.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86618.jpgsave_picture_86618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86618.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:6755DA529CE55F9F620B768033E179FBB898D593
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86619.jpgsave_picture_86619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86619.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86621.jpgsave_picture_86621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86621.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86622.jpgsave_picture_86622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86622.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:75E7EF0AD9D6C3BCE11F7F4FE1ABAFC2B7E7A4B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86623.jpgsave_picture_86623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86623.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B0810557664935BF863D096584AD30A8795E00A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86624.jpgsave_picture_86624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86624.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:238069DFB0210EBA0E36695B1EA1589E8C816CE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86626.jpgsave_picture_86626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86626.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:44835D0A09B9E305B2ACCD9D2778DF2D814AE637
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86627.jpgsave_picture_86627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86627.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F1F62129F0420B6180DF7784F003203E813381C8
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86628.jpgsave_picture_86628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86628.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86630.jpgsave_picture_86630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86630.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86635.jpgsave_picture_86635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86635.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86636.jpgsave_picture_86636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86636.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86638.jpgsave_picture_86638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86638.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:3D7C4941A3AE32359B0F0600EC8FE7C550F16A0A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86641.jpgsave_picture_86641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86641.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7C8B374D304D75B625CEAEC8A67AE6AB0E1F60D1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86642.jpgsave_picture_86642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86642.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86643.jpgsave_picture_86643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86643.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86644.jpgsave_picture_86644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86644.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86646.jpgsave_picture_86646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86646.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Counter-Strike 1.6 (RePack) [Ru] 2012 | trofian
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86647.jpgsave_picture_86647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86647.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86649.jpgsave_picture_86649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86649.jpg" />
 </div>
 
 

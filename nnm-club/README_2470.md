@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64970.jpgsave_picture_64970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:784E1B5871BC449A65FF49FE27D92FA16F4B4080
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64971.jpgsave_picture_64971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64971.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7984F78E65ADD977F62ADE16C3C408ADE4D7F389
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64972.jpgsave_picture_64972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64972.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6E73F38D05DB6A8A3104A160D3B89E13E207DE04
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64973.jpgsave_picture_64973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64973.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Deep House Ibiza: Sunset Mix 2025 (2025) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64974.jpgsave_picture_64974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64974.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0BE01385260FBB33A3DF07EE8EB5B1FFA0EFC383
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64975.jpgsave_picture_64975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64975.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64976.jpgsave_picture_64976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64976.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64977.jpgsave_picture_64977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64977.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Laura Jane Grace - Adventure Club (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64978.jpgsave_picture_64978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64978.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64979.jpgsave_picture_64979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64979.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Jessica Winter - My First Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64980.jpgsave_picture_64980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64980.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Redux Selection, Vol. 8 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64981.jpgsave_picture_64981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64981.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64982.jpgsave_picture_64982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64982.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Oblivion Machine - Око дня (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64983.jpgsave_picture_64983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64983.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64984.jpgsave_picture_64984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64984.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64985.jpgsave_picture_64985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64985.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64986.jpgsave_picture_64986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64986.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:489EA155D9AFC044873A07648497DA1746406CB9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64987.jpgsave_picture_64987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64987.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64988.jpgsave_picture_64988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64988.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:621624014B13CB905DC5840AC2F0E87338AAF47A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64989.jpgsave_picture_64989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64989.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Blues Escape feat. Johanna Lillvik - Teaser Blueser (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64990.jpgsave_picture_64990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64990.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mercedes Nicole - Too High A Price to Pay (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64991.jpgsave_picture_64991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64991.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kuddel Renner and his Amazing Blues Orchestra - The 3rd Album (2025) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64992.jpgsave_picture_64992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64992.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Harry Cassano - Coming to a Close (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64993.jpgsave_picture_64993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64993.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64994.jpgsave_picture_64994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64994.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:B0A31F4DF08041E2B906BEB6D0CF8E3054DD656F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64995.jpgsave_picture_64995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64995.jpg" />
 </div>
 
 

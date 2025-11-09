@@ -6,7 +6,7 @@ AIR Music Technology - Studio Strings 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186803.jpgsave_picture_186803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:98F5B9E884F3AF102576D4010EC0E684DE414211
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186804.jpgsave_picture_186804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186804.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186805.jpgsave_picture_186805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186805.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:38DBBE43BD2D40527CCB88D314600DA43CADF560
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186806.jpgsave_picture_186806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186806.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1512D5A114743833BD8FE4F738B234A5F323211C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186807.jpgsave_picture_186807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186807.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AC44FC67FE3059D7E6938F6A9B1BFF7D35448930
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186808.jpgsave_picture_186808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186808.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186809.jpgsave_picture_186809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186809.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BBFE7D22DBF74B2CD3A8AA92949A7799676E3F3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186810.jpgsave_picture_186810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186810.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B46D0D169E397BAEC4549AC22671126C045910D7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186811.jpgsave_picture_186811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186811.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ AIR Music Technology - Stage Piano 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186812.jpgsave_picture_186812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186812.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Sub Morphine - MegaStructure (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186813.jpgsave_picture_186813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186813.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:39BBE30F3CDF49F32EEC35ACED4EDBD63E0712E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186814.jpgsave_picture_186814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186814.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ EssentialPIM Pro 11.1.11 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186815.jpgsave_picture_186815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186815.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4529 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186816.jpgsave_picture_186816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186816.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:ADEC82A4F09DD274F33EDC1FD6C43169D52B8274
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186817.jpgsave_picture_186817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186817.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:0F6039EF077C595336DAB95BCBB8930A7A75AC78
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186818.jpgsave_picture_186818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186818.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186819.jpgsave_picture_186819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186819.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186820.jpgsave_picture_186820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186820.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4B806224B1A60D4BCB0CC9A1D78D7B02DF1C6ADB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186821.jpgsave_picture_186821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186821.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:AF6C89A2A1DCE3B55FF3A8902B490ECEC9EFA361
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186822.jpgsave_picture_186822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186822.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:87B89123AE56982F53C3D7464F07C17070434EDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186823.jpgsave_picture_186823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186823.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ DesktopOK 11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186824.jpgsave_picture_186824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186824.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sierra - A Story Of Anger (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186825.jpgsave_picture_186825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186825.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:D2A8006F0B94847BFBEDB460D447CAA5C66DE23E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186826.jpgsave_picture_186826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186826.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Stonewall - Victims Of Evil (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186827.jpgsave_picture_186827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186827.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpgsave_picture_186828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105485.jpgsave_picture_105485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD1B5D4E2BBDA6843EDFB326B9DA28D700DF459F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105486.jpgsave_picture_105486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105486.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105487.jpgsave_picture_105487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105487.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105488.jpgsave_picture_105488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105488.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ian - Minden Eletemben (2024) [MP3|~245 Kbps (V0)] <Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105489.jpgsave_picture_105489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105489.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Fernruf.Berlin (Дистанционный Звонок В Берлин) - 1 Alb
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105490.jpgsave_picture_105490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105490.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|image + .cue] <Gothic, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105491.jpgsave_picture_105491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105491.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105492.jpgsave_picture_105492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105492.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105493.jpgsave_picture_105493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105493.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105494.jpgsave_picture_105494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deville - 20 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Stoner Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105495.jpgsave_picture_105495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105495.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105496.jpgsave_picture_105496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105496.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105497.jpgsave_picture_105497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105497.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ moiii - moiii (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105498.jpgsave_picture_105498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105498.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Voc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpgsave_picture_105499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Ind
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpgsave_picture_105500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:0FC236E884511CC5997C28F657CFA148CA5A90E9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105501.jpgsave_picture_105501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105501.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:449D59E05B65E6D74CBD9FC70523597F4F615106
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105502.jpgsave_picture_105502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105502.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Anjunabeats pres. Summer House 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105503.jpgsave_picture_105503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105503.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105504.jpgsave_picture_105504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105504.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:5FB4469339F5703D1AB4308C7957AAB262FEF4D0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105505.jpgsave_picture_105505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105505.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Essential Selection Ibiza 2024 (2024) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105506.jpgsave_picture_105506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105506.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105507.jpgsave_picture_105507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105507.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105508.jpgsave_picture_105508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105508.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105509.jpgsave_picture_105509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105509.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Nois
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105510.jpgsave_picture_105510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105510.jpg" />
 </div>
 
 

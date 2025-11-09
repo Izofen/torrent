@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120107.jpgsave_picture_120107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9D9A2C2FC521A77497246AD81C01DE934100F706
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120108.jpgsave_picture_120108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120108.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9A35F371CF31CB61EB67568EB579E435CD5944AB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120109.jpgsave_picture_120109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120109.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ HitPaw Video Converter for Mac 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120110.jpgsave_picture_120110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120110.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120111.jpgsave_picture_120111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120111.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120112.jpgsave_picture_120112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120112.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Skype 8.112.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120113.jpgsave_picture_120113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120113.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EE78ED2438AF749DD1D08CB64FD4E40EB84EFB25
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120114.jpgsave_picture_120114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120114.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:32F23FC74C8FBF05A76E6EF7920B5F687DE1EDA3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120115.jpgsave_picture_120115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120115.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A4291E9C79E66A22DDF681F4410578F2BCDB594C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120116.jpgsave_picture_120116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120116.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ QOwnNotes 24.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120117.jpgsave_picture_120117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120117.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:0F0E0C89B2F3A4071AB863EFFA70BDAD41ED32DB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120118.jpgsave_picture_120118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120118.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E608D16040DC7DAE708C568E3D852ABEF408843E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120119.jpgsave_picture_120119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120119.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Skype 8.112.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120120.jpgsave_picture_120120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120120.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Monkey's Audio 10.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120121.jpgsave_picture_120121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120121.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:6273DCC6F0F202B9B4DEEB70B5C196267C940CB2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120122.jpgsave_picture_120122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120122.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120123.jpgsave_picture_120123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120123.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:32A0EC406CED8FAC5F2682132A5E9589C4E22694
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120124.jpgsave_picture_120124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120124.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Alexander Werth | Russia at War, 1941–1945 A History (2017) [PDF, EPUB][EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120125.jpgsave_picture_120125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120125.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CD84EA12AABD8D20661AC89E45A01714AAC7A46B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120126.jpgsave_picture_120126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120126.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.2.3 VST 3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120127.jpgsave_picture_120127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120127.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Compilation Electronic part 49 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120128.jpgsave_picture_120128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120128.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:8710D450DB089EAA8948039ED25A5DB9E12A3CCE
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120129.jpgsave_picture_120129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120129.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:1ECEDBFFF338E42681434B3669885CA4D0A2F2BB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120130.jpgsave_picture_120130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120130.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:D92AE2A875A10654358A2EAB8EE082F3CD985281
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120131.jpgsave_picture_120131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120131.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120132.jpgsave_picture_120132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120132.jpg" />
 </div>
 
 

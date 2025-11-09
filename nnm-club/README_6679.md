@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229152.jpgsave_picture_229152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229152.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sudden Deaf - Havoc (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229154.jpgsave_picture_229154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229154.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:8F786712AFCF2DBD5E11A8455A8126D2DFDB706C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229155.jpgsave_picture_229155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229155.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Korn (KoЯn) - Untitled (2007) Deluxe, 2023, Tempo Music [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229156.jpgsave_picture_229156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229156.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 19
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpgsave_picture_229158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:66A0573951CBFCEDE23D041CADEEFA5DDE1BA7ED
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229159.jpgsave_picture_229159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229159.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Nevercenter CameraBag Photo 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229161.jpgsave_picture_229161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229161.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:D741D9E91E4055FA3CCE45DAEE4B4E3F2A7988A5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229162.jpgsave_picture_229162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229162.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:E9B8E7B2CEC8FF9CE2B8B78CDF0175A04CC6FD8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229164.jpgsave_picture_229164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229164.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:896AC6268957C456CE4248BC089D3FFA645D6DAC
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229167.jpgsave_picture_229167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229167.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RAR Extractor - The Unarchiver 8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229168.jpgsave_picture_229168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229168.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ FBackup 9.4.452 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229169.jpgsave_picture_229169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229169.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ apulSoft FX Bundle 11.2020 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229170.jpgsave_picture_229170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229170.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Sensuous Smooth Jazz For Lovers (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229171.jpgsave_picture_229171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229171.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:70DBD5EFBC89B4E8516A6AAFB0A69920BCE59B66
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229175.jpgsave_picture_229175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229175.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:FA832F2A26FC9D4DEC957F1EAF07C5994C1A219B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229176.jpgsave_picture_229176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229176.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gym Workout DJ Team - Workout Mix 2020 New Year, New You [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229177.jpgsave_picture_229177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229177.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lordi - Lordiversity: Superflytrap (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229178.jpgsave_picture_229178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229178.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2DB8B46D8F1504F5B54994E0FB9E71D6383711E4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229179.jpgsave_picture_229179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229179.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6F7C18B77F66094C7E28DCDD9E39E244C95CB4A9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229181.jpgsave_picture_229181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229181.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Geir Bertheussen Blues Machine - Health Disease (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229184.jpgsave_picture_229184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229184.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Epica - Consign To Oblivion (Live At The Afas Live) (2023) EP [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229185.jpgsave_picture_229185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229185.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Airwave - 20 Years (Ambient Reworks) (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229186.jpgsave_picture_229186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229186.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:AEF8AA545F89334C1F117BAEF7EDE3F6516E78FD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229187.jpgsave_picture_229187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229187.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:B4822FC0689F49718C0237D05A824A2758584E69
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229189.jpgsave_picture_229189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229189.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:0DC561541C796C845627BE61A3F6CD58DBF8BF49
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229191.jpgsave_picture_229191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229191.jpg" />
 </div>
 
 

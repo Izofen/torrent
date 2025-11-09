@@ -6,7 +6,7 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242362.jpgsave_picture_242362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242362.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C031CD9854D6BEE5D7F69AAF4B2524EEBFFB96D7
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242363.jpgsave_picture_242363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242363.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bong Corleone - Bong Corleone (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242364.jpgsave_picture_242364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242364.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Blue Lounge Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242365.jpgsave_picture_242365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242365.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242366.jpgsave_picture_242366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242366.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:AD954549A211ED266EE036F65FA488E988843979
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242367.jpgsave_picture_242367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242367.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Comedy Баттл (26.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242368.jpgsave_picture_242368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242368.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:2D59FE1CCC01D88B99DD29EEEC8C4AA5D260D43B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242369.jpgsave_picture_242369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242369.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Lost Rachels - Bittersweet Taste of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242370.jpgsave_picture_242370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242370.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242371.jpgsave_picture_242371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242371.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242372.jpgsave_picture_242372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242372.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:D1E30C3C6FEA387A3F3BD14B92E6F9EDEDC3E01A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242373.jpgsave_picture_242373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242373.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242374.jpgsave_picture_242374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242374.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:32C385F43903F1F418786CF3D3B7927C2A2CBC2A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242375.jpgsave_picture_242375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242375.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242376.jpgsave_picture_242376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242376.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Global DJ Broadcast: Top 20 February (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242377.jpgsave_picture_242377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242377.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242378.jpgsave_picture_242378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242379.jpgsave_picture_242379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242379.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:94A2F0A0D313082EE987DC74EDABF72055D3F774
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242380.jpgsave_picture_242380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242380.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A0ABA131218A50680D999BFF65C83F3DBF9EF351
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242381.jpgsave_picture_242381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242381.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Haken - Fauna (Deluxe Edition) (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242382.jpgsave_picture_242382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242382.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ IconJar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242383.jpgsave_picture_242383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242383.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:6BB5B2E24F2584E5413CD0E083AB0966C0EF00A4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242384.jpgsave_picture_242384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242384.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Pattern-seeking Animals - Only Passing Through (2022) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242385.jpgsave_picture_242385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242385.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Jurassic World Evolution 2 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.12 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242386.jpgsave_picture_242386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242386.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Black Hole Trance Music 02-17 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242387.jpgsave_picture_242387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242387.jpg" />
 </div>
 
 

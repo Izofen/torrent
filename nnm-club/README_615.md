@@ -6,7 +6,7 @@ A.Truth & SysBreak | Свобода.exe — манифест свободног�
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16303.jpgsave_picture_16303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16303.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B2FA16B3BA5FF6C395DEC0BBAEC37433A5870EF4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16304.jpgsave_picture_16304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16304.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FF3713B63870B8253913609AC18F3A73B323CC60
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16305.jpgsave_picture_16305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16305.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CAC70158F90E708C9ECDDB1BED6C39D642E37B3C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16306.jpgsave_picture_16306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16306.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:89B3A62F50A828629B5C1178F39CB08AB6E509BB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16307.jpgsave_picture_16307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16307.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1477FC4CCE4DCF72B6D394F6E86A1B2BE9DE73CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16308.jpgsave_picture_16308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16308.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2AC505AB76EDE9F1632459766109C8387B5EE77D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16309.jpgsave_picture_16309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16309.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16310.jpgsave_picture_16310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16310.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F1873AF9470B1E35F38C281F24FB5865EAABC518
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16311.jpgsave_picture_16311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16311.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E06EF4E6F0F3E661014CB2F2D4113F4E43DE89C8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16312.jpgsave_picture_16312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16312.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1A5A5CB87EF77581D2FF55380508B40DC21C9531
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16313.jpgsave_picture_16313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16313.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:CBCE0E6F8BFB468E541651288EED90C698D4932F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16314.jpgsave_picture_16314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16314.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft  Visual C++ Runtimes AIO v0.91.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16315.jpgsave_picture_16315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16315.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16316.jpgsave_picture_16316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16316.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16317.jpgsave_picture_16317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16317.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16318.jpgsave_picture_16318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16318.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16319.jpgsave_picture_16319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16319.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16320.jpgsave_picture_16320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16320.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16321.jpgsave_picture_16321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16321.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.15.1/dlc) Repack Let'sРlay [Complete Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16322.jpgsave_picture_16322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16322.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16323.jpgsave_picture_16323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16323.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16324.jpgsave_picture_16324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16324.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16325.jpgsave_picture_16325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16325.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16326.jpgsave_picture_16326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16326.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:722C1169D4788944E6609189F1BE926EA9630BF0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16327.jpgsave_picture_16327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16327.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Kingdoms and Castles (2017) [Ru/Multi] (123r6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16328.jpgsave_picture_16328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16328.jpg" />
 </div>
 
 

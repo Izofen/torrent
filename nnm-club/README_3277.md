@@ -6,7 +6,7 @@ VA - Nahawand: Best of Vocal Trance (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpgsave_picture_105563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B0A326F21AC908A70923FF8500EE0720480BA834
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105564.jpgsave_picture_105564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105564.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Areal Kollen - 4 Albums (2023-2024) [MP3|320kbps|tracks] <EBM, Industrial, Aggro
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpgsave_picture_105565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Top June 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpgsave_picture_105566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Summer Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpgsave_picture_105567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpgsave_picture_105568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Nahawand: Best of Progressive Trance (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpgsave_picture_105569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Luna Falling - Ctrl + End (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105570.jpgsave_picture_105570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105570.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105571.jpgsave_picture_105571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105571.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105572.jpgsave_picture_105572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105572.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Eric Prydz presents [CELL.], Hï Ibiza, Spain (2024-07-22) [MP3|320 Kbps] <Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105573.jpgsave_picture_105573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105573.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:285DDDF40DF4D55FA3A8A1D7053F5D42132B773F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105574.jpgsave_picture_105574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105574.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sonible - pure:verb 1.0.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105575.jpgsave_picture_105575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105575.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nightsteel - Nightsteel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105576.jpgsave_picture_105576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105576.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:AB83B3C608C2F8B9CC925650C4B4D97797BB74BE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105577.jpgsave_picture_105577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105577.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8A98C20DB095FA2A7277AFDC4D03D07D1C29F874
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105578.jpgsave_picture_105578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105578.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kite - VII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105579.jpgsave_picture_105579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105579.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:0A8A54AA36908D53698A394C42D65861E209E31C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105580.jpgsave_picture_105580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105580.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Saga - Time's Up  (1986) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105581.jpgsave_picture_105581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105581.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1F44E01B8520050032E2EC51D26B72DA6D568D6F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105582.jpgsave_picture_105582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105582.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Eternal Storm - A Giant Bound To Fall (2024) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105583.jpgsave_picture_105583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105583.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Godsmack - Faceless (2003) Remaster, 2024, Universal Records [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105584.jpgsave_picture_105584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105584.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105585.jpgsave_picture_105585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105585.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105586.jpgsave_picture_105586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105586.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ That Woman - Find Joy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105587.jpgsave_picture_105587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105587.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Honey Revenge - Retrovision (2023) Extended Edition, 2024, Thriller Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105588.jpgsave_picture_105588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105588.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167209.jpgsave_picture_167209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167209.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167210.jpgsave_picture_167210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seal 1.11.0-beta.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167211.jpgsave_picture_167211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167211.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E2B75535F7BCE90132949D2AD3E22E0D8F5EE07B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167212.jpgsave_picture_167212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167212.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:C5DE44ED4CCD44CC938BAB9702D35ACC8F92AC6E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167213.jpgsave_picture_167213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167213.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D6C1B599245EA53FF07E1EBC00DE87F05337FC48
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167214.jpgsave_picture_167214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167214.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:793E458840710FE32B7024204425A83842170706
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167215.jpgsave_picture_167215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167215.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:CF26B4A279DCD608A5834AD1D037DAAD81E2A7EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167216.jpgsave_picture_167216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167216.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2BF7E18E491E0A8D1AAA28CBD89A531178D7DBED
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167217.jpgsave_picture_167217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167217.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167218.jpgsave_picture_167218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167218.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167219.jpgsave_picture_167219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167219.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167220.jpgsave_picture_167220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167220.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:AC347A50E38613636ABF2D6E9919CC03AD3ADC03
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167221.jpgsave_picture_167221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167221.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167222.jpgsave_picture_167222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167222.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167223.jpgsave_picture_167223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167223.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:30AD9B4E9E485396BDA762D76A6B8EB4D9381DC1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167224.jpgsave_picture_167224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167224.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:67078CE27EA0869F02B69354625E40FDBB76BCD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167225.jpgsave_picture_167225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167225.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E8D7495A15505654108C4479B765DEC52A7A5BA5
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167226.jpgsave_picture_167226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167226.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1FD60A519276D7FC662C56F977430F080B2B3C71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167227.jpgsave_picture_167227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167227.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:73286794E31A19D828C4A583CA8B1FDD9EB467D9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167228.jpgsave_picture_167228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167228.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167229.jpgsave_picture_167229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167229.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:56C5FF23BFF8C50BA9F6F5D2CD4C12E37DD98658
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167230.jpgsave_picture_167230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167230.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Zorin OS 16 Pro/Pro Lite [64-bit] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167231.jpgsave_picture_167231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167231.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:787FFBF69AFF90255EF10FF824D76FAD163C2CEB
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167232.jpgsave_picture_167232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167232.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:4B45E8C302520387D2EA5ED6DD17ACD1FB151E7D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167233.jpgsave_picture_167233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167233.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Office 2013-2021 C2R Install + Lite 7.3.7 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167234.jpgsave_picture_167234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167234.jpg" />
 </div>
 
 

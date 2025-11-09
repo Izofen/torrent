@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78944.jpgsave_picture_78944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78944.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39E70155B8A141C36443A7C13BDEDCA649FFEAB7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78954.jpgsave_picture_78954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:15BE9BD5E117DAAA6674E549E0DAB8D49253A889
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78962.jpgsave_picture_78962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78962.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9512207886D5D3977F156CE6124D7F54028FB0BD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78964.jpgsave_picture_78964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78965.jpgsave_picture_78965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78965.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78971.jpgsave_picture_78971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78971.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:699169046177C8DF544357284AB5A191C5E62A65
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78972.jpgsave_picture_78972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78972.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:699169046177C8DF544357284AB5A191C5E62A65
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78974.jpgsave_picture_78974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78974.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:950C6DAA71BAE3EF7DD8FC0DC81ADD279D44AC94
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78975.jpgsave_picture_78975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78975.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:A5E396A3382E41F56C48CD3F92E4BA515D78EF9C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78977.jpgsave_picture_78977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78977.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:05F8E7657C6D1EDDA347E70A20774D85049FE473
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78982.jpgsave_picture_78982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78982.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:E9D666112677C39A5C55E40E738BFB42E7E77E9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78991.jpgsave_picture_78991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78991.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:5BF305E544F34E5F9F0A97EE7CCE8EA4592744B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78999.jpgsave_picture_78999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78999.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:7ED08CA0B3642964F178E0150311F873C8D7A5B4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79001.jpgsave_picture_79001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79001.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79011.jpgsave_picture_79011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79011.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79012.jpgsave_picture_79012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79012.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Qip 2012 4.0 Build 7210
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79013.jpgsave_picture_79013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79013.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ QIP 2012 является прямым преемником QIP Infium и QIP 20
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79029.jpgsave_picture_79029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79029.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79031.jpgsave_picture_79031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79031.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79039.jpgsave_picture_79039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79039.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Oil Rush [Native] [Eng + Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79040.jpgsave_picture_79040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79040.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:E8F52EF2EE2FBAA2C7A776C44D7F1434075275B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79053.jpgsave_picture_79053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79053.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:57F1432905C949040E291DD4FA80C9D283D73B74
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79060.jpgsave_picture_79060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79060.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:132F533AD6F17765B2ED6E923FF7CE13D213B841
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79063.jpgsave_picture_79063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79063.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:132F533AD6F17765B2ED6E923FF7CE13D213B841
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79064.jpgsave_picture_79064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79064.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Louna - Время Х (2012) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79069.jpgsave_picture_79069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79069.jpg" />
 </div>
 
 

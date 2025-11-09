@@ -6,7 +6,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81180.jpgsave_picture_81180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81180.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81183.jpgsave_picture_81183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81183.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81184.jpgsave_picture_81184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81184.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81186.jpgsave_picture_81186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81186.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81187.jpgsave_picture_81187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81187.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81191.jpgsave_picture_81191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81191.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:F1AD7561C4008EF57926C09C401433F9BA6FEB38
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81192.jpgsave_picture_81192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81192.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81194.jpgsave_picture_81194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81194.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81197.jpgsave_picture_81197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81197.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:36AB5E64E8DC1C785A9EF3AC032CF6EADB2D7D4C
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81204.jpgsave_picture_81204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81204.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:871D1300AFF56486A2FFF8D0648B134A138AA691
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81206.jpgsave_picture_81206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81206.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81211.jpgsave_picture_81211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81211.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81213.jpgsave_picture_81213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81213.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VCMG - SSSS (2012) [MP3|320 kbps]<Techno, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81216.jpgsave_picture_81216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81216.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:5021F13F36231ADDA564117254941EFC54A3021C
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81217.jpgsave_picture_81217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81217.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:5C48B040CC73043E7CEF0D5967DF41BC821A7B15
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81218.jpgsave_picture_81218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81218.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1E0B8545A60E1833FC6CBA8FF0B2295D1B19D7CA
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81219.jpgsave_picture_81219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81219.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9BA3D4EA12B547F0FBCFEBA4D647A146396FDA22
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81221.jpgsave_picture_81221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81221.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:5902AE069428EA3A117CD31E3E6240A39C9402E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81222.jpgsave_picture_81222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81222.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:94CC91B185A5328DE6C4376C8EBF2E5B606723D5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81224.jpgsave_picture_81224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81224.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:ACE7DE87DF4664E5E1F8B2A927AB0AE42D37FF8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81225.jpgsave_picture_81225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81225.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Kidou Senshi Z Gundam -Hoshi wo Tsugu Mono / Mobile Suit Zeta Gundam: A New Tran
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81226.jpgsave_picture_81226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81226.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:1DA305E8089D0CB735516551135D8A917F9D08EE
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81227.jpgsave_picture_81227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81227.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kidou Senshi Z Gundam II -Koibitotachi- / Mobile Suit Zeta Gundam -Lovers- / М�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81229.jpgsave_picture_81229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81229.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5182128702846952D7C047A261CE12531B75EFA8
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81234.jpgsave_picture_81234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81234.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iTunes x32 10.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81240.jpgsave_picture_81240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81240.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ES File Explorer File Manager v4.4.2.19 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71288.jpgsave_picture_71288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71288.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4534D2DCDC735578F8B019E1DA910AEFED0C63F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71289.jpgsave_picture_71289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71289.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B696D8E635C8508BFCD5B2D918EB2F8673E7D051
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71290.jpgsave_picture_71290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71290.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8ED968AA44BCC90640EEA9AEAEB507C574E92436
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71291.jpgsave_picture_71291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71291.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.9 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71292.jpgsave_picture_71292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71292.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1C246841E30D6C4A3F80980AB671B1E7F38C2E31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71293.jpgsave_picture_71293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71293.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6742B2ACA59AF4279810C3033C435E4EB498086C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71294.jpgsave_picture_71294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71294.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6742B2ACA59AF4279810C3033C435E4EB498086C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71295.jpgsave_picture_71295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71295.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Folder Player Pro v5.30 b332 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71296.jpgsave_picture_71296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71296.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71297.jpgsave_picture_71297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71297.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Warwolf - The Final Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71298.jpgsave_picture_71298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71298.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71299.jpgsave_picture_71299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71299.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Ori Uplift - Uplifting Only Episode 625 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71300.jpgsave_picture_71300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71300.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D6BE46DAACB252EAC9F17122CCE9B1C75FF2A1D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71301.jpgsave_picture_71301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71301.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:82463F0196D28123466AEABE7388CB0643F750D0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71302.jpgsave_picture_71302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71302.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71303.jpgsave_picture_71303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71303.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71304.jpgsave_picture_71304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71304.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71305.jpgsave_picture_71305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71305.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71306.jpgsave_picture_71306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71306.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C8AEFA3AD54ABCE08952EF6DD7512D77273F6E61
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71307.jpgsave_picture_71307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71307.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5B20474A151CC4435FB419E3B07D540DD32D0631
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71308.jpgsave_picture_71308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71308.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71309.jpgsave_picture_71309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71309.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D758BC1B391A194CB0C41F6CFCB94685A824D99A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71310.jpgsave_picture_71310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71310.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A5FC32F8173612273FB6DA757625E11D07751914
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71311.jpgsave_picture_71311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71311.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:01DFE1EB40A1548DF8C2F8E58674ECE4FF9B946F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpgsave_picture_71312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71313.jpgsave_picture_71313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71313.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Prelude 2022 22.6.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238922.jpgsave_picture_238922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9F67BBA84BEADD52E62ACCE8EB62B530B6F27068
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238923.jpgsave_picture_238923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238923.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238925.jpgsave_picture_238925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238925.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:76DAF207F3D33A1080A4F8B7C71328F35585743E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238926.jpgsave_picture_238926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238926.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ StartAllBack 3.3.5.4345 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238927.jpgsave_picture_238927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238927.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ ExpanDrive 7 v7.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238929.jpgsave_picture_238929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238929.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238930.jpgsave_picture_238930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238930.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8CDC0776DB76FFFE57771CAE4CEF0A459352ACBD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238931.jpgsave_picture_238931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238931.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:57F42DB734E7044801E0DAF8B0B7FCAEAE807FDE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238932.jpgsave_picture_238932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238932.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Kotipelto - Serenity (2007) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238934.jpgsave_picture_238934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238934.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Xfer Records - Serum & SerumFX 1.35b1 Standalone, VSTi, AAX (x64/x86) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238936.jpgsave_picture_238936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238936.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ AFI - Bodies (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238937.jpgsave_picture_238937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238937.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Last In Line - Jericho (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238938.jpgsave_picture_238938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238938.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:BF86C438B32AAF7D0831F891E725915A8E63F4F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238939.jpgsave_picture_238939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238939.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A7B6187D602A8F73A184753D86DF0C18E7A5119D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238941.jpgsave_picture_238941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238941.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F42475E2C14439842145F5C5F28A118629950A18
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238943.jpgsave_picture_238943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238943.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:B07F365D6C0B8844450C152BA0FB6FE6DBBD2B28
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238944.jpgsave_picture_238944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238944.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ AirFoil+Airfoil Satellite 5.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238945.jpgsave_picture_238945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238945.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:5E5654FD4A70329A3A7076DAAC44A8BA8537BDB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238946.jpgsave_picture_238946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238946.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sandboxie plus 1.9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238947.jpgsave_picture_238947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238947.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Users - The Users (2023) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Pun
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238948.jpgsave_picture_238948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238948.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:44859C6A287F532477E8CD1E6E209611C96E9FE1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238950.jpgsave_picture_238950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238950.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iSpy 7.2.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238951.jpgsave_picture_238951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238951.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238954.jpgsave_picture_238954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AnyGo 6.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238955.jpgsave_picture_238955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238955.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238956.jpgsave_picture_238956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238956.jpg" />
 </div>
 
 

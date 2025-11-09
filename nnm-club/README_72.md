@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1909.jpgsave_picture_1909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1909.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2ED1E76616D0DED08B6C527A3BD6B0DDE5035063
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1910.jpgsave_picture_1910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1910.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1911.jpgsave_picture_1911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1911.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1912.jpgsave_picture_1912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1912.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3AD2B4F068B96B2BB248DB12E463061CBF828276
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1913.jpgsave_picture_1913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1913.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6C791F39504EC97E01CFE9B438FC8868856864BF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1914.jpgsave_picture_1914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1914.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A9A4F81557CE10C342AA24717976FFB7E25CC399
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1915.jpgsave_picture_1915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1915.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpgsave_picture_1916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1472065F921F8C8A5EE1DFDD53ED5F6F89C65A37
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1917.jpgsave_picture_1917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1917.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5FBA89385EDF2EAF210CC68CA3261F7AAC1AA857
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1918.jpgsave_picture_1918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1918.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mortal Sin (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpgsave_picture_1919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1919.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1920.jpgsave_picture_1920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1920.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Internet Download Manager 6.42 Build 45 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1921.jpgsave_picture_1921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1921.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:2D000A5C0C7CD29153BDF384616D23A1B61065A7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1922.jpgsave_picture_1922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1922.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:45F978523C8B2A3D49633EF212E713174FC4319C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1923.jpgsave_picture_1923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1923.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1924.jpgsave_picture_1924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1924.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:079C21117DBB3A6AE535A6E4BEB1E3BB0AB4B430
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1925.jpgsave_picture_1925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1925.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1926.jpgsave_picture_1926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1926.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpgsave_picture_1927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1928.jpgsave_picture_1928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1928.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1929.jpgsave_picture_1929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1929.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1930.jpgsave_picture_1930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1930.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B509D8F7217D1847378E1BBD735F5701612FD3D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1931.jpgsave_picture_1931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1931.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1932.jpgsave_picture_1932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1932.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1933.jpgsave_picture_1933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1933.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:1FDCCC1D91DC9461A1C8304A1F934E9644061843
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1934.jpgsave_picture_1934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1934.jpg" />
 </div>
 
 

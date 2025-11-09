@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251747.jpgsave_picture_251747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:502915FAEE85AFBA429B5985460A81C642CCA89B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251748.jpgsave_picture_251748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251748.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251749.jpgsave_picture_251749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251749.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251750.jpgsave_picture_251750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251750.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:44756AD518FA087B9FFAA1BC11686A815FA52C90
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251751.jpgsave_picture_251751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251751.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E47815E10E01A5508E0AAF08129AE381DBA43356
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251752.jpgsave_picture_251752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251752.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8D874415CFA92027140A6A786E363330409260FE
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251753.jpgsave_picture_251753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251753.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:B52B2AC04809B38A2C958694693ACE9A524AF0A2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251754.jpgsave_picture_251754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251754.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:62CC117241539FBAD60C1203DB49F8246B06E0EB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251755.jpgsave_picture_251755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251755.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251756.jpgsave_picture_251756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251756.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Planet of Lana (2023) [Ru/Multi] (1.0.7.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251757.jpgsave_picture_251757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251757.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251758.jpgsave_picture_251758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251758.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:21585C514290053E506FA3CAED22853E7A1C0EDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251759.jpgsave_picture_251759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251759.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ MP3 Cuter v1.7.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251760.jpgsave_picture_251760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251760.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:4834681349590C3868A3126C61F8A347A201589F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251761.jpgsave_picture_251761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251761.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9BF67703CBE70E127EAA797CD8683F1A12153FD1
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251762.jpgsave_picture_251762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251762.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:5C3248F7CFFC033128F13BC73FF9BA1B63CE77F3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251763.jpgsave_picture_251763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251763.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:E16048D0C53CA8E72B1298BB48A9399BAFD255F4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251764.jpgsave_picture_251764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251764.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251765.jpgsave_picture_251765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251765.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251766.jpgsave_picture_251766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251766.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Avast Premium Security 23.5.6066 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251767.jpgsave_picture_251767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251767.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:CEE8E3A4DA7BACB5A54DAB21AB59A4A0BDA0EA4D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251768.jpgsave_picture_251768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251768.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:018A255CF472980B12D50B08BE241BEFF55917BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251769.jpgsave_picture_251769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251769.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wikisound | FL Studio 20 абсолютный профи (2018) WEB-DL [RU]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251770.jpgsave_picture_251770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251770.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251771.jpgsave_picture_251771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251771.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:35A20CDA8A6A75230073CCEA979AD57F7866E646
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251772.jpgsave_picture_251772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251772.jpg" />
 </div>
 
 

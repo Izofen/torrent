@@ -6,7 +6,7 @@ Lyn 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244135.jpgsave_picture_244135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CBBB025D5DAFF2252449CF69C2283B36F01D086E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244136.jpgsave_picture_244136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244136.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:59040C4D04A4CB1D433EDDC442D3E39756778EFD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244137.jpgsave_picture_244137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244137.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5991702BC24ECE60691E9AA07F8FD4CE3E9C3937
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244138.jpgsave_picture_244138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244138.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NeoFinder Business 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244139.jpgsave_picture_244139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244139.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:45521F5B93463D3BD59038249DFEBB8CB1F0FD51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244140.jpgsave_picture_244140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244140.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6F1F84677EED3E2697E0D17C7B48EE011CDB0439
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244141.jpgsave_picture_244141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244141.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mozilla Thunderbird 102.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244142.jpgsave_picture_244142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244142.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Xmind: Mind Map & Brainstorm 1.9.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244143.jpgsave_picture_244143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244143.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, S
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244144.jpgsave_picture_244144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244144.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:8920C3EB5E3771BC579D7844CC545C908634059C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244145.jpgsave_picture_244145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244145.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244146.jpgsave_picture_244146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244146.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244147.jpgsave_picture_244147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244147.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:A5666013A3CB5C515F0B9FD34E56411EC3570CA1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244148.jpgsave_picture_244148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244148.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kaspersky Tweak Assistant 22.7.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244149.jpgsave_picture_244149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244149.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:12E7BDE5ED5D9CF2E142A5F53F946989E4F76725
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244150.jpgsave_picture_244150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244150.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Video AI 3.1.11 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244151.jpgsave_picture_244151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244151.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DiskGenius Pro 5.5.0.1488 (x64) Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244152.jpgsave_picture_244152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244152.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244153.jpgsave_picture_244153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244153.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Nancy Wilson - The Sound Of Nancy Wilson & Nancy (1968, 1969) 2013, SoulMusic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244154.jpgsave_picture_244154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244154.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Fresh Vibes: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244155.jpgsave_picture_244155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244155.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244156.jpgsave_picture_244156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244156.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244157.jpgsave_picture_244157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244157.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Firefox Browser ESR 91.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244158.jpgsave_picture_244158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244158.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ W.A Production - KSHMR Essentials 1.2.0 VST, VST 3, AAX (x64) RePack by AstroNom
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244159.jpgsave_picture_244159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244159.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:2779D6268F2E5013E1E36AB9399EB8E2AACF213B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244160.jpgsave_picture_244160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244160.jpg" />
 </div>
 
 

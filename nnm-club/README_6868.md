@@ -6,7 +6,7 @@ VA - Trap (2023) [MP3|320 Kbps] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235844.jpgsave_picture_235844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235844.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A5FD7F8435E095AC4923BB6AB0076D106AE4F956
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235845.jpgsave_picture_235845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235845.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ AveNue - Четвертак (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235846.jpgsave_picture_235846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235846.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B947AD7B05CAFA552205A0E00D324990AA8B8BF5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235847.jpgsave_picture_235847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235847.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Quick Search 5.35.1.138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235848.jpgsave_picture_235848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235848.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235849.jpgsave_picture_235849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235849.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:B49133060B93FC1FB2E0B143454BB77290452D46
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235850.jpgsave_picture_235850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235850.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Synth Elements - Love and Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacedance
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235851.jpgsave_picture_235851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235851.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235852.jpgsave_picture_235852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235852.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Topaz Gigapixel AI 6.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235853.jpgsave_picture_235853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235853.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:299E83BA8CEA0F73792A38BD05D09F2F153476B7
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235854.jpgsave_picture_235854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235854.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:5ED7B465B206CC1E98AFD2F118824FD43749483C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235855.jpgsave_picture_235855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235855.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235856.jpgsave_picture_235856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235856.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ OBS Studio 29.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235857.jpgsave_picture_235857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235857.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Polarr v6.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpgsave_picture_235858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235859.jpgsave_picture_235859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235859.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235860.jpgsave_picture_235860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235860.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BFEDE17FC95AF8CA7C4298FBC97C8A6D6CA62776
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235861.jpgsave_picture_235861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235861.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Charles Mingus - A Modern Jazz Symposium Of Music & Poetry (1957) 1994, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235862.jpgsave_picture_235862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235862.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Ungoogled Chromium 113.0.5672.64-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235863.jpgsave_picture_235863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235863.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235864.jpgsave_picture_235864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235864.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:007FE6933BC82142AC84079B8CEF77B8B71D1534
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235865.jpgsave_picture_235865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235865.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Pipette 23.6.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235866.jpgsave_picture_235866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235866.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235867.jpgsave_picture_235867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235867.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235868.jpgsave_picture_235868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235868.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235869.jpgsave_picture_235869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235869.jpg" />
 </div>
 
 

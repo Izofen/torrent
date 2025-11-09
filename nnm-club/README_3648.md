@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115223.jpgsave_picture_115223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115223.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1ED6C34C6089C9D3D3CAC627B9F2653757F7963E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115224.jpgsave_picture_115224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115224.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Stepik, Алексей Лобзов | Docs as Code: Пишем тексты ка
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115225.jpgsave_picture_115225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115225.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Topaz Video AI 4.2.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115226.jpgsave_picture_115226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115226.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7C8D61A7A7F1A3AB78927B1EB76A820C4CB84594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115227.jpgsave_picture_115227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115227.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E02912D5CBD9EB9A7B22EA0C2F67BBB17EBCC16A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115228.jpgsave_picture_115228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115228.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:05E28F7BAFE195D3AAFF1AF5E8E26310A0008394
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115229.jpgsave_picture_115229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115229.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ StartAllBack 3.7.5 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115230.jpgsave_picture_115230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115230.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F8DD250F17C097181CDB7F724819BA057CD101BB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115231.jpgsave_picture_115231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115231.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C841BCEED2BA0C068F2F7EFF2196E6CBCEACE7A5
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115232.jpgsave_picture_115232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115232.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5550E2384A2D651AE6F1F791770951F02F85F7D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115233.jpgsave_picture_115233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115233.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:43F0C427223106518879FB5D841F12E5C8F62998
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115234.jpgsave_picture_115234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115234.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:FFED53287A3C53666B93D91B6D51FA47693CB492
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115235.jpgsave_picture_115235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115235.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:44349CFB4A257C63B7B594C546FF15DFB521A796
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115236.jpgsave_picture_115236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115236.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A12B6DEF8585027036E9089DBE57A2F62933F001
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115237.jpgsave_picture_115237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115237.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Translator / Мгновенный перевод речи v10.1.6 Mod by Alex.St
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115238.jpgsave_picture_115238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115238.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C0814E91577F47933E80861B0F93C8B4ABA3C1FD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115239.jpgsave_picture_115239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115239.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:D4FA662423C7FDD1BB4513E0DBC9524A6F6E908A
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115240.jpgsave_picture_115240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115240.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8062DD2D0A830DE5455F912DE545DEF0B6C5D91E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115241.jpgsave_picture_115241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115241.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2769E9C2C8410F70157A311E6732C1F280581C2B
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115242.jpgsave_picture_115242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115242.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpgsave_picture_115243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:CBABB533A335350096CE213C4A199D5736A6A56F
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115244.jpgsave_picture_115244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115244.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:4BDF033F3CA0B347F91857DE5816E8032E6D39A3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115245.jpgsave_picture_115245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115245.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpgsave_picture_115246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Deep House, Baby 7 (2024) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115247.jpgsave_picture_115247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115247.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:1C9C3576F5A45890530759CBEFE25B42B883A42C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115248.jpgsave_picture_115248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115248.jpg" />
 </div>
 
 

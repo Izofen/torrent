@@ -6,7 +6,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpgsave_picture_207113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpgsave_picture_210124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpgsave_picture_247695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpgsave_picture_252292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpg" />
 </div>
 
 

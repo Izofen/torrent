@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98735.jpgsave_picture_98735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Продвинутый Модный Хит DFm (2012) [MP3|256 kbps]<Club |
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98736.jpgsave_picture_98736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98736.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98739.jpgsave_picture_98739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98739.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98740.jpgsave_picture_98740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98740.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:ED98E96D488D2683D07558AC3A819811C3E5494F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98745.jpgsave_picture_98745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98745.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98746.jpgsave_picture_98746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98746.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpgsave_picture_98749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpgsave_picture_98750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98751.jpgsave_picture_98751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98751.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:FC9B00BAE462A7DD1D419DCEB184E188B9652500
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpgsave_picture_98763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98768.jpgsave_picture_98768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98768.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpgsave_picture_98769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98770.jpgsave_picture_98770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98770.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpgsave_picture_98771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98774.jpgsave_picture_98774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98774.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98782.jpgsave_picture_98782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98782.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98787.jpgsave_picture_98787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98787.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98790.jpgsave_picture_98790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98790.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9216A87DAFB3079FF65B43B7D3CF4526072CE8AD
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98798.jpgsave_picture_98798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98798.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Ple
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98806.jpgsave_picture_98806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98806.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98811.jpgsave_picture_98811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98811.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98814.jpgsave_picture_98814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98814.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98815.jpgsave_picture_98815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98815.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpgsave_picture_98816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpgsave_picture_98819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98820.jpgsave_picture_98820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98820.jpg" />
 </div>
 
 

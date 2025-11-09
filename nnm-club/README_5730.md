@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176799.jpgsave_picture_176799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176799.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calibre 6.28.1 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176803.jpgsave_picture_176803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176803.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Calibre - простая и удобная программа для управ�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176814.jpgsave_picture_176814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176814.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RadioMaximus 2.32.1 Portable by FC Portables [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176820.jpgsave_picture_176820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176820.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Zoner Photo Studio X 19.2309.2.497 RePack (& Portable) by elchupacabra [Ru/En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176826.jpgsave_picture_176826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176826.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ LibreWolf 118.0.1-1 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176833.jpgsave_picture_176833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176833.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176835.jpgsave_picture_176835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176835.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ reaConverter Pro 7.795 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176837.jpgsave_picture_176837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176837.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Erja Lyytinen - Diamonds on the Road - Live (2023) [FLAC 24/44.1|Lossless|WEB-DL
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176840.jpgsave_picture_176840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176840.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Erja Lyytinen - Diamonds on the Road - Live (2023) [FLAC 24/44.1|Lossless|WEB-DL
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176842.jpgsave_picture_176842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176842.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Sante DICOM Viewer Pro 12.2.9 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176855.jpgsave_picture_176855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176855.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Sante DICOM Editor 8.2.9 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176858.jpgsave_picture_176858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176858.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ RarmaRadio Pro 2.75.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176863.jpgsave_picture_176863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176863.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ RarmaRadio - программа для прослушивания и запис�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176866.jpgsave_picture_176866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176866.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Radiant Photo 1.1.2.313 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176870.jpgsave_picture_176870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176870.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176875.jpgsave_picture_176875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176875.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176880.jpgsave_picture_176880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176880.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176884.jpgsave_picture_176884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176884.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176888.jpgsave_picture_176888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176888.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176891.jpgsave_picture_176891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176891.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Radiant Photo - это программа для редактирования ф
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176894.jpgsave_picture_176894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176894.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176898.jpgsave_picture_176898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176898.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176904.jpgsave_picture_176904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176904.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176906.jpgsave_picture_176906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176906.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Eddie James - Renaissance (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176909.jpgsave_picture_176909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176909.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Arduinna’s Dawn - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176912.jpgsave_picture_176912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176912.jpg" />
 </div>
 
 

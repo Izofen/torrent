@@ -6,7 +6,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210208.jpgsave_picture_210208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210208.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212165.jpgsave_picture_212165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212165.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212179.jpgsave_picture_212179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212179.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212283.jpgsave_picture_212283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212283.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212290.jpgsave_picture_212290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212290.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227231.jpgsave_picture_227231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227231.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231934.jpgsave_picture_231934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpgsave_picture_233314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233451.jpgsave_picture_233451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233750.jpgsave_picture_233750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpgsave_picture_234043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpgsave_picture_236275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236415.jpgsave_picture_236415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpgsave_picture_236481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpgsave_picture_237632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241091.jpgsave_picture_241091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242378.jpgsave_picture_242378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246070.jpgsave_picture_246070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246072.jpgsave_picture_246072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpgsave_picture_246169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246952.jpgsave_picture_246952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247002.jpgsave_picture_247002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpgsave_picture_247405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247737.jpgsave_picture_247737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247737.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Moonbase (RePack) [En] 1990 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpgsave_picture_248256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Extreme Assault [Ru] (RePack) 1997 | Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248303.jpgsave_picture_248303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248303.jpg" />
 </div>
 
 

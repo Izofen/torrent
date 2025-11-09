@@ -6,7 +6,7 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpgsave_picture_36543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpgsave_picture_36599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36599.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36601.jpgsave_picture_36601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36601.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpgsave_picture_36619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36619.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36621.jpgsave_picture_36621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36621.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36634.jpgsave_picture_36634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36634.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36650.jpgsave_picture_36650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36650.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36654.jpgsave_picture_36654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36654.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpgsave_picture_36655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36655.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36694.jpgsave_picture_36694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36694.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36705.jpgsave_picture_36705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36705.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36706.jpgsave_picture_36706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36706.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Farlanders (2023) [Multi] (1.2.0f1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36708.jpgsave_picture_36708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36708.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36712.jpgsave_picture_36712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36712.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36713.jpgsave_picture_36713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36713.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36714.jpgsave_picture_36714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36714.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36716.jpgsave_picture_36716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36716.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.622.6666/dlc) Scene Rune [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36738.jpgsave_picture_36738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36738.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ EcoGnomix (2024) [Multi] (1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36743.jpgsave_picture_36743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36743.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36788.jpgsave_picture_36788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36788.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36790.jpgsave_picture_36790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36790.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36792.jpgsave_picture_36792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36792.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ChessBase 18 (2024) [En] (18.2) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36796.jpgsave_picture_36796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36796.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpgsave_picture_36804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36804.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36826.jpgsave_picture_36826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36826.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36837.jpgsave_picture_36837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36837.jpg" />
 </div>
 
 

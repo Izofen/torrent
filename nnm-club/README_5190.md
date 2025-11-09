@@ -6,7 +6,7 @@
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161689.jpgsave_picture_161689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161689.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5F29E0816275457840D5622CCFFC737F8DAAEB77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161690.jpgsave_picture_161690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161690.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9B3FFF363B7F89051216FC4BCF675C76D4EB6431
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161691.jpgsave_picture_161691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161691.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161692.jpgsave_picture_161692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161692.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0336CABA344CE317174F799E34075CF3A2723636
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161693.jpgsave_picture_161693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161693.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ IObit Uninstaller Pro 12.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161694.jpgsave_picture_161694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161694.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Acorn 7 v7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161695.jpgsave_picture_161695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161695.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DD3A47655BA5CD955466DCF4C97DC4E5765E4B12
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161696.jpgsave_picture_161696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161696.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DF59E3BE29EA30F516930B38A38D4DEFDA9EB9A6
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161697.jpgsave_picture_161697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161697.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161698.jpgsave_picture_161698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161698.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5CECA131344275AFF2EA3C401F3B35DB90F753BC
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161699.jpgsave_picture_161699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161699.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E4FC449C27E8BC163C6DB83CD2CD0A206410DE3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161700.jpgsave_picture_161700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161700.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:EEC9213237FD6277BB17CB80827E2118A3592B6F
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161701.jpgsave_picture_161701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161701.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FB9FC3D0474D09AADE0EF214AAD4AAB594B2123E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161702.jpgsave_picture_161702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161702.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4F10B3235F4E6A5642F5A7A08A99519D67B38F9E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161703.jpgsave_picture_161703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161703.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161704.jpgsave_picture_161704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161704.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161705.jpgsave_picture_161705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161705.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161706.jpgsave_picture_161706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161706.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Ретро-Дуэты - Листья желтые над городом к�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161707.jpgsave_picture_161707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161707.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Rhinoceros 3D 8.0.23304.09001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161708.jpgsave_picture_161708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161708.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:68EDF8BAA240AA316DFD5D749C96CC8E342A8305
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161709.jpgsave_picture_161709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161709.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-12-19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161710.jpgsave_picture_161710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161710.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:3348641609C60D8A2EAEA5901FE2B50AA94CD8F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161711.jpgsave_picture_161711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161711.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3337714AEBB46ED29614A802FB64F39781270370
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161712.jpgsave_picture_161712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161712.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DEC552CB72502E663F38728074858DA0E2346854
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161713.jpgsave_picture_161713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161713.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:723D48EEECAA57D54F6FE7A10D89FC324072EBA3
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161714.jpgsave_picture_161714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161714.jpg" />
 </div>
 
 

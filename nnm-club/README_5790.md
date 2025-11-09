@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpgsave_picture_180327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asia - Fantasia (Live In Tokyo) (2007) 2xCD, Japanese Edition, Remastered, SHM-C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180328.jpgsave_picture_180328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180328.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fraise - The Fifth Sun, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180330.jpgsave_picture_180330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180330.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0439C6735C9FC86A5815DF5347B4C3300209C835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180332.jpgsave_picture_180332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180332.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jeff Michaels - Late Night & Low Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180333.jpgsave_picture_180333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180333.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:6E016C09AFC759E28F15C212A64D1B2D8E311777
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180334.jpgsave_picture_180334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180334.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180336.jpgsave_picture_180336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180336.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:FE3A6A832B5FC0C6BBEC73468A5B7207B061CFB5
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180339.jpgsave_picture_180339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180339.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:128CE2187F45D2B41CB5E6A70A6FCE41C738A71C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180340.jpgsave_picture_180340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180340.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Antoine Holler - No Regrets (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180343.jpgsave_picture_180343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180343.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:1497E1CBCDB9C97BB511B05CD1F8DCC5ED73E20D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180344.jpgsave_picture_180344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180344.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ InShot 1.872.1386 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180347.jpgsave_picture_180347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180347.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Soluna - Synesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180349.jpgsave_picture_180349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180349.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Nurcry - Destino, yo te busco (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180351.jpgsave_picture_180351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180351.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DV
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpgsave_picture_180353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180353.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CD88E73A3F3508433F4B6C9941BBCFF520EED56E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180355.jpgsave_picture_180355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180355.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:35FF6967C9BE557589DC5ECF157AB5C476B0CE42
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180356.jpgsave_picture_180356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180356.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180360.jpgsave_picture_180360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180360.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180361.jpgsave_picture_180361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180361.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ InnoExtractor Plus 6.1.0.407 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180362.jpgsave_picture_180362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180362.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Fatal - Soul Burning Still - A Fatal Retrospective (2017) Compilation [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180364.jpgsave_picture_180364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180364.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpgsave_picture_180368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180369.jpgsave_picture_180369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180369.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Balabolka 2.15.0.830 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180370.jpgsave_picture_180370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180370.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180373.jpgsave_picture_180373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180373.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpgsave_picture_180375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
 </div>
 
 

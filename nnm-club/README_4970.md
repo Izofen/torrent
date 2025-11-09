@@ -6,7 +6,7 @@ ESET NOD32 Antivirus 10.0.386.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155286.jpgsave_picture_155286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abelssoft SSD Fresh Plus 2015 Retail [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155287.jpgsave_picture_155287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1BB254455247F167DF8155F0147C6B0ACF012006
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155288.jpgsave_picture_155288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155288.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:99E25C534D196F19AAC365787F5C75BCF6D02F40
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155289.jpgsave_picture_155289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155289.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sexy Girls Wallpapers (09.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155290.jpgsave_picture_155290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155290.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:16056A9D341D02262290ECC5609FDA5CFD1B8D77
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155291.jpgsave_picture_155291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155291.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PDF to Word Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155293.jpgsave_picture_155293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155293.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:338673C53F469FD842E2D06436D21D1B33A250DF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155294.jpgsave_picture_155294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155294.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:76BBDC547299B66854CA41D8B2C75D36B84F02AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155295.jpgsave_picture_155295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155295.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SIV (System Information Viewer) 5.74 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155297.jpgsave_picture_155297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155297.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cockos - REAPER 5.965 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155298.jpgsave_picture_155298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155298.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image +
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155299.jpgsave_picture_155299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155299.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lye By Mistake - Fea Jur (2009) [MP3|320 кб/с]<Instrumental Progressive Fusio
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155300.jpgsave_picture_155300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155300.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A9BBE85998C6D41E0B55ECE716B05001CDA6E37D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155301.jpgsave_picture_155301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155301.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:13D0DC45FDAC5A6D6039E2FDE9FFAF051C563D95
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155302.jpgsave_picture_155302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155302.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:53368DA4E6E55C4820126F674795A19A7236DAD2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155303.jpgsave_picture_155303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155303.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Resource Hacker 5.2.5.409 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155305.jpgsave_picture_155305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155305.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Royal Envoy 3 (коллекционное издание) (2014) [Ru] [macOS Nat
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155306.jpgsave_picture_155306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155306.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:51307485244133078C6755B77A2DDA41D15EC6F4
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155307.jpgsave_picture_155307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155307.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The KMPlayer 4.0.3.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155308.jpgsave_picture_155308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155308.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jordan Rakei - Wallflower (2017) [FLAC|Lossless|tracks + .cue] <R&B, Soul, Neoso
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155309.jpgsave_picture_155309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155309.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BDA9CADBF2AA8FF3F82E0F211E35DA13CC9136F3
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155310.jpgsave_picture_155310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155310.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B5F81F52A59DA9B8FF7A2F7479DC58745201BB40
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155312.jpgsave_picture_155312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155312.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Bandicam 3.0.1.1003 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155313.jpgsave_picture_155313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155313.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E60D224157A3E63C49A60D33091FE0E63A040689
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155315.jpgsave_picture_155315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155315.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:D3A4AC59FBBF802301F7179BF1F5B1AC791669D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155316.jpgsave_picture_155316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155316.jpg" />
 </div>
 
 

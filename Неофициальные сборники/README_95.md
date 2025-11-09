@@ -6,7 +6,7 @@ VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164404.jpgsave_picture_164404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Beatport Electro House: Sound Pack #211 (2020) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164445.jpgsave_picture_164445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164445.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpgsave_picture_164482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Frozen Sounds: Techno Hypnotic Mix (2019) [MP3|320 Kbps] <Techno, Minimal, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164487.jpgsave_picture_164487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164487.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Hi Games Vol.3 (Chiptune, Dubstep, Breaks Edition) (2019) [MP3|320 Kbps] <C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164527.jpgsave_picture_164527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164527.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164548.jpgsave_picture_164548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164548.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Кайфуем Зиму (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164772.jpgsave_picture_164772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164772.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 100 Club Hits - Edition 2023 (2022) [MP3|320 Kbps] <Electro Pop, Dance, Fut
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164786.jpgsave_picture_164786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 200 mp3  часть 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164881.jpgsave_picture_164881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164881.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164891.jpgsave_picture_164891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164891.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165037.jpgsave_picture_165037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165037.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165094.jpgsave_picture_165094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165094.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Funky Just Away Dance (2022) [MP3|320 Kbps] <Chicago House, Soulful, Indie 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165124.jpgsave_picture_165124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165124.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Music News vol.311 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165125.jpgsave_picture_165125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165125.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165147.jpgsave_picture_165147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165147.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165222.jpgsave_picture_165222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165222.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Music News vol.155 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165229.jpgsave_picture_165229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165229.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Its Time To Party December (2019) [MP3|320 Kbps] <Electro, Big Room, Dutch 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165232.jpgsave_picture_165232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165232.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165500.jpgsave_picture_165500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165500.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165559.jpgsave_picture_165559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165559.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165951.jpgsave_picture_165951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165951.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165961.jpgsave_picture_165961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165961.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - December Electro House Exclusive Megamixes (2019) [MP3|320 Kbps] <House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166005.jpgsave_picture_166005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166005.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Громкие новинки Декабря 2 (2020) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166034.jpgsave_picture_166034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166034.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166085.jpgsave_picture_166085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166085.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Beatport Electronic: Sound Pack #210 (2020) [MP3|320 Kbps] <Electronic, Syn
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpgsave_picture_166228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166228.jpg" />
 </div>
 
 

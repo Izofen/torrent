@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244953.jpgsave_picture_244953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9F76131D49F10A386D4C26C839C2504E7AF73A52
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244954.jpgsave_picture_244954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sunny Lax - Crystals (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244955.jpgsave_picture_244955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244955.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244956.jpgsave_picture_244956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244956.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Beatport Progressive Trance: Sound Pack #249 (2021) [MP3|320 Kbps] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244957.jpgsave_picture_244957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244957.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ The Enigma Division - The Enigma Division (2023) [MP3|320 Kbps] <Progressive Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244958.jpgsave_picture_244958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244958.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8F8018F5AB2EA5E9FC91B0DF5F7518BEE301C48E
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244959.jpgsave_picture_244959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244959.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ OCCT 12.0.0.b8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244960.jpgsave_picture_244960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244960.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ CleanMyMac X 4.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244961.jpgsave_picture_244961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244961.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:F3C5D1603533DC4D4FB7E7D1D16E371C3FCA3CBE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244963.jpgsave_picture_244963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244963.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ DSLR Assistant 3.9.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244964.jpgsave_picture_244964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244964.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ EdgeView 3 v3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244965.jpgsave_picture_244965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244965.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:70A64640EB92528A9C9E8DB1EC234D18A157917C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244966.jpgsave_picture_244966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244966.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PD Design Studio | Артбук по игре Dusty Revenge / Dusty Revenge: The
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244967.jpgsave_picture_244967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244967.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:18C1FC6E8FF30C4F60232A3B3AAC1926A4331DAD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244968.jpgsave_picture_244968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244968.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1A0858E8DAB2F449FE7D1BA9EB2CE053D788462B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244969.jpgsave_picture_244969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244969.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D21523474E4F4A24F0144026825AF72BE9A0676B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244970.jpgsave_picture_244970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244970.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4F33848A151707935EB10713D52B2E84650297DB
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244971.jpgsave_picture_244971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244971.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244972.jpgsave_picture_244972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244972.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:23B41858EE1634BD32F3206B0086B91927D6CC3C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244973.jpgsave_picture_244973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244973.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Capcom | Артбук по игре Asura's Wrath / Asura's Wrath - Artbook (201
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244974.jpgsave_picture_244974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244974.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wise Care 365 Pro 6.3.3.611 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244975.jpgsave_picture_244975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244975.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Monkey's Audio 10.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244976.jpgsave_picture_244976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244976.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock &
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244977.jpgsave_picture_244977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244977.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpgsave_picture_244978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244979.jpgsave_picture_244979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244979.jpg" />
 </div>
 
 

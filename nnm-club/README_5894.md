@@ -6,7 +6,7 @@ Sweet Oblivion - Sweet Oblivion (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185537.jpgsave_picture_185537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185537.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:94C5F8CA53E38F84536D3C78B4FFC89F6FEE48BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185539.jpgsave_picture_185539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185539.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wardog - Scorched Earth (1996) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185540.jpgsave_picture_185540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185540.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Linguist 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185542.jpgsave_picture_185542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185542.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nils Patrik Johansson - The Great Conspiracy (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185543.jpgsave_picture_185543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185543.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/En]
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185545.jpgsave_picture_185545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185545.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ iClock Pro 5.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185547.jpgsave_picture_185547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185547.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Tungsten - We Will Rise (2019) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185548.jpgsave_picture_185548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185548.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:A5E2AE9C7226224B15D99B7425B368CBD7E317B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185550.jpgsave_picture_185550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185550.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Chet Baker & Dick Twardzik Quartet - Chet & Dick (1955, 1956) 2016, Jazz Images 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185552.jpgsave_picture_185552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185552.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Shallow Rivers - 4 Albums (2019-2022) [MP3|320 Kbps] <Atmospheric Doom, Death Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185553.jpgsave_picture_185553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185553.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:25BD051FCEFF6C36FE9A4ACD5A9B0B5FCA83CEA7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185555.jpgsave_picture_185555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185555.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ EazyDraw 10.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185557.jpgsave_picture_185557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185557.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:A059D1198252E111EF4FC3521E5427766CC93C4B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185558.jpgsave_picture_185558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185558.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:46333797DF57FE63847AD2CC1B0855BA5EFCC29E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185560.jpgsave_picture_185560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185560.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Silence - Angelus Custos (2022) [MP3|320 Kbps] <Post Metal, Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185562.jpgsave_picture_185562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185562.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ PhotoSweeper X 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185563.jpgsave_picture_185563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185563.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Vigilance - Behind The Mask (1996) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185566.jpgsave_picture_185566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185566.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185567.jpgsave_picture_185567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185567.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:04F37F4A9368903581B8136D6B3562F5C3CC838C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185568.jpgsave_picture_185568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185568.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Art Files 3 v3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185570.jpgsave_picture_185570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185570.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185572.jpgsave_picture_185572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185572.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185573.jpgsave_picture_185573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185573.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185576.jpgsave_picture_185576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185576.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:CB6338F2CF273987A8983F55090E15F557E17D8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185577.jpgsave_picture_185577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185577.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185578.jpgsave_picture_185578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185578.jpg" />
 </div>
 
 

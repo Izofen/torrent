@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144085.jpgsave_picture_144085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144085.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Office 2003 SP3 eng vl + conv2007 + updates (16.12.2012) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144086.jpgsave_picture_144086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144086.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Office 2003 Professional — исчерпывающий комплект раб�
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144087.jpgsave_picture_144087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144087.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144088.jpgsave_picture_144088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144088.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144089.jpgsave_picture_144089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144089.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:69733CDB8E2E87AE9B1BBD95C00633FD58879DFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144090.jpgsave_picture_144090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144090.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144091.jpgsave_picture_144091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144091.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ PROMT Freelance 11 Build 9.0.556 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144093.jpgsave_picture_144093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144093.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:2DD72EC7808772E2B865DEFB8E986A7EC5D068E1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144094.jpgsave_picture_144094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144094.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144095.jpgsave_picture_144095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144095.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144096.jpgsave_picture_144096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144096.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Party of Sin [Ru/En/Multi6] (L) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144097.jpgsave_picture_144097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144097.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ WindowsPlayer 3.1.1.0 RePack (& Portable) by AlekseyPopovv [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144098.jpgsave_picture_144098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144098.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:FB65E94D3D2011D36B5C3B2E0A34F3FE7A7CE478
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144099.jpgsave_picture_144099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144099.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:71AA18B6F74A0FE30DEF774CDDCB2BD1DA556FDF
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144100.jpgsave_picture_144100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144100.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:BC5CC6EAD8942EFB2D1C900E78DC115C4E75BB9C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144101.jpgsave_picture_144101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144101.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ WinHex 16.8 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144102.jpgsave_picture_144102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144102.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpgsave_picture_144103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:FFB13E5ACA80CB1A2F050EFD3721014CBC3E89EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144104.jpgsave_picture_144104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144104.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ FL Studio Producer Edition 20.6.0.1458 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144106.jpgsave_picture_144106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144106.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Warframe: The New War (2013) [Ru/Multi] (31.0.5) License (обновляемая
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144107.jpgsave_picture_144107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144107.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Poseydon - Through The Gate Of Hatred And Aversion (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144108.jpgsave_picture_144108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144108.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144109.jpgsave_picture_144109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144109.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:568A25F2084E69E484D942E119F6EC7190AA1851
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144111.jpgsave_picture_144111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144111.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144112.jpgsave_picture_144112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144112.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:19E3EDDBE7F6DFC5456D38A5637F540EC2FB4CE3
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144114.jpgsave_picture_144114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144114.jpg" />
 </div>
 
 

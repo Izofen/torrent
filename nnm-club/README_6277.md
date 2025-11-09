@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196773.jpgsave_picture_196773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1DFC9ECFF484027869A7354320050C9629FF798
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196774.jpgsave_picture_196774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Japanese Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196775.jpgsave_picture_196775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196775.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E134B8EC06A30D368ABBB1735A822E8B5BA8B3DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196776.jpgsave_picture_196776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196776.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DFF98E35A00E85D98436235A9AF8C7633114C638
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196777.jpgsave_picture_196777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196777.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0E3E8D19BFBA1838C00828029B70922EE43947D0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196778.jpgsave_picture_196778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196778.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FC92F35C4DD27F5552F61A9E4DFEC25C6BD18534
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196779.jpgsave_picture_196779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196779.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E369F3158A697E63FB03A46ECA66D692D8172C2D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196780.jpgsave_picture_196780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196780.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DC1D92CCAD8F0F919F2380D62D1526B9F29CD7A7
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196781.jpgsave_picture_196781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196781.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F7E4B9C77929FCB9ED9F86631A6B10E62C015A24
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196783.jpgsave_picture_196783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196783.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196784.jpgsave_picture_196784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196784.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpgsave_picture_196785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196786.jpgsave_picture_196786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196786.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Planet VPN 2.0.45.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196787.jpgsave_picture_196787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196787.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft .Net Framework 13.06.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196788.jpgsave_picture_196788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196788.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpgsave_picture_196789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196790.jpgsave_picture_196790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196790.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:94F51867AFA7785250D0DB530FE353FDCF597670
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196791.jpgsave_picture_196791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196791.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196792.jpgsave_picture_196792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196792.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:EB4CEF4A0145528997E1B83FCA60198CA23A119B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196794.jpgsave_picture_196794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196794.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ MAGIX Vegas Pro 20.0 Build 411 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196795.jpgsave_picture_196795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196795.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:327EEBA7288C78342FE5AB436D46CE6361FF15B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196796.jpgsave_picture_196796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196796.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:C4E34551164EF6BF82A7CF014CF416E34211C66B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196797.jpgsave_picture_196797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196797.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2A848142722633F5B0E1EB8243364D92B7DE6FDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196798.jpgsave_picture_196798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196798.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:BE2360A37159C4F08C7C86382A4426728D998452
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196799.jpgsave_picture_196799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196799.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:88DF292B24A359457D919038FFD9B7F7408A24D0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196801.jpgsave_picture_196801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196801.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ABBYY FineReader PDF for Mac 15.2.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120055.jpgsave_picture_120055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120055.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FE36058C71B31E0E78E9526C995E98AD2CBEEB79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120056.jpgsave_picture_120056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120056.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CE925897FAB860DC0D145D605FBA982B23A24A5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120057.jpgsave_picture_120057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120057.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ViewBox v1.8.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120058.jpgsave_picture_120058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120058.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120059.jpgsave_picture_120059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120059.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:4BAB9907533F01CEC6277DFD49E89E7F4CCBE413
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120060.jpgsave_picture_120060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120060.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:16E0811C7E9C4FE0F1A05BED32431A1625C78759
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120061.jpgsave_picture_120061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120061.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ D.A.F Band - Socialovism (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120062.jpgsave_picture_120062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120062.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9256ECEEABA243FC42D7C670D77711560DEDA4C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120063.jpgsave_picture_120063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120063.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120064.jpgsave_picture_120064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120064.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Vito Rezza - Cognitive Dissonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120065.jpgsave_picture_120065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120065.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120066.jpgsave_picture_120066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120066.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:4B0C221315867AFB47D19D71B5BBCEADB57C7990
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120067.jpgsave_picture_120067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120067.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:8D1D74E1E181D45A4B0F5C6F19632E1B62F152E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120068.jpgsave_picture_120068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120068.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120069.jpgsave_picture_120069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120069.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Stats 2.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120070.jpgsave_picture_120070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120070.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120071.jpgsave_picture_120071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120071.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120072.jpgsave_picture_120072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120072.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120073.jpgsave_picture_120073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120073.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ MWeb Pro 4.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120074.jpgsave_picture_120074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120074.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Imagress - Sentient (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120075.jpgsave_picture_120075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120075.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Iris 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120076.jpgsave_picture_120076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120076.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120077.jpgsave_picture_120077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120077.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120078.jpgsave_picture_120078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120078.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120079.jpgsave_picture_120079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120079.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120080.jpgsave_picture_120080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120080.jpg" />
 </div>
 
 

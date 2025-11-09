@@ -6,7 +6,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27572.jpgsave_picture_27572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:513D0DCB623B47BA625531D6BB43C2DCBD55F6C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27573.jpgsave_picture_27573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27573.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ChatOn: Чат-бот с ИИ v1.64.512-586 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27574.jpgsave_picture_27574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27574.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Alex Beyrodt's Voodoo Circle - 8 альбомов (2008-2024) Discography [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27575.jpgsave_picture_27575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27575.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VueScan Pro 9.8.44.10 RePack (& Portable) by elchupacabra (DC 2025.02.13) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27576.jpgsave_picture_27576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27576.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Scorchlands (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27577.jpgsave_picture_27577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27577.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27578.jpgsave_picture_27578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27578.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27579.jpgsave_picture_27579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27579.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:40008D8A67B5FEB1C36C349B7B9F28672396E83B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27580.jpgsave_picture_27580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27580.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27581.jpgsave_picture_27581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27581.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Battery Mode 4.3.2.204 [Multi/Ru] (Авторская раздача обнов�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27582.jpgsave_picture_27582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27582.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A963DC58C43C03F72E236D09A50FC0511B58D9BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27583.jpgsave_picture_27583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27583.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:EBB5C940CEC785692545846F6AEC9DA3968525C2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27584.jpgsave_picture_27584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27584.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27585.jpgsave_picture_27585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27585.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Launcher for zapret 1.9 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27586.jpgsave_picture_27586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27586.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27587.jpgsave_picture_27587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27587.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27588.jpgsave_picture_27588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27588.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Activation Scripts (MAS) 3.0 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27589.jpgsave_picture_27589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27589.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Pre
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpgsave_picture_27590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A8FA0764788AC6EE73DCD5163880043904C34A53
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27591.jpgsave_picture_27591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27591.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:51C984C7FF7DA582F864D6929941162697394E96
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27592.jpgsave_picture_27592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27592.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ FL Studio Producer Edition 24.2.2.4597 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27593.jpgsave_picture_27593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27593.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Activation Program 1.01 b01 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27594.jpgsave_picture_27594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27594.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:11FD997EC51AA30E18C6BC06315F53C1893B7D7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27595.jpgsave_picture_27595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27595.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:11FD997EC51AA30E18C6BC06315F53C1893B7D7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27596.jpgsave_picture_27596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27596.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Christie’s планирует устроить распродажу работ
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27597.jpgsave_picture_27597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27597.jpg" />
 </div>
 
 

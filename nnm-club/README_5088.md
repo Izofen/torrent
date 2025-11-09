@@ -6,7 +6,7 @@ Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpgsave_picture_158997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158998.jpgsave_picture_158998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158998.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Jonasu - Cutting Through Noise (2022) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158999.jpgsave_picture_158999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158999.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Apeaksoft iPhone Transfer 2.0.60 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159000.jpgsave_picture_159000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159000.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159001.jpgsave_picture_159001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159001.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C137552753D60BDC62AEEA6D6427240AA45AF136
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159002.jpgsave_picture_159002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159002.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ MacCleanse 12 v.12.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159003.jpgsave_picture_159003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159003.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A8A897A1350BB0EAF8569326800E3AC2D356F261
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159004.jpgsave_picture_159004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159004.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Space Holidays Vol. 11 (2019) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159005.jpgsave_picture_159005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159005.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Ronnie Atkins - Trinity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159006.jpgsave_picture_159006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159006.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ OmniReader Pro for Mac 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159007.jpgsave_picture_159007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159007.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159008.jpgsave_picture_159008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159008.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159009.jpgsave_picture_159009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159009.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Rainmaker - Rainmaker (2000) Reissue, 2023, Pride & Joy Music [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpgsave_picture_159010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Miseria Ultima - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159011.jpgsave_picture_159011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159011.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:6FD83A3696452767A0FD685C0AE0130E7F4277B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159012.jpgsave_picture_159012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159012.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ F. Kroger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия не
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159013.jpgsave_picture_159013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159013.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:5D99532F91D6C44346FCD96E633D3BFCFCA3F830
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159014.jpgsave_picture_159014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159014.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mos 3.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159015.jpgsave_picture_159015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159015.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Vellum 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159016.jpgsave_picture_159016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159016.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpgsave_picture_159017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:4EBE8A7AF11E0801489AF5959810C2C1803C244A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159018.jpgsave_picture_159018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159018.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpgsave_picture_159019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1D396354CFF89CAEDFCB70037965776CC11A9F94
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159020.jpgsave_picture_159020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159020.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AnyMP4 iPhone Transfer Pro 9.0.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159021.jpgsave_picture_159021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159021.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ NEONIC - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159022.jpgsave_picture_159022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159022.jpg" />
 </div>
 
 

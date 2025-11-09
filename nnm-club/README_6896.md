@@ -6,7 +6,7 @@ File Juicer 4.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236849.jpgsave_picture_236849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236849.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Degenerated Sequences - Schism (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236850.jpgsave_picture_236850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236850.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SkinFiner 5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236851.jpgsave_picture_236851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236851.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:25A20BF97EE9170A96E5F2E9A628379C0423F6EE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236852.jpgsave_picture_236852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236852.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:AC319373E0E68D7213E7BE95F70A6DDDA0A2706E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236854.jpgsave_picture_236854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236854.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Chromium 114.0.5735.134 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236855.jpgsave_picture_236855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236855.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Shelly Manne & His Men - Boss Sounds! (1966) 2012, Atlantic [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236856.jpgsave_picture_236856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236856.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ MacMagic 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236858.jpgsave_picture_236858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236858.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:A0579D9900E2DECBC84A55CF31407EE811C227BA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236860.jpgsave_picture_236860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236860.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:6F76E0FEC7672F799A1800B68DA7E4C9BB104633
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236861.jpgsave_picture_236861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236861.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:AC4C9575740E2FE5B10C0D30B84AD027FBA2E0A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236863.jpgsave_picture_236863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236863.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ RTG. Рыбалка на Ейской косе (2011) HDTV [H.264/1080p]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236865.jpgsave_picture_236865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236865.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Data Guardian 6 v.6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236866.jpgsave_picture_236866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236866.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v10.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236867.jpgsave_picture_236867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236867.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mac FoneLab Android Data Recovery 3.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236869.jpgsave_picture_236869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236869.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Reckless Love - 5 альбомов (2010 - 2022) [FLAC|Lossless|image + .cue, tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236871.jpgsave_picture_236871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236871.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sepultura - A-Lex (2009) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236872.jpgsave_picture_236872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236872.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ HistoryHound 2.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236873.jpgsave_picture_236873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236873.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ RTG. Малые музеи Петербурга. Игровые автоматы
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236875.jpgsave_picture_236875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236875.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:2C21361C732168F34001513E20FC6C76204CC934
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236877.jpgsave_picture_236877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236877.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Schizofrantik - Truth Is An Illusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236879.jpgsave_picture_236879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236879.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:AD689D54D6D696AA0744B43BB484398EDD6EEFCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236880.jpgsave_picture_236880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236880.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Dust Mountain - Hymns For Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236881.jpgsave_picture_236881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236881.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Viber 20.2.0.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236885.jpgsave_picture_236885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236885.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236886.jpgsave_picture_236886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236886.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aiseesoft Mac FoneLab for Android 5.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236887.jpgsave_picture_236887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236887.jpg" />
 </div>
 
 

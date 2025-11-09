@@ -6,7 +6,7 @@ Malleus - The Fires of Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249819.jpgsave_picture_249819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Devil's Black Shoes - Devil's Black Shoes, Vol. 1-2 (2023) 2CD [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249873.jpgsave_picture_249873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249873.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|image + .cue] <Black, Pagan, Vikin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249877.jpgsave_picture_249877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249877.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Near Dark - One Day (1998) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249889.jpgsave_picture_249889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249889.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249955.jpgsave_picture_249955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249955.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249978.jpgsave_picture_249978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249978.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Allman Brothers Band - Hittin’ the Note (2003) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249995.jpgsave_picture_249995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249995.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:113CA61691E87B0091AF4F7250922D0F220FFF1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250065.jpgsave_picture_250065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250065.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:587931C2B0AA6C6456020BEDF6DDFB619A0B0C75
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250087.jpgsave_picture_250087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250087.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:D0DD85490DDEC36EBB81A9318E7DB05A2C3E3FA1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250101.jpgsave_picture_250101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250101.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Modern Hard Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250152.jpgsave_picture_250152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250152.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:1468E8463189B8679DF721B987217217E2E9FB94
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250161.jpgsave_picture_250161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250161.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Myron Elkins - Factories, Farms & Amphetamines (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250248.jpgsave_picture_250248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250248.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Genesis - BBC Broadcasts (1978-1992) (2023) 5CD Box Set, Compilation, UMR/EMI [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250253.jpgsave_picture_250253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250253.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Warrior Pope - 3 Albums (2017-2023) [MP3|320 Kbps] <Drone-doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250264.jpgsave_picture_250264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250264.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Horojo Trio - Set The Record (2022) Scene [FLAC|Lossless|tracks] <Rock, Blues, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250269.jpgsave_picture_250269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250269.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250289.jpgsave_picture_250289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250289.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A0AF1259BC80316A6F25DE5F1521C2E9CCD493F2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250291.jpgsave_picture_250291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250291.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Serj Tankian - Perplex Cities (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250293.jpgsave_picture_250293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250293.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Halo Of Catastrophe - Symphony From Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250294.jpgsave_picture_250294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250294.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Motorhead - Bad Magic: Seriously Bad Magic (2015) 2CD (Reissued-2023) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250296.jpgsave_picture_250296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250296.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250301.jpgsave_picture_250301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250301.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250314.jpgsave_picture_250314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250314.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250320.jpgsave_picture_250320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250320.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Serpent Bite - Nightblade Of The Law (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250384.jpgsave_picture_250384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250384.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Wildways - Сумерки (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardc
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250398.jpgsave_picture_250398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250398.jpg" />
 </div>
 
 

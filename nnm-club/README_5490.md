@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169685.jpgsave_picture_169685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SideNotes 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169686.jpgsave_picture_169686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169686.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8FC5CFD3515FB1DD511D9A548BFFE03AE67C835E
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169687.jpgsave_picture_169687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169687.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:79AED4552B5FF2AFCAA887CA1E2D13D5D8DD0BCD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169688.jpgsave_picture_169688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169688.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - 60 minutes. Old School Dance Music vol.14 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169689.jpgsave_picture_169689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169689.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:BB56ACA391749849ECEC36640B85565E87838669
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169690.jpgsave_picture_169690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169690.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169691.jpgsave_picture_169691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169691.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169692.jpgsave_picture_169692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169692.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:2585ABFF76217B631515FBA4AD10E0DE80E43DFE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169693.jpgsave_picture_169693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169693.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Andrew Bayer Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169694.jpgsave_picture_169694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169694.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:3C54C4569E0AD91F5BF22EB10BC7DFCC28FA4FF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169695.jpgsave_picture_169695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169695.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169697.jpgsave_picture_169697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169697.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169698.jpgsave_picture_169698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169698.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169699.jpgsave_picture_169699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169699.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A1A079401ED304D0FC7CBF51B77B67B5BE8D661E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169700.jpgsave_picture_169700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169700.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Ashampoo Burning Studio 21.1.0.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169701.jpgsave_picture_169701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169701.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Microsoft Edge 87.0.664.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169702.jpgsave_picture_169702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169702.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169703.jpgsave_picture_169703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169703.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Google Chrome 79.0.3945.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169704.jpgsave_picture_169704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169704.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:AC9D17336C5637F75752C4AE26E252D9B42B1B04
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169705.jpgsave_picture_169705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169705.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:97919CB806709B8D108140DD1174A253989500AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169706.jpgsave_picture_169706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169706.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ iPulse 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169707.jpgsave_picture_169707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169707.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Adguard 7.15.1 (7.15.4386.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169708.jpgsave_picture_169708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169708.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7E9DFFFCF9FE87FDA3B8F1EA13B702592B5E214E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169709.jpgsave_picture_169709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169709.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5D17F1DD86F62275D181CEEF5A3D3E4586E7D6CB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169710.jpgsave_picture_169710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169710.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Terekke - Discography 7 Releases (2011-2019) L.I.E.S. [FLAC|Lossless|tracks] <Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169711.jpgsave_picture_169711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169711.jpg" />
 </div>
 
 

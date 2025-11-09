@@ -6,7 +6,7 @@ WinTools.net Premium 24.7.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49705.jpgsave_picture_49705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Atlantis Word Processor 4.4.0.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49706.jpgsave_picture_49706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49706.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Now or Never (NoN) - 3 Albums (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49707.jpgsave_picture_49707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49707.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Audacity 3.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49708.jpgsave_picture_49708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49708.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:74E3DBA060E6BAC91B98038DFF0A2C92DF357FF1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49709.jpgsave_picture_49709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49709.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2EE51272FDE500A11713C83A55CDBCC9107D1702
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49710.jpgsave_picture_49710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49710.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Victoria Nordmann - Best Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49711.jpgsave_picture_49711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49711.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0715) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49712.jpgsave_picture_49712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49712.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Самые новые песни о любви 4 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49713.jpgsave_picture_49713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49713.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:CCE596195C1F703BC2C75DC0EA724137AE4E5885
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49714.jpgsave_picture_49714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49714.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Opera One 112.0.5197.25 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49715.jpgsave_picture_49715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49715.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Compilation  part 97 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49716.jpgsave_picture_49716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49716.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:C38DE6BD4DBB1DBD58BA52AA2386D190CBA0C048
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49717.jpgsave_picture_49717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49717.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49718.jpgsave_picture_49718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49718.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Anjunabeats presents Vocal Trance 01 (2024) [MP3|320 Kbps] <Trance, Vocal T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49719.jpgsave_picture_49719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49719.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ EssentialPIM Pro 12.0.4 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49720.jpgsave_picture_49720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49720.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ TKO - Total Knock Out: The Complete TKO (2024) 5CD Boxed set [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49721.jpgsave_picture_49721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49721.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:1C8B55A89C9393DEA07DF53D48B2A4D8554E7CDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49722.jpgsave_picture_49722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49722.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:1C8B55A89C9393DEA07DF53D48B2A4D8554E7CDC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49723.jpgsave_picture_49723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49723.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Blender 4.2.0 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49724.jpgsave_picture_49724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49724.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ KiCad 8.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49725.jpgsave_picture_49725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49725.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:095B7F0FC86EC7E8AFECCC1DAF6A4599D1E7B96F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49726.jpgsave_picture_49726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49726.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:095B7F0FC86EC7E8AFECCC1DAF6A4599D1E7B96F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49727.jpgsave_picture_49727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49727.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:1F218A40434B04110723CD8D2935F8C4880A97D2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49728.jpgsave_picture_49728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49728.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Internet Download Manager 6.42 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49729.jpgsave_picture_49729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49729.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:E528EF00786283293C50FE081B5210C6993FE641
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49730.jpgsave_picture_49730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49730.jpg" />
 </div>
 
 

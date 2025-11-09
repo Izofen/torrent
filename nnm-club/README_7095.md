@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243362.jpgsave_picture_243362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ National Youth Jazz Orchestra - Portraits (1990) [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243364.jpgsave_picture_243364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243364.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:70C38B9F29EFFED64853428140E57E7F7B87B807
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243365.jpgsave_picture_243365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243365.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Flex All Night: Electronic Dance Mix (2023) [MP3|320 Kbps] <Synthwave, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243366.jpgsave_picture_243366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243366.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Summer Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243367.jpgsave_picture_243367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243367.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ ByClick Downloader Premium 2.3.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243368.jpgsave_picture_243368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243368.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243369.jpgsave_picture_243369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243369.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243370.jpgsave_picture_243370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243370.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243372.jpgsave_picture_243372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243372.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ UFO - Werewolves Of London (Live 1998) (2022) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243373.jpgsave_picture_243373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243373.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Graphic Styles 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243374.jpgsave_picture_243374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243374.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243375.jpgsave_picture_243375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243375.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FinePrint 11.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243376.jpgsave_picture_243376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243376.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Red Rum - Book of Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243377.jpgsave_picture_243377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243377.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B82ACD5AEF1654EFB5E7057790B85EF286F9A562
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243379.jpgsave_picture_243379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243379.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:11FD90E4B087E9768F6D92E8FD2A06A3F023CA83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243380.jpgsave_picture_243380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243380.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ National Youth Jazz Orchestra - Unison In All Things (1996) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243381.jpgsave_picture_243381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243381.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6689B6093E8FDA33C50F9485D3C3DD641BC1889C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243382.jpgsave_picture_243382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243382.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E5CBD1D5ABA41111ED6589CB50E3FAEF68BD4C8A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243383.jpgsave_picture_243383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243383.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243384.jpgsave_picture_243384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243384.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ten Jinn - Ardis (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243385.jpgsave_picture_243385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243385.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Topaz Video AI 3.1.11 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243386.jpgsave_picture_243386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243386.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:E13676081887F31C8D2EA815E740C1D8EE30F777
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243387.jpgsave_picture_243387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243387.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:1EC4C022D8A4E068134D3F1D5798815E73875FDD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243388.jpgsave_picture_243388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243388.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243389.jpgsave_picture_243389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243389.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243390.jpgsave_picture_243390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243390.jpg" />
 </div>
 
 

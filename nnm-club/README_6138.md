@@ -6,7 +6,7 @@ Los Bastardos Finlandeses - Viva! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192967.jpgsave_picture_192967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Turkish Delight - Volume One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192968.jpgsave_picture_192968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3731FDF01AD06E205B73F438D2337013793A7A8F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192969.jpgsave_picture_192969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:24209C466293C9F8125939F21C76FBC4897ED403
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192970.jpgsave_picture_192970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192970.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Fans Of The Dark - Suburbia (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192971.jpgsave_picture_192971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192971.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:18132372B07C7983A15BDDEC8AE722150470525D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192972.jpgsave_picture_192972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192972.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Trance In Motion Vol.364 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192973.jpgsave_picture_192973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192973.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:D226ED11E41EB21DC80E5C4D93C397E95BB9243B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192974.jpgsave_picture_192974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192974.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:556D768AE08E2FFA2FDCDF5D38A3ED4C86B1D0E1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192975.jpgsave_picture_192975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192975.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:69C59E081BE2ED01C063229ED815E1994886A434
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192976.jpgsave_picture_192976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192976.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Bing Crosby - The CBS Radio Recordings (1954 - 1956) 7CD, 2009, Mosaic Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192977.jpgsave_picture_192977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192977.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ FinePrint 11.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192978.jpgsave_picture_192978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192978.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Jim Vegas - Shakedown City (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192979.jpgsave_picture_192979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192979.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:607197103E8917ACF7AF70D0EA597E19461033BF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192980.jpgsave_picture_192980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192980.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192981.jpgsave_picture_192981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192981.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:BE2B123FEF8E2B7E25B726E77842A0C41E89E532
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192983.jpgsave_picture_192983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192983.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Various Artists - Rock Guitar Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192984.jpgsave_picture_192984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192984.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Dead Man's Dirt - Dead Man's Dirt (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192985.jpgsave_picture_192985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192985.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:17D9931937985D785DA1BCB1AD6C9EB840A1907B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpgsave_picture_192986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Vulture - Ghastly Waves & Battered Graves (2019) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192987.jpgsave_picture_192987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192987.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Icona Pop - Club Romantech (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192988.jpgsave_picture_192988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192988.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192989.jpgsave_picture_192989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192989.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:C97FF534AA8B2A147C8000CAC265E158BF5771FA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192990.jpgsave_picture_192990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192990.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Jamie Hosmer - Comfortable Shoes (2021) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192991.jpgsave_picture_192991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192991.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpgsave_picture_192992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Vescera - Beyond The Fight (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192993.jpgsave_picture_192993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192993.jpg" />
 </div>
 
 

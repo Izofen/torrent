@@ -6,7 +6,7 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117539.jpgsave_picture_117539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117539.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117540.jpgsave_picture_117540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117540.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DF20A164D9ADFC9897EA1B538B41D5DFF7DE9FCC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117541.jpgsave_picture_117541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117541.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:04DA34F230A182C3AD3A1951990AA0054DC1D8CF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117542.jpgsave_picture_117542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117542.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FCE514D18EAB222208D7C4FC0AE2782D32115F78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117543.jpgsave_picture_117543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117543.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D8A130E3D30AB0C4FD0AE6B4AAF8076D5E49A9C8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117544.jpgsave_picture_117544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117544.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117545.jpgsave_picture_117545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117545.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:82F89D0C8854DCCEFBC0A690A774A76518517C39
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117546.jpgsave_picture_117546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117546.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:12F9B371E6664347093B871978A240834991C3A0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117547.jpgsave_picture_117547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117547.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117548.jpgsave_picture_117548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117548.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117549.jpgsave_picture_117549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117549.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117550.jpgsave_picture_117550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117550.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpgsave_picture_117551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:DE88ABFF9EAD1488D2AFBB28289E7780A780E1DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117552.jpgsave_picture_117552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117552.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ A Better Finder Attributes 7 v.7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117553.jpgsave_picture_117553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117553.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:786F68249EAEC4C3D38DAE23B9D4AC24CAA2EBCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117554.jpgsave_picture_117554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117554.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117555.jpgsave_picture_117555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117555.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117556.jpgsave_picture_117556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117556.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117557.jpgsave_picture_117557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117557.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117558.jpgsave_picture_117558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117558.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpgsave_picture_117559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A1330F846E0473699AC83621C8482204E398E494
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117560.jpgsave_picture_117560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117560.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:E3F8DA7B9B60641763385C4DC15CF7515A7740A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117561.jpgsave_picture_117561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117561.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:7CBD6C3CB40B791675991737B35393965BFAC21D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117562.jpgsave_picture_117562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117562.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:2304A38CE9FD5D1B9E09EDE663F7C8B1768875FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117563.jpgsave_picture_117563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117563.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:B0D0ACCD40974E8FBEA57D2056068F6537911C83
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117564.jpgsave_picture_117564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117564.jpg" />
 </div>
 
 

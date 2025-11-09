@@ -6,7 +6,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155142.jpgsave_picture_155142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158322.jpgsave_picture_158322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158322.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Обра�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158545.jpgsave_picture_158545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158545.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158819.jpgsave_picture_158819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158819.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpgsave_picture_163042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpgsave_picture_163063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163086.jpgsave_picture_163086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163086.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169345.jpgsave_picture_169345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169345.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ BackBox Linux 8 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172933.jpgsave_picture_172933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172933.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BlackArch Linux 2016.12.20 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173741.jpgsave_picture_173741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173741.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175646.jpgsave_picture_175646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175646.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Debian Edu - Skolelinux 10.7.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175678.jpgsave_picture_175678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175678.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175732.jpgsave_picture_175732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175732.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177899.jpgsave_picture_177899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177899.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ KingStation 0.2a [x86-64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184182.jpgsave_picture_184182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184182.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SystemRescue 10.02 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187899.jpgsave_picture_187899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187899.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mageia 9 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193556.jpgsave_picture_193556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193556.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mageia 9 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193564.jpgsave_picture_193564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193564.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AltLinux 8 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194149.jpgsave_picture_194149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194149.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194848.jpgsave_picture_194848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194848.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196030.jpgsave_picture_196030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196030.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196048.jpgsave_picture_196048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196048.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196087.jpgsave_picture_196087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196087.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197230.jpgsave_picture_197230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197230.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197285.jpgsave_picture_197285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197285.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ OpenVMS 9.2 [amd64] 1xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197492.jpgsave_picture_197492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197492.jpg" />
 </div>
 
 

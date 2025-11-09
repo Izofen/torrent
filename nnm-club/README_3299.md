@@ -6,7 +6,7 @@ Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Trad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106135.jpgsave_picture_106135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EDEF2A1E78652B15FCFEDC09A0A0178FA6FF6529
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106136.jpgsave_picture_106136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106136.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:51221B2CC63A0C28651C2C331B4D59CE56AECFD4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106137.jpgsave_picture_106137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106137.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106138.jpgsave_picture_106138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106138.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1FD354400ED85D61AECB2C61200347548DE8AF28
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106139.jpgsave_picture_106139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106139.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0658C10E747B372997D7BA116C4AA049E4ED74B7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106140.jpgsave_picture_106140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106140.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1B712BD2095A9E6BA8A2AC7C96F868708375D6BA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106141.jpgsave_picture_106141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106141.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2A12F1C6AE55843C46AC6A90E61EE0B7ACD8F218
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106142.jpgsave_picture_106142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106142.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:21468C9B8D152A77F046A0D961D605D2B8B26190
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106143.jpgsave_picture_106143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106143.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106144.jpgsave_picture_106144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106144.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106145.jpgsave_picture_106145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106145.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ronan Jade - Midnight Serenade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106146.jpgsave_picture_106146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106146.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Yang - Rejoice! (2024) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, RIO, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106147.jpgsave_picture_106147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106147.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Idylic Exotic Perfection Cozy Getaway Tunes for an Enjoyable Vacation Envir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106148.jpgsave_picture_106148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106148.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106149.jpgsave_picture_106149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106149.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Exotic Idylic Perfection Cozy Getaway Chilly Instrumentals for an Enjoyable
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106150.jpgsave_picture_106150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106150.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Mick Kolassa - All Kinds of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106151.jpgsave_picture_106151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106151.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Kitty Liv - Easy Tiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106152.jpgsave_picture_106152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106152.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Noel Evans - Abandoned Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106153.jpgsave_picture_106153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106153.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ian BassBwoy Boyce - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106154.jpgsave_picture_106154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106154.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5BA359FEC052BA7ABBA8355440C23FF289994066
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106155.jpgsave_picture_106155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106155.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:EF2CE6D87216FC9702B4B4684FAC0D81A7000F25
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpgsave_picture_106156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpgsave_picture_106157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Minimal Audio - Ripple Phase 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106158.jpgsave_picture_106158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106158.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Imperia - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpgsave_picture_106159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpgsave_picture_106160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22725.jpgsave_picture_22725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22725.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D25E44FB00E3585598A55095C5C4647DC9024794
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22726.jpgsave_picture_22726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22726.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22727.jpgsave_picture_22727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22727.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpgsave_picture_22728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22729.jpgsave_picture_22729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22729.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ RustDesk 1.3.9 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22730.jpgsave_picture_22730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22730.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:8FC59E5B340B574C12D2569B7CCA5F594866FEBD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22731.jpgsave_picture_22731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22731.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:188A56858BEE225E7979A63AF4B94FEC19ED4887
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22732.jpgsave_picture_22732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22732.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:0E48D545E378353416FFE6CCD2F48421F9F591D2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22733.jpgsave_picture_22733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22733.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpgsave_picture_22734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22734.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Adobe After Effects 2025 25.2.0.131 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22735.jpgsave_picture_22735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22735.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adobe Premiere Pro 2025 25.2.0.147 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22736.jpgsave_picture_22736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22736.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:9F85E524C4A14706772902F0D6FB0A1CDC99EAA8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22737.jpgsave_picture_22737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22737.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Google Chrome 135.0.7049.42 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22738.jpgsave_picture_22738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22738.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] WEBRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22739.jpgsave_picture_22739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22739.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Opera One 117.0.5408.197 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22740.jpgsave_picture_22740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22740.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AA0E56077793E69A3BF1D09DAC11DAA5B03C8871
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22741.jpgsave_picture_22741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22741.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ StartAllBack 3.9.7 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22742.jpgsave_picture_22742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22742.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22743.jpgsave_picture_22743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22743.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Duplicate Cleaner Pro 5.25.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22744.jpgsave_picture_22744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22744.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:087927317E6F8AD8C9CFB4B407DB9BDCD50CA641
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22745.jpgsave_picture_22745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22745.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:69480E594C35C917C63D6E404FB484EEF6F6EC91
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22746.jpgsave_picture_22746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22746.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22747.jpgsave_picture_22747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22747.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpgsave_picture_22748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpgsave_picture_22749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22749.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22750.jpgsave_picture_22750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22750.jpg" />
 </div>
 
 

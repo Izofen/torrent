@@ -6,7 +6,7 @@ Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpgsave_picture_182009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|tracks + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182016.jpgsave_picture_182016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182016.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alkateya - Metal Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182033.jpgsave_picture_182033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182033.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Grandier - The Scorn And Grace of Crows (2022) [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182041.jpgsave_picture_182041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182041.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Griefbringer - The Horrible Wilting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182044.jpgsave_picture_182044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182044.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182154.jpgsave_picture_182154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182154.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Within Temptation - Ritual (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182176.jpgsave_picture_182176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182176.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Velvet Insane - High Heeled Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182246.jpgsave_picture_182246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182246.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182315.jpgsave_picture_182315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182315.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9376D5DDF6815727A8DE905ACA98478A3492F59B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182327.jpgsave_picture_182327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182327.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182344.jpgsave_picture_182344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182344.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Steely Dan - Aja (1977) Reissue, 2023, Geffen [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182352.jpgsave_picture_182352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182352.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Stones Of Babylon - Ishtar Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182362.jpgsave_picture_182362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182362.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F16C72C9EDEE9529EF5AD9BF58F847FE23FD66A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182380.jpgsave_picture_182380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182380.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art r
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182406.jpgsave_picture_182406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182406.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|image + .cue] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182438.jpgsave_picture_182438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182438.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182457.jpgsave_picture_182457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182457.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Wilco - Cousin (2023) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182481.jpgsave_picture_182481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182481.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182498.jpgsave_picture_182498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182498.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182503.jpgsave_picture_182503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182503.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Anthea - Tales Untold (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182516.jpgsave_picture_182516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182516.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Violet - Illusions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182533.jpgsave_picture_182533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182533.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:1D6E4DD3502029E1119CDFDCBF5D6C9E1A59FD9E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182538.jpgsave_picture_182538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182538.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1F25E8A115ACF62BEECF44B18C2120D6409D04AC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182543.jpgsave_picture_182543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182543.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182553.jpgsave_picture_182553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182553.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Yawning Man - 7 Albums (2005-2021) [MP3|320 Kbps] <Desert Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182558.jpgsave_picture_182558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182558.jpg" />
 </div>
 
 

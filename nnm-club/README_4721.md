@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147757.jpgsave_picture_147757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147757.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147758.jpgsave_picture_147758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147758.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5EF60798A1414E2AF5F25A1960F266B044D6FEDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147759.jpgsave_picture_147759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147759.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3EDD91CF27F87C187294343E6D58A358C044FF6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147760.jpgsave_picture_147760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147760.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147761.jpgsave_picture_147761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147761.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147762.jpgsave_picture_147762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ State of Survival v1.9.90 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147763.jpgsave_picture_147763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147763.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Light Alloy 4.9.0 Build 2318 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147764.jpgsave_picture_147764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147764.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ QuickTime 7.7.4.80.86 Pro RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147765.jpgsave_picture_147765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147765.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2FC510F2D040B4E8A675450ACB645AC1A74E346D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147766.jpgsave_picture_147766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147766.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mitekiss - Autumn EP (2015) [MP3|320 кб/с] <Drum & Bass, Jungle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147767.jpgsave_picture_147767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147767.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:437A7662A5D66A0BEF11CDB8B09F731D5E1E6CC2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147768.jpgsave_picture_147768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147768.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147769.jpgsave_picture_147769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147769.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147770.jpgsave_picture_147770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147770.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Udemy, Holczer Balazs | Рекурсия, Бэктрекинг и Динамич
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147771.jpgsave_picture_147771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147771.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4C28865770C73F93DE1E20512B657E19F7841D7E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147772.jpgsave_picture_147772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147772.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:46802D8478C203DB063A8C6A6A3BCA282452A532
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147773.jpgsave_picture_147773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147773.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BIOMACHINE, Роман Овчаров | Методический материа�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147774.jpgsave_picture_147774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147774.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dananananaykroyd - Hey Everyone! (2009) [FLAC|Lossless|tracks + .cue] <Hardcore,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147776.jpgsave_picture_147776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147776.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147777.jpgsave_picture_147777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147777.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:486EE7B6B3DA6946BF30D56CF5D07254EA8AA808
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147778.jpgsave_picture_147778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147778.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:0FC606D0DCA9A9B800ED4F56B4105D81F2DC873F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147779.jpgsave_picture_147779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147779.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:25EB674DB30D1D500F73DCF2A2606C2F73407ED3
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147780.jpgsave_picture_147780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147780.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:E8ED589139A860098F01520DD0559A23C2E8E0E3
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147781.jpgsave_picture_147781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147781.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:48B299BEA2DF2059E82E8B05F9716032E7BB2265
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147782.jpgsave_picture_147782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147782.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147783.jpgsave_picture_147783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147783.jpg" />
 </div>
 
 

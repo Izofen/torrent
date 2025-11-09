@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190637.jpgsave_picture_190637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lav
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190640.jpgsave_picture_190640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190640.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190642.jpgsave_picture_190642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190642.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190644.jpgsave_picture_190644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190644.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NetWorker Pro 8.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190645.jpgsave_picture_190645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190645.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190648.jpgsave_picture_190648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190648.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpgsave_picture_190650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mustang - Beyond Raging Thunder (2023) [MP3|320 Kbps] <Speed, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190652.jpgsave_picture_190652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190652.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mats Karlsson - The Time Optimist (2019) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190654.jpgsave_picture_190654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190654.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190656.jpgsave_picture_190656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190656.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fiction Syxx - Tall Dark Secrets (2017) Reissue, 2020, MelodicRock Records [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190658.jpgsave_picture_190658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190658.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Art Of Shock - Shine Black Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190660.jpgsave_picture_190660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190660.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Graveworm - Killing Innocence (2023) [FLAC|Lossless|image + .cue] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190662.jpgsave_picture_190662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190662.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Teiger - Teiger (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190663.jpgsave_picture_190663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190663.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Catalyst - The Age Of Rocketeers (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190666.jpgsave_picture_190666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190666.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Genitals - Genital Horrors (2023) EP [FLAC|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190668.jpgsave_picture_190668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190668.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Skull & Crossbones - Sungazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190670.jpgsave_picture_190670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190670.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Downes Braide Association - Celestial Songs (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190672.jpgsave_picture_190672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190672.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190674.jpgsave_picture_190674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190674.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Colony Collapse - You Miss Everything (2022) Deluxe Edition, 2023, Theoria Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190675.jpgsave_picture_190675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190675.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fatmas - External Internal Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190678.jpgsave_picture_190678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190678.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Experiment Specimen - Purity Of Purpose (2023) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190680.jpgsave_picture_190680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190680.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Evilon - A Warriors Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Fol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190681.jpgsave_picture_190681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190681.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Slomatics - Strontium Fields (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190682.jpgsave_picture_190682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190682.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Divides Unfold - Distain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt. M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190683.jpgsave_picture_190683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190683.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Taake - Et Hav av Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190688.jpgsave_picture_190688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190688.jpg" />
 </div>
 
 

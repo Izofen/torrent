@@ -6,7 +6,7 @@ Kidou Senshi Gundam Dai 08 MS Shoutai - Miller's Report / Mobile Suit Gundam - T
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81671.jpgsave_picture_81671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81671.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:478BD2922973BC1835F80609E79CD4B21CCBFD4B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81672.jpgsave_picture_81672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81672.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7F6321691051693D5BE69F2FF1010305AF91D583
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81673.jpgsave_picture_81673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81673.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3D6544B8FBDDA3BA5FD0AE748BD9A99BB5F6783C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81674.jpgsave_picture_81674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81674.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3D6544B8FBDDA3BA5FD0AE748BD9A99BB5F6783C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81675.jpgsave_picture_81675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81675.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:34ABE400E010E893C806777191D834721C047C07
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81676.jpgsave_picture_81676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81676.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Linux-компьютер со сниффером замаскирован под
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81677.jpgsave_picture_81677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81677.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ BBC: Век эгоизма. Часть 3 – В твоей голове сиди
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81679.jpgsave_picture_81679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81679.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Toaru Hikuushi e no Tsuioku / The Princess and the Pilot / Воспоминан�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81680.jpgsave_picture_81680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81680.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:CB401AB71EC720BD6C596AAE435CD1E112CE0C5D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81682.jpgsave_picture_81682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81682.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Driver Easy Professional 3.11.3 + Portable by BALISTA [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81684.jpgsave_picture_81684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81684.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Hellsing Ultimate OVA 9 / Хеллсинг ОВА 9 [2011, OVA] DVDrip raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81685.jpgsave_picture_81685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81685.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:454AAD71FC452FC53E431CF7C3BD94E60F74DC29
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81687.jpgsave_picture_81687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81687.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Animal Planet: Нашествие саранчи: Насекомые, сожра
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81688.jpgsave_picture_81688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81688.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:009C902FEB3EB46DD2EA2708A8EC66330BC4B5D1
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81689.jpgsave_picture_81689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81689.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:840CF473B434D05B7E86EB2DDB4961BF3DDDC7B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81691.jpgsave_picture_81691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81691.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:148918276D37A95B5AB815581E2CCDDF221AFBA8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81692.jpgsave_picture_81692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81692.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81693.jpgsave_picture_81693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81693.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:51D31726A663CD5C8445954F83D1A50E0C36BBD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81694.jpgsave_picture_81694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81694.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:51D31726A663CD5C8445954F83D1A50E0C36BBD6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81695.jpgsave_picture_81695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81695.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:9B80E6D293C4256BC12ED2BAF6C6510DF35F146E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81696.jpgsave_picture_81696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81696.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81697.jpgsave_picture_81697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81697.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Grace Jones предстала в мире шоу бизнеса в качест
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81699.jpgsave_picture_81699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81699.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:DB2036D1A29BFF3EAC3A083A2A75F6CEC7360EE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81700.jpgsave_picture_81700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81700.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:DB2036D1A29BFF3EAC3A083A2A75F6CEC7360EE3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81703.jpgsave_picture_81703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81703.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:319D5B13285B2B1C5E64A6E5F64BA881E99C75B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81704.jpgsave_picture_81704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81704.jpg" />
 </div>
 
 

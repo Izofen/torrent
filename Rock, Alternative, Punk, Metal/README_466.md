@@ -6,7 +6,7 @@ Dusk - Spectrums (2023) [MP3|320 Kbps] <Progressive Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243634.jpgsave_picture_243634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243634.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gary Moore - Victims of the Future (1983) Reissue, 2023, Universal, Japanese Edi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243635.jpgsave_picture_243635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243635.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Airbag - All Rights Removed (2011) [FLAC|Lossless|tracks + .cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243637.jpgsave_picture_243637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243637.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243644.jpgsave_picture_243644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243644.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243646.jpgsave_picture_243646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243646.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Afterdusk - Fatalize (2023) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243647.jpgsave_picture_243647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243647.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243657.jpgsave_picture_243657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243657.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243665.jpgsave_picture_243665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243665.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Age Of Ruin - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243669.jpgsave_picture_243669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243669.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Manic Blues - Out of Nowhere (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Ro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243670.jpgsave_picture_243670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243670.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ashrain - Requiem Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243678.jpgsave_picture_243678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243678.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Last Legion - Metall, Blod & Aska (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243682.jpgsave_picture_243682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243682.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243688.jpgsave_picture_243688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243688.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ecollapse - Dying With The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243693.jpgsave_picture_243693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243693.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5C2F13D5EBCD432E7E3D32B15319059CB7B43946
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243696.jpgsave_picture_243696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243696.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243703.jpgsave_picture_243703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243703.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243710.jpgsave_picture_243710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243710.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243715.jpgsave_picture_243715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243715.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243719.jpgsave_picture_243719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243719.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243728.jpgsave_picture_243728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243728.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243729.jpgsave_picture_243729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243729.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243735.jpgsave_picture_243735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243735.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243743.jpgsave_picture_243743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243743.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243754.jpgsave_picture_243754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243754.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hazer - Pessimist (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243769.jpgsave_picture_243769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243769.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ HellBones - Crossing Borders (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243771.jpgsave_picture_243771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243771.jpg" />
 </div>
 
 

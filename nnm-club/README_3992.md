@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124337.jpgsave_picture_124337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124337.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CD5260C1650D0E9E2309395A62D7F310142E66D3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124338.jpgsave_picture_124338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124338.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7AF418AE64B8EC78B4452BE1C41CACB88436E05C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124339.jpgsave_picture_124339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124339.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:F36C33F892246469F23DF774A827647E3BE21064
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124340.jpgsave_picture_124340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124340.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tom Reaves Jr - Soulful Strut (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124341.jpgsave_picture_124341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124341.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A9FA44AAAA71FFB04554A750B3BDF4A4F53F94FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124342.jpgsave_picture_124342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124342.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124343.jpgsave_picture_124343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124343.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:077C1A6C56120EE5038A8163986954C80A1099B1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124344.jpgsave_picture_124344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124344.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Peyton Parrish - Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124345.jpgsave_picture_124345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124345.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:59EAC9BE7FC17338CDF4959CFDB3E80BE285A9AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124346.jpgsave_picture_124346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124346.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:4DD1FB422EEAAA421E44959BA52A412BD7132DE8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124347.jpgsave_picture_124347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124347.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:3582FDF62197A792D3275B5A0186E20E8F985473
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124348.jpgsave_picture_124348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124348.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:0EA181CA13250455AB4B115C2F79EEC69EBCF04A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124349.jpgsave_picture_124349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124349.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:E10FA0C1BF006DC956B987A38F3C4923B0452D8F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124350.jpgsave_picture_124350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124350.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:BA1BE916EB4E8379203BDC848869E2FA82B4F58C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124351.jpgsave_picture_124351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124351.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Wireshark 4.2.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124352.jpgsave_picture_124352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124352.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:E1649396086B916CED89E9E3D7F50CBCE3AF00E1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124353.jpgsave_picture_124353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124353.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:2AC6E47FBD3EA19F921CC61072E6A8A6F7D67DD0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124354.jpgsave_picture_124354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124354.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B6F4C52935460EE6F35B531E29CB5CA49255CE75
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124355.jpgsave_picture_124355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124355.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Google Chrome 120.0.6099.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124356.jpgsave_picture_124356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124356.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wise Program Uninstaller 3.1.7.261 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124358.jpgsave_picture_124358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124358.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:89135C2792FFBD7D55A3796E150973D087FF5D89
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124359.jpgsave_picture_124359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124359.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Soft Deep - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124360.jpgsave_picture_124360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124360.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:214898856435C730987F46C15A40253201D47682
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124361.jpgsave_picture_124361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124361.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Laibach - 3 Releases (2023) [MP3|320 Kbps] <Industrial, Neo-Classical, Experimen
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124362.jpgsave_picture_124362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124362.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:826E7DB09DA54F61CCE93276C70F92347B9B78DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124363.jpgsave_picture_124363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124363.jpg" />
 </div>
 
 

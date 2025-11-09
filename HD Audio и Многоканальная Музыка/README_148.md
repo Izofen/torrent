@@ -6,7 +6,7 @@ Dale Thompson and the Boon Dogs - Unfinished Business (2024) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111066.jpgsave_picture_111066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111066.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ U.D.O. - Solid (1997) Released, 2011, Night Of The Vinyl Dead Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111067.jpgsave_picture_111067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111067.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111072.jpgsave_picture_111072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111072.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tarja Turunen - What Lies Beneath (2010) Special Edition, 2024, earMUSIC [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111077.jpgsave_picture_111077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111077.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpgsave_picture_111110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111135.jpgsave_picture_111135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111135.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111136.jpgsave_picture_111136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111136.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111139.jpgsave_picture_111139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111139.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111141.jpgsave_picture_111141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111141.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ston
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111143.jpgsave_picture_111143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111143.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111144.jpgsave_picture_111144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111144.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111145.jpgsave_picture_111145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111145.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111146.jpgsave_picture_111146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111146.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:193A13665B64CC56F98DAF7D80DB2958EB2F708B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111153.jpgsave_picture_111153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111153.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Balance Of Power - Fresh From The Abyss (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111157.jpgsave_picture_111157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111157.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Bloodbound - The Tales of Nosferatu - Two Decades of Blood (2004-2024) (2024) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111161.jpgsave_picture_111161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111161.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Supernova Jazzhands - Blue Sunset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111164.jpgsave_picture_111164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111164.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111165.jpgsave_picture_111165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111165.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111193.jpgsave_picture_111193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111193.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111251.jpgsave_picture_111251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111251.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111265.jpgsave_picture_111265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111265.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111269.jpgsave_picture_111269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111269.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111270.jpgsave_picture_111270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111270.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DVNE - Voidkind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Metal, Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111273.jpgsave_picture_111273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111273.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111274.jpgsave_picture_111274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111274.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Soul Twin Messiah - Soul Twin Messiah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111275.jpgsave_picture_111275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111275.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203521.jpgsave_picture_203521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203522.jpgsave_picture_203522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203522.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:88D20B1DD7200A41CFE66768C17BD175CE116132
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203523.jpgsave_picture_203523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203523.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0F74D5F82A2EADFC015E3A691C6B74AD2BB40B85
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203524.jpgsave_picture_203524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203524.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7940EA6DE63A93277758118D725C41A191A3AC13
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203525.jpgsave_picture_203525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203525.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C8EA03C84C9FB813548DC90509DED9E009E85E96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203526.jpgsave_picture_203526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203526.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpgsave_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ iZotope - RX 10 Audio Editor Advanced 10.3.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203528.jpgsave_picture_203528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203528.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:1B3B87C5369BA1C17D08B10C922DBD8C71466335
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203529.jpgsave_picture_203529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203529.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Dragony - Viribus Unitis (2021) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203530.jpgsave_picture_203530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203530.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:5AC689338E993F3A230B758AA7633F72F7B80C58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203531.jpgsave_picture_203531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203531.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:4161FD65155A7D22C0AE6BEFBBC2BCD6DBD51D29
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203532.jpgsave_picture_203532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203532.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1C0CC8A5AE5740177D221215163600648D731134
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203533.jpgsave_picture_203533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203533.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Vivaldi 5.6.2867.62 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203534.jpgsave_picture_203534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203534.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Final Draft 12 v.12.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203535.jpgsave_picture_203535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203535.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203536.jpgsave_picture_203536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203536.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:34C7089EC2EC8C059886EA97DB329A9D8636B35B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203537.jpgsave_picture_203537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203537.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:EED4CF2640D5E4CAE4303B413CF04F76D4019E2C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203538.jpgsave_picture_203538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203538.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Downcast 2.11.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203539.jpgsave_picture_203539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203539.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Soulsad - Doomed to Funerals (2022) Compilation [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203540.jpgsave_picture_203540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203540.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Google Chrome 109.0.5414.120 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203541.jpgsave_picture_203541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203541.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Sons of Ragnar - Lindisfarne (2015) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203542.jpgsave_picture_203542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203542.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8FF594184DAF91D0CC9D1AD46FC404535BF2D306
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203543.jpgsave_picture_203543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203543.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203544.jpgsave_picture_203544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203544.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:8E7C7EC4A3112902E799FAEED687938FC9898E85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203545.jpgsave_picture_203545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203545.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Dropzone 4 Pro 4.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203546.jpgsave_picture_203546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203546.jpg" />
 </div>
 
 

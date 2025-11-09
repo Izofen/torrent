@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143132.jpgsave_picture_143132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143132.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143133.jpgsave_picture_143133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143133.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143134.jpgsave_picture_143134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143134.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143135.jpgsave_picture_143135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143135.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Felix: The Reaper v.1.12.0 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143136.jpgsave_picture_143136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143136.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:FCD2EA767BDDA2CC2A216E36A168E8B619939E78
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143137.jpgsave_picture_143137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143137.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Keep It 2.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143139.jpgsave_picture_143139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143139.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2D50891683AC0BA5807428995AE7B9ED382F1D49
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143140.jpgsave_picture_143140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143140.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4AE98E31B88737FC6BA6848F63D3A768CD2A3475
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143142.jpgsave_picture_143142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143142.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Default Folder X 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143144.jpgsave_picture_143144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143144.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Program4Pc DJ Audio Editor 8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143145.jpgsave_picture_143145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143145.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7DF2D40CE1CF05C2B5F285CD3E560215D6994753
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143146.jpgsave_picture_143146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143146.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:99FB554B8FD979A60F18BEF8B859803ACCD5E932
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143148.jpgsave_picture_143148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143148.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ New Found Glory - Makes Me Sick (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143150.jpgsave_picture_143150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143150.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:0EB440F86BC181939F556C390167122424A5A055
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143151.jpgsave_picture_143151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143151.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe Media Encoder 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143152.jpgsave_picture_143152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143152.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Assault Lily: Bouquet | Штурмовая Лилия: Букет [2020, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143153.jpgsave_picture_143153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143153.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nature Wallpapers (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143154.jpgsave_picture_143154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143154.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Top 100 2021: Shazam [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143155.jpgsave_picture_143155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143155.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Knock-Knock / Тук-Тук-Тук (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143156.jpgsave_picture_143156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143156.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D63EFBF1EEA7D861E6E436D2407AE9266A3067EA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143157.jpgsave_picture_143157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143157.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:700E56D898F428CCC745C302C4052558435099B4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143158.jpgsave_picture_143158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143158.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:8DB163561144B89540BAC67FA9328C75E3FBE2D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143159.jpgsave_picture_143159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143159.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Zen Lounge: Ambient Music for Inner Relaxation and Meditation (2016) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143162.jpgsave_picture_143162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143162.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Mountain Jam Festival - Collection 2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143163.jpgsave_picture_143163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143163.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:9968EC5A6B4D0DFC385941636979839D488117C7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143164.jpgsave_picture_143164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143164.jpg" />
 </div>
 
 

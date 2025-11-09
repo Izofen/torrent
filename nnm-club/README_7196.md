@@ -6,7 +6,7 @@ Apache OpenOffice 4.1.13 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246052.jpgsave_picture_246052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LibreWolf 111.0-3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246053.jpgsave_picture_246053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246053.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:99F3B95EF2BA9B3F028A78A21A5CF6F038D60E3D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246054.jpgsave_picture_246054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246054.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:42B2096F3E14CC4B871C1D8264EDECBD3527195F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246055.jpgsave_picture_246055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246055.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:303509BFA5B06A6E1D0FAC3E32FBDA5DAD1BDC91
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246056.jpgsave_picture_246056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246056.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246057.jpgsave_picture_246057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246057.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:DBF4D86B376FAEDAB78C0C068F468A5BB32A8406
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246058.jpgsave_picture_246058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246058.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:4BFBB3C1E0C5761E03264E97AAE12712B006B918
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246059.jpgsave_picture_246059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246059.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Hallo northern sky 4.2.15 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246060.jpgsave_picture_246060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246060.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Synth Replicants - Cyclus ONE (2020) [AAC|~316 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246061.jpgsave_picture_246061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246061.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246062.jpgsave_picture_246062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246062.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246063.jpgsave_picture_246063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246063.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246064.jpgsave_picture_246064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246064.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:6DBB0912310A9EB0A3913A38AE61396A240B9532
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246065.jpgsave_picture_246065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246065.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246066.jpgsave_picture_246066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246066.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Miami Sessions 2023 (Mixed by Milk & Sugar) (2023) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246067.jpgsave_picture_246067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246067.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246068.jpgsave_picture_246068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246068.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:1A7958B811C411296D2A8E1F5CA645F20E586DCD
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246069.jpgsave_picture_246069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246069.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246070.jpgsave_picture_246070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Despised Icon - Shadow Work (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246071.jpgsave_picture_246071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246071.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246072.jpgsave_picture_246072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246073.jpgsave_picture_246073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246073.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246074.jpgsave_picture_246074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246074.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C4A1E7BC6A68590AAC4CBFDEE1CB5D084A663E93
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246075.jpgsave_picture_246075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246075.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9E10EF5A3B632518DF5E08FD72CC4D60CF182B6E
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246076.jpgsave_picture_246076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246076.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246077.jpgsave_picture_246077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246077.jpg" />
 </div>
 
 

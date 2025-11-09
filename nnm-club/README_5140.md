@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160376.jpgsave_picture_160376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Astravisual, Оля Астра | Go_Foto. Тариф Profi (2023) WEB-DL [AD] [R
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160377.jpgsave_picture_160377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160377.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Alt SwitchER 21.6 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160378.jpgsave_picture_160378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160378.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:752C70CE60FCD2E088536487F236B5A4F8C0A298
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160379.jpgsave_picture_160379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160379.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Android Studio Giraffe | 2022.3.1 Patch 3 Build #AI-223.8836.35.2231.11005911 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160380.jpgsave_picture_160380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160380.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Antivirus Removal Tool 2023.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160381.jpgsave_picture_160381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160381.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:82EA8018B5EACBC0538A980F6AA38F7EEE4922A7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160382.jpgsave_picture_160382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160382.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160383.jpgsave_picture_160383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160383.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Google Chrome 119.0.6045.124 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160384.jpgsave_picture_160384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160384.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ DxO FilmPack 7.1.0 Build 481 Elite x64 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160385.jpgsave_picture_160385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160385.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:A23A78C34306CA45FC7C9DF06648AA834F6F4754
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160386.jpgsave_picture_160386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160386.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:AD8F5802FD39BE0CF4DD9DA0287594C9628C38B7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160387.jpgsave_picture_160387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160387.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:753917E946883AD172D42FC2E042238B1CF736B0
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160388.jpgsave_picture_160388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160388.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160389.jpgsave_picture_160389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160389.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A45FC579727A99A5E963D98D9BCD4A487A6CFF4A
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160390.jpgsave_picture_160390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160390.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160391.jpgsave_picture_160391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160391.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4924B40D8AF3C322233ED800D9810E1345C2704B
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160392.jpgsave_picture_160392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160392.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tarja - Dark Christmas (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160393.jpgsave_picture_160393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160393.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:52D395C86768D841A7AFBBEB1559783C551032B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160394.jpgsave_picture_160394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160394.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Shazam 14.1.0-231103 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160395.jpgsave_picture_160395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160395.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NetLimiter 5.3.5.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160396.jpgsave_picture_160396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160396.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.43
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160397.jpgsave_picture_160397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160397.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Wipr – Ad and Tracker Blocker 1.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160398.jpgsave_picture_160398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160398.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160399.jpgsave_picture_160399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160399.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160400.jpgsave_picture_160400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160400.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:471D6E096D087E8985A2529A80B2D62B06623166
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160401.jpgsave_picture_160401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160401.jpg" />
 </div>
 
 

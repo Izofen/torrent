@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37223.jpgsave_picture_37223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37223.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rockets - The Final Frontier (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37224.jpgsave_picture_37224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37224.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6E637CADC461EE8384431C15C6735A3E079F9F53
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37225.jpgsave_picture_37225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37225.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0700983012DB405BC670028EE8C2C9A0950221C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37226.jpgsave_picture_37226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37226.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:DB8DA5F8B8743814A6F678549F9A44FF779310DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37227.jpgsave_picture_37227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37227.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Melodic Techno 2 2024 [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37228.jpgsave_picture_37228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37228.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:4C6EB001FF2872E21ADA9114B6F00C2F92EDD67E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37229.jpgsave_picture_37229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37229.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:A7C7B2806CDF7CCA6FB031B5FE362D60B5E74E72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37230.jpgsave_picture_37230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37230.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37231.jpgsave_picture_37231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37231.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Asia - XXX (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37232.jpgsave_picture_37232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37232.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:5AD50813801FD4958EA6E0323E88DE7CEFBC7837
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37233.jpgsave_picture_37233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37233.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:E5E85082A8DDCA83E6220EAFAEE93952CC1C8577
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37234.jpgsave_picture_37234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37234.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Evergrey - Collection (1998 - 2024) 27 CD [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37235.jpgsave_picture_37235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37235.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tetris Forever (2024) [Multi] (1.00) Scene Skidrow
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37236.jpgsave_picture_37236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37236.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37237.jpgsave_picture_37237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37237.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37238.jpgsave_picture_37238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37238.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:BC80C45744F3AE4E00484A4446D0E1E97592EBEA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37239.jpgsave_picture_37239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37239.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpgsave_picture_37240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37241.jpgsave_picture_37241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37241.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:B5F1FF24A4E38FDAE0BF84161926F222953E0DCE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37242.jpgsave_picture_37242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37242.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Topaz Video AI 5.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37243.jpgsave_picture_37243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37243.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:FEFB3C484D63D43A1DBD0C3A5EF6857EEA28E558
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37244.jpgsave_picture_37244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37244.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpgsave_picture_37245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37246.jpgsave_picture_37246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37246.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37247.jpgsave_picture_37247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37247.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Download Master 7.1.3.1733 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpgsave_picture_37248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpg" />
 </div>
 
 

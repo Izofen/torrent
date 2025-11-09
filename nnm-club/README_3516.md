@@ -6,7 +6,7 @@ The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111777.jpgsave_picture_111777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111777.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111778.jpgsave_picture_111778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111778.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Papriks - Kiss'ЛЯ'тина (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111779.jpgsave_picture_111779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111779.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111780.jpgsave_picture_111780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111780.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111781.jpgsave_picture_111781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111781.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Saracen - Heroes, Saints & Fools (1981) Reissue, 1992, TRC Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111782.jpgsave_picture_111782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111782.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:6AB8DDB1D6A175AADF1EA753F7F045908386BC43
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111783.jpgsave_picture_111783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111783.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:599EA8C7E43604983C9DB91D8EA3AF0A488DC744
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111784.jpgsave_picture_111784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111784.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C9CC0792B2A829665FAF8C75CC91143654FCB67E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111785.jpgsave_picture_111785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111785.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Red Dragon Cartel - Patina (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111786.jpgsave_picture_111786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111786.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:F1637CAD33CCC95888093CE323C5D9D149E6CA3F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111787.jpgsave_picture_111787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111787.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:039E7E94EEED5E34F481390D812BE51AB12B1019
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111788.jpgsave_picture_111788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111788.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111789.jpgsave_picture_111789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111789.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:401DCAFBE3DA156527B66582DFF2FEBA0E0AABE4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111790.jpgsave_picture_111790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111790.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:2DE958491C15EEB35B00B717598865927C74D528
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111791.jpgsave_picture_111791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111791.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ The Papriks - Хиты на лопате (2020) [MP3|320 Kbps] <Ska, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111792.jpgsave_picture_111792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111792.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5C28CC6BF23253E343D84FCF0851C671C0A38AA1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111793.jpgsave_picture_111793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111793.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111794.jpgsave_picture_111794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111794.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ St.Vagina Dentata - Скотобаза (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111795.jpgsave_picture_111795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111795.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111796.jpgsave_picture_111796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111796.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111797.jpgsave_picture_111797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111797.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:3D29EBB5E4FAF3243DCBBC586861CD33CB75FF03
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111798.jpgsave_picture_111798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111798.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111799.jpgsave_picture_111799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111799.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111800.jpgsave_picture_111800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111800.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111801.jpgsave_picture_111801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111801.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Telegram Desktop 4.16.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111802.jpgsave_picture_111802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111802.jpg" />
 </div>
 
 

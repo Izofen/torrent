@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251903.jpgsave_picture_251903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251903.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0D6C2C158EDAE337CFD166E346676A31BAFD0F8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251904.jpgsave_picture_251904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251904.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TrueNAS CORE 13.0-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251905.jpgsave_picture_251905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251905.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251906.jpgsave_picture_251906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251906.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251907.jpgsave_picture_251907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251907.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251908.jpgsave_picture_251908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251908.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:6E23E3B0A820C0AFE67C38F9CC33A229AC1E0F1E
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251909.jpgsave_picture_251909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251909.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251910.jpgsave_picture_251910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251910.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251911.jpgsave_picture_251911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251911.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251912.jpgsave_picture_251912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251912.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sparks - 26 albums, 3 singles, 56 CD (1972-2023) [FLAC|Lossless|image + .cue] <A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251913.jpgsave_picture_251913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251913.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:441B0CC68231D3122A883167F7360C5B35272C2E
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251914.jpgsave_picture_251914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251914.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251915.jpgsave_picture_251915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251915.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:5FB0F8700B2138BA81DE66DB6E2A001E7DF830CA
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251916.jpgsave_picture_251916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251916.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Windows 10 Pro 22H2 19045.2965 x64 by SanLex [Lightweight] [Ru/En] (2023.05.29)
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251917.jpgsave_picture_251917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251917.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:0A8CC5F7BBF413580FC0D40719B9022E55F7197A
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251918.jpgsave_picture_251918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251918.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) License GOG [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251919.jpgsave_picture_251919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251919.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:B01766286EA7DD5039F4A3E28A711A643BB8429A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251920.jpgsave_picture_251920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251920.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7F4E0CA138CFC15A47451F0BA6103A45BD1A2909
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251921.jpgsave_picture_251921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251921.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:72A2B7A7259C95F85BD64B9D3D1D884FAF77630B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251922.jpgsave_picture_251922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251922.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251923.jpgsave_picture_251923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251923.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0DA06A56721D91E93C7E8EDCDC3085BD5CB4C004
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251924.jpgsave_picture_251924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251924.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BDF86B3745A2C042B25FBCAB0129BD44E0C2D35D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251925.jpgsave_picture_251925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251925.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:485EC19ACA301F6BC3F86D0AD6598198E3D3C3EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251926.jpgsave_picture_251926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251926.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:009A58EAB6DFC852A9F366F24EA50F7F10E354C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251927.jpgsave_picture_251927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251927.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Scanner 2.13 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251928.jpgsave_picture_251928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251928.jpg" />
 </div>
 
 

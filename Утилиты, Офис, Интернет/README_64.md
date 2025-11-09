@@ -6,7 +6,7 @@ CoolUtils PDF Combine Pro 4.2.0.152 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252270.jpgsave_picture_252270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YT Downloader 9.18.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpgsave_picture_252313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VCap Downloader 0.1.40.6802 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252366.jpgsave_picture_252366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ant Download Manager Pro 2.16.2  Build 91826 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252367.jpgsave_picture_252367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252367.jpg" />
 </div>
 
 

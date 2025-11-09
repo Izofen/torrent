@@ -6,7 +6,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150809.jpgsave_picture_150809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150809.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150822.jpgsave_picture_150822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150822.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Christmas Carol / Рождественская песнь (2018) [Ru/Multi] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150881.jpgsave_picture_150881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150881.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150884.jpgsave_picture_150884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150884.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150886.jpgsave_picture_150886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150886.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150945.jpgsave_picture_150945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150945.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151020.jpgsave_picture_151020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151020.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151070.jpgsave_picture_151070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151070.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpgsave_picture_151076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151091.jpgsave_picture_151091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151113.jpgsave_picture_151113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151113.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dungetris (2017) [Ru/Multi] (1.0) Unofficial SiMPLEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151148.jpgsave_picture_151148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151148.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151240.jpgsave_picture_151240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151240.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151256.jpgsave_picture_151256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.29.2.6s/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151366.jpgsave_picture_151366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151366.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151483.jpgsave_picture_151483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151483.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151616.jpgsave_picture_151616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151616.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Harrowed Halls 2: Hells Thistle / Обитель страданий 2: Адск�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151620.jpgsave_picture_151620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151620.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpgsave_picture_151737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151770.jpgsave_picture_151770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151770.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151870.jpgsave_picture_151870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151874.jpgsave_picture_151874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151874.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151887.jpgsave_picture_151887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151887.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151893.jpgsave_picture_151893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151893.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sailing Era (2023) [Multi] (1.3.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151906.jpgsave_picture_151906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151906.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151947.jpgsave_picture_151947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151947.jpg" />
 </div>
 
 

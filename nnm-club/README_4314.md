@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133997.jpgsave_picture_133997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:82E72C3BF126990EA9D8306A7A105601E8C167FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133998.jpgsave_picture_133998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133999.jpgsave_picture_133999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F56379256540957695F01BBE57848AEB22BDD52C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134000.jpgsave_picture_134000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134000.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:126586D52DF8345BD9BB70DCCB557A35242E0C7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134001.jpgsave_picture_134001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134001.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FD2AAD38ECF967A905296A60391097A53EFDA99E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134002.jpgsave_picture_134002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134002.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FD2AAD38ECF967A905296A60391097A53EFDA99E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134003.jpgsave_picture_134003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134003.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:83305E46FDA5BBC0FB8CA05FA48D35CDEAC7962A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134004.jpgsave_picture_134004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134004.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpgsave_picture_134005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:DCB7B2952FB4613EA6D762D298A388D1468D2ABA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134007.jpgsave_picture_134007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134007.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B01042AAE16CD8C75BF2CA13E38A9B7F6969B74C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134009.jpgsave_picture_134009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134009.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:CD79731F6772EEB769201736BEF76FC2AD001532
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134011.jpgsave_picture_134011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134011.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134012.jpgsave_picture_134012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134012.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DefenderKiller 11.0.4 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134013.jpgsave_picture_134013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134013.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:32F2980CFE71CCCA4535C2D28051C1C049448853
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134014.jpgsave_picture_134014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134014.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E4D1A25FD63523433DD25F4B22DD934AA2CC576C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134015.jpgsave_picture_134015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134015.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D7955402E2455189DBD8BF24A246B6FAFF26CD2A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134016.jpgsave_picture_134016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134016.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:831038C28A367017C8FFDB28124AEE8A2E1743CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134017.jpgsave_picture_134017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134017.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:078B0B9C7EBE7B00DAA7328F529BF5414D419A2C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134018.jpgsave_picture_134018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134018.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:965408CA63F6670A958C70C3E38A7CFB70C9AD47
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134019.jpgsave_picture_134019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134019.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpgsave_picture_134020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134021.jpgsave_picture_134021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134021.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3A1C83FD8267867B428BCD966C54F8BC7832DE2A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134022.jpgsave_picture_134022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134022.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:19AD99872E2D422A183CD197ED451182F1D850E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134023.jpgsave_picture_134023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134023.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:D77F8D9E62EAED661B50E219E1F4F1B241D96536
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134024.jpgsave_picture_134024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134024.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:853DBCA8B7C62877286BBAC6C75146A66DE34CD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134025.jpgsave_picture_134025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134025.jpg" />
 </div>
 
 

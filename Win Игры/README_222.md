@@ -6,7 +6,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpgsave_picture_117889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117894.jpgsave_picture_117894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpgsave_picture_117896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Succubus With Guns (2021) [Ru/Multi] (13403147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118073.jpgsave_picture_118073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118073.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118191.jpgsave_picture_118191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118191.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpgsave_picture_118195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118200.jpgsave_picture_118200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118200.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ My Recycling Center (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118203.jpgsave_picture_118203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118203.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ GSClient Counter-Strike 1.6 (2003) [Ru/En] (1.1.2.7/pv49/b9830) Repack 1nomok
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118215.jpgsave_picture_118215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118215.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rise to Ruins (2019) [En] (2d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118217.jpgsave_picture_118217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118217.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118296.jpgsave_picture_118296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118296.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpgsave_picture_118314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118314.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118334.jpgsave_picture_118334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118334.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118335.jpgsave_picture_118335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118335.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118364.jpgsave_picture_118364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118364.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpgsave_picture_118377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Heretic HD PBR (2023) [Ru/Multi] (1.2) Repack/Mod Other s
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118380.jpgsave_picture_118380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118380.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpgsave_picture_118381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpgsave_picture_118383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118385.jpgsave_picture_118385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118385.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Legendary Tales 3: Stories (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118442.jpgsave_picture_118442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118442.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118483.jpgsave_picture_118483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118483.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118497.jpgsave_picture_118497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118497.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118501.jpgsave_picture_118501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118501.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpgsave_picture_118506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpgsave_picture_118514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpg" />
 </div>
 
 

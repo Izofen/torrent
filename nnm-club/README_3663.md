@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115613.jpgsave_picture_115613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C2941B2D58652F54A800A40D45C0E30906818D67
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115614.jpgsave_picture_115614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115614.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F5685DC49E6FA55FCCA04F972B7165BC424B6727
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115615.jpgsave_picture_115615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115615.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B8DBA1311351176C9D3514E7B55FC69363C10626
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115616.jpgsave_picture_115616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115616.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:29FBA534EAAA8F200451082630110762491E88C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115617.jpgsave_picture_115617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115617.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8FED870166430F677F14CF97C4DD1E57644A9AE2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115618.jpgsave_picture_115618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115618.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Illustrator 2024 28.3.0.94 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115619.jpgsave_picture_115619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115619.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Office Tool Plus 10.8.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115620.jpgsave_picture_115620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115620.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:EFCF481EA83D079131A2D6D34190268B61BD9E7C
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115621.jpgsave_picture_115621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115621.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:302D19A97D431C0BBF3484BFAFADF48AE36A284D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115622.jpgsave_picture_115622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115622.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mercedes-Benz разочаровалась в электромобилях и р
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115623.jpgsave_picture_115623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115623.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Mercedes-Benz сдвинула свои цели по электрификаци
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115624.jpgsave_picture_115624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115624.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3B5F08C60CB170403C9070EC9E9824BF4264A61C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpgsave_picture_115625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115626.jpgsave_picture_115626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115626.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0FD817F37896869B51E2E953DCA5AA68F1555340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115627.jpgsave_picture_115627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115627.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C99ACD565B131CC5DCC825293036AEEF26180F15
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115628.jpgsave_picture_115628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115628.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D050DEF0CC2DA6D497C14E14F94BB17A8DC5CA3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115629.jpgsave_picture_115629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115629.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115630.jpgsave_picture_115630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115630.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115631.jpgsave_picture_115631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115631.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:8249840105C315BBEBBF9F3A01A976D4A8DA7359
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115632.jpgsave_picture_115632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115632.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ uTorrent Pro 3.6.0 Build 47016 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115633.jpgsave_picture_115633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115633.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:91F9FCE8005311C500755A115FFE27365F3D636D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115634.jpgsave_picture_115634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115634.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adobe Acrobat Reader 2023.008.20555.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115635.jpgsave_picture_115635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115635.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Windows 10 Debloater 2.6.11 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115636.jpgsave_picture_115636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115636.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Acrobat Pro 23.8.20555 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115637.jpgsave_picture_115637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115637.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115638.jpgsave_picture_115638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115638.jpg" />
 </div>
 
 

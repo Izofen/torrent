@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55851.jpgsave_picture_55851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8EFD7C88DD64901B016387D6B237CC29AF69BD59
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55852.jpgsave_picture_55852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55852.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ashampoo WinOptimizer 27.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55853.jpgsave_picture_55853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55853.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9EDE86500048C4D884B277905C0ECA3B5E058885
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55854.jpgsave_picture_55854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55854.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D6F2B13F525E3BEC1AD2A83F815E727BE0FB7C8C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55855.jpgsave_picture_55855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55855.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpgsave_picture_55856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C5AA342F69690B6D9600B0F2ACB37C7CDA4C2A2A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55857.jpgsave_picture_55857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55857.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe After Effects 2024 24.4.0.47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55858.jpgsave_picture_55858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55858.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B440160E3DFAB1ED77E3FC3753B416516551B553
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55859.jpgsave_picture_55859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55859.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Windows 11 [10.0.22631.3593], Version 23H2 (Updated May 2024) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55860.jpgsave_picture_55860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55860.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Windows 10 [10.0.19045.4412], Version 22H2 (Updated May 2024) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55861.jpgsave_picture_55861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55861.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpgsave_picture_55862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows Server [10.0.25398.887], version 23H2 (Updated May 2024) - Оригин�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55863.jpgsave_picture_55863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55863.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:DA534CE9B630E12710FD33A8AF78331ABDAD0404
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55864.jpgsave_picture_55864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55864.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55865.jpgsave_picture_55865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55865.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:FF536D49023B3673259AB16B68932275C6BD9C0A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55866.jpgsave_picture_55866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55866.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Psiphon 3 build 183 (20.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55867.jpgsave_picture_55867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55867.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:63D6E5155BA522A365E33611FE1E3F753DAE2581
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55868.jpgsave_picture_55868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55868.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C979556B132802264A2B703EEF11E915A8CFCA5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55869.jpgsave_picture_55869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55869.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9C3E4C8CC25916F37BBF07A888117B232F339063
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55870.jpgsave_picture_55870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55870.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Microsoft Windows 11 [10.0.22621.3593], Version 22H2 (Updated May 2024) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55871.jpgsave_picture_55871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55871.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:CE20AEDA1FDE1201B929958866A075BC343D6BA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55872.jpgsave_picture_55872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55872.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mailbird Pro 3.0.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55873.jpgsave_picture_55873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55873.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Adobe Photoshop Lightroom Classic 2024 13.3.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55874.jpgsave_picture_55874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55874.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:C887B97324BF104BEEA14A245E05D7EDCD99B763
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55875.jpgsave_picture_55875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55875.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:64651419595888DFC0179A87544DEC1658CAB3C6
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55876.jpgsave_picture_55876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55876.jpg" />
 </div>
 
 

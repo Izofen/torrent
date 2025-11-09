@@ -6,7 +6,7 @@ Lost Romantic - LovexHate (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186038.jpgsave_picture_186038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dead Feathers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186046.jpgsave_picture_186046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186046.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186053.jpgsave_picture_186053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186053.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ataraxie - Live Doomination (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186064.jpgsave_picture_186064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186064.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bhargest - Ritual of Death (2017) [FLAC|Lossless|image + .cue] <Doom, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186068.jpgsave_picture_186068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186068.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:C9896F2F2BBD3D01F0CC1FF4F7D2511B7F8F603B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186201.jpgsave_picture_186201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186201.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Maneskin - Rush! (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam-rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186222.jpgsave_picture_186222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186222.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:C9C06E74B3860134F0E1CDE6FF08CE9BC52B71A4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186237.jpgsave_picture_186237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186237.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Billy's Band - В шляпе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alco-ja
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186247.jpgsave_picture_186247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186247.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F13DA94A03552E76CCE399ACED0957886CB769A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186258.jpgsave_picture_186258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186258.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ John West - Days Of Destiny (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186259.jpgsave_picture_186259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186259.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ TattooIN - По траектории (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186260.jpgsave_picture_186260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186260.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186261.jpgsave_picture_186261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186261.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hurricane - Reconnected (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186264.jpgsave_picture_186264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186264.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E31DBBB8011179F9477F5538B6D5BBE8B02FEE74
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186266.jpgsave_picture_186266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186266.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186271.jpgsave_picture_186271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186271.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpgsave_picture_186276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Joel Hoekstra's 13 - Crash Of Life (2023) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186277.jpgsave_picture_186277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186277.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Frozen Tears - Brazen Whisper (2021) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186279.jpgsave_picture_186279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186279.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186280.jpgsave_picture_186280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186280.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ I Spy - While The War Began (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186281.jpgsave_picture_186281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186281.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Emotional Fire - Will You Be There (2023) EP [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186282.jpgsave_picture_186282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186282.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Big Mouthers - New Now (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, A
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186283.jpgsave_picture_186283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186283.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sarayasign - Throne Of Gold (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186284.jpgsave_picture_186284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186284.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Departure - Departure (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186285.jpgsave_picture_186285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186285.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:BA67B15856C6AEBCE77DF43473423F9F03EF5D0D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpgsave_picture_186286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpg" />
 </div>
 
 

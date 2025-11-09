@@ -6,7 +6,7 @@ Manafest - I Run With Wolves (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Christian, A
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240526.jpgsave_picture_240526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240526.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Acon Digital Acoustica Premium Edition 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240527.jpgsave_picture_240527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240527.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A311F6588974C30E6D681563CFA5C9D1680CAD46
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240528.jpgsave_picture_240528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240528.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7A68524A410FCD3E48954E0C2FC80703ABD434D4
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240529.jpgsave_picture_240529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sonny Rollins - Soneymoon (1963 - 1965) 2007, Get Back [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240530.jpgsave_picture_240530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240530.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:81A5399C1067A0708C2830C66D27226091801E37
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240531.jpgsave_picture_240531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240531.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ GeoGebra 6.0.776.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240532.jpgsave_picture_240532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240532.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bandicam 5.4.3.1923 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240533.jpgsave_picture_240533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240533.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Black Hole Entertainment | Артбук по игре Might & Magic Heroes VI / 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240534.jpgsave_picture_240534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240534.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9889447C602D7B3942B5E0481BDF453F09CAF652
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240535.jpgsave_picture_240535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240535.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E737FFB1EF172DC885FEEC36559D7F6149EBFCB1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240536.jpgsave_picture_240536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240536.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Streamlabs OBS 1.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240537.jpgsave_picture_240537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240537.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6FE839DF59C416736EA79584E888433F0B645BC6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240538.jpgsave_picture_240538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240538.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Rage - Execution Guaranteed (1987) Repress, 1989, Noise International [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240539.jpgsave_picture_240539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240539.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D61D5BFCA595CEBB502826A18F4140B1FC787009
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240540.jpgsave_picture_240540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240540.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kahr - Kahr (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, sludge
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240541.jpgsave_picture_240541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240541.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:370F8C6D4BDCDD06A530A3A7975B4A6DB18D62C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240542.jpgsave_picture_240542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240542.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:006D9F2C089564CF048F3A00C287D68C2A6C9C79
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240543.jpgsave_picture_240543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240543.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ StartAllBack 3.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240544.jpgsave_picture_240544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240544.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:944D172A83FBCA3612B802263BC4B346FAFAB814
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240545.jpgsave_picture_240545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240545.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Native American pulse Beat (2023) [MP3|241-320 Kbps] <Native American, Rock
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240546.jpgsave_picture_240546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240546.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:8D00755B9ABC97FE8C36B41AE862C39851BB0BA4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240547.jpgsave_picture_240547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240547.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Franck Amsallem - Summer Times (2003) Nocturne [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240548.jpgsave_picture_240548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240548.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:16A9D6074CEEDAAF6531621FB587FF3670F5AAD0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240549.jpgsave_picture_240549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240549.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:662FF930A2B8D9431AA0E09340E6C38C231EEC51
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240550.jpgsave_picture_240550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240550.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PrivaZer Pro 4.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240551.jpgsave_picture_240551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240551.jpg" />
 </div>
 
 

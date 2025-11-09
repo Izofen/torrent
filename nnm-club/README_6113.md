@@ -6,7 +6,7 @@ VA - Classic Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192303.jpgsave_picture_192303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192303.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192304.jpgsave_picture_192304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192304.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192305.jpgsave_picture_192305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192305.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192306.jpgsave_picture_192306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192306.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192307.jpgsave_picture_192307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192307.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Isolation - Isolation (Compilation) (2008) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192308.jpgsave_picture_192308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192308.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ HWiNFO 7.32 Build 4900 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192309.jpgsave_picture_192309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192309.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Trollband - Woolgatherings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192310.jpgsave_picture_192310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192310.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:0AFFA8CF22872C4A35657593E4475BE3F4A714F6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192311.jpgsave_picture_192311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192311.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [M
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192312.jpgsave_picture_192312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192312.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2B25417CA473305221677D8A3F03D6BDD3EF1561
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192313.jpgsave_picture_192313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192313.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 11 Pro 22H2 22621.2134 x64 by SanLex [Lightweight] [Ru/En] (2023.09.03)
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192314.jpgsave_picture_192314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192314.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FFB109039F4BB56DDD3DD0146A77D92048C23B22
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192315.jpgsave_picture_192315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192315.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:091D492A725D8AE23B566641ACA1E59F2C692852
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192316.jpgsave_picture_192316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192316.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Display Driver Uninstaller 18.0.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192317.jpgsave_picture_192317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192317.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PDF Shaper Professional 12.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192319.jpgsave_picture_192319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192319.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:1F4A1AD3B90FC43A7C82324F77F79E24E6167A79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192320.jpgsave_picture_192320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192320.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:EF9C7CD53234010E3EF8D412DF51F1D79BA73F2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192321.jpgsave_picture_192321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192321.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A4BD3876CBCC7B05BE11BCD1BF0D7D73068CAF25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192322.jpgsave_picture_192322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192322.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F89CC91CCA160DFC79172474B4EAA6FA5059F169
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192323.jpgsave_picture_192323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192323.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:D978EA56E7154222C046972C645F89161CDA8C20
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192324.jpgsave_picture_192324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192324.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ KMSAuto++ Portable 1.8.1 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192325.jpgsave_picture_192325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192325.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 K
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192326.jpgsave_picture_192326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192326.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Intel грозит судебный иск из-за уязвимости Downfa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192327.jpgsave_picture_192327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192327.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Nox App Player 7.0.3.8000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192328.jpgsave_picture_192328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192328.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:5B81E4A1818956503D2F05928B242A8DC99855F0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192329.jpgsave_picture_192329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192329.jpg" />
 </div>
 
 

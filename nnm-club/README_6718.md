@@ -6,7 +6,7 @@ Nouveau Arcade - Dead Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Cy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231038.jpgsave_picture_231038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231039.jpgsave_picture_231039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231039.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Telegram Desktop 4.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231040.jpgsave_picture_231040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231040.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Cavern Deep - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231041.jpgsave_picture_231041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231041.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:1AD286E2999844FEBC5875CF83B2F748E49DF507
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231042.jpgsave_picture_231042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231042.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Brave Browser 1.56.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231045.jpgsave_picture_231045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231045.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Desolator - Unearthly Monument (2013) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231046.jpgsave_picture_231046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231046.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:91134EAD6FBF97277F7CD65D748764EDECACB37F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231047.jpgsave_picture_231047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231047.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gardenian - Two Feet Stand (1997) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231048.jpgsave_picture_231048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231048.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ UniBook - Аудиокниги v0.7.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231049.jpgsave_picture_231049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231049.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Desolator - Sermon of Apathy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231052.jpgsave_picture_231052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231052.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:A492C84CA91A19E48400C9C70F610DD361E107E7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231053.jpgsave_picture_231053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231053.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D79B129E4426F21BF40A8CDE62678534893A1C95
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231054.jpgsave_picture_231054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231054.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Integrity Pro 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231055.jpgsave_picture_231055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231055.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:2AA4BF7C6FE5617250B7F6536E765969842AD942
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231056.jpgsave_picture_231056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231056.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ MetaRename for Mac 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231058.jpgsave_picture_231058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231058.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:57A7253C7406CE08B49004ED8EA15784D973FFA0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231059.jpgsave_picture_231059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231059.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7C731E6E99D50B50DECC000ADB8845FCE785586E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231061.jpgsave_picture_231061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231061.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gardenian - Sindustries (2000) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231062.jpgsave_picture_231062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231062.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0D68CA4FB111F23B54AA8939BD5AC72825119175
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231063.jpgsave_picture_231063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231063.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:843B75E474E2CDE3B86C311085FECA61EA063C02
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231065.jpgsave_picture_231065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231065.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remas
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231067.jpgsave_picture_231067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231067.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Scrutiny 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231068.jpgsave_picture_231068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231068.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:90767199094A83A9DDDA63039806B3DF192EC731
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231069.jpgsave_picture_231069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231069.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hænesy (Haenesy) - Garabontzia (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231070.jpgsave_picture_231070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231070.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:091050EF835A771481AA2252991BC3AB7494DC65
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231071.jpgsave_picture_231071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231071.jpg" />
 </div>
 
 

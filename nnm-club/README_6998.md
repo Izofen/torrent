@@ -6,7 +6,7 @@ VA - The Best Of Scorchin' Vol. 1 (Mixed By Super8 & Tab) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240109.jpgsave_picture_240109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240109.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C5B5A3B4CC35E53DD045FDC69DDE2542000E4B11
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240110.jpgsave_picture_240110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240110.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DF9E5E227F7429480C782B053289EC0B3EB21F74
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240111.jpgsave_picture_240111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240111.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Baby Face Willette - Mo' Rock (1964) 1998, Universal [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240112.jpgsave_picture_240112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240112.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F90EDF384778C0138C567B7F737551BEFAFA4788
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240113.jpgsave_picture_240113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240113.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dizzy Gillespie - The Symphony Sessions (1989) ProJazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240114.jpgsave_picture_240114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240114.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Hudspeth & Taylor - Ridin' the Blinds (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240115.jpgsave_picture_240115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240115.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8214278D950BB903249D123048F90B7713C07B51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240116.jpgsave_picture_240116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240116.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:2D91F86CADADA49AB4ED4EED43D81717C4645AD6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240117.jpgsave_picture_240117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240117.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ FastFlix 5.4.0 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240118.jpgsave_picture_240118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240118.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ EagleFiler 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240119.jpgsave_picture_240119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240119.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:793DDD291F8F0ECA76674C3EEBBF75DFA4909CC2
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240120.jpgsave_picture_240120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240120.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ J.J. Johnson - The Trombone Master (1957 - 1960) 1989, Columbia [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240121.jpgsave_picture_240121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240121.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:D5901CD9119D0772D4D4EB40918F192F775BF6FE
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240122.jpgsave_picture_240122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240122.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240123.jpgsave_picture_240123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240123.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Excalion - Once Upon a Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Power-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240124.jpgsave_picture_240124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240124.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Walt Dickerson & Richard Davis - Dialogue (1977) 1996, 2CD, SteepleChase [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240125.jpgsave_picture_240125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240125.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ From Fall to Spring - Rise (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240126.jpgsave_picture_240126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240126.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Vellum 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240127.jpgsave_picture_240127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240127.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ SiteSucker 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240128.jpgsave_picture_240128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240128.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ GrandTotal 7 v7.0.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240129.jpgsave_picture_240129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240129.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Salami Rose Joe Louis - Akousmatikous (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240130.jpgsave_picture_240130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240130.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:BE4342340A5549CD164713DD2C9FE935156BB814
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240131.jpgsave_picture_240131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240131.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Proprofiling, Алексей Филатов | Профайлинг для нач
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240132.jpgsave_picture_240132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240132.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Red Raven Chaos - Chaos to My Eyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240133.jpgsave_picture_240133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240133.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Glary Tracks Eraser 5.0.1.256 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240134.jpgsave_picture_240134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240134.jpg" />
 </div>
 
 

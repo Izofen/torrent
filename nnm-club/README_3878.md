@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121262.jpgsave_picture_121262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121262.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121263.jpgsave_picture_121263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121263.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SponsorBlock for YouTube 5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121264.jpgsave_picture_121264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121264.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpgsave_picture_121265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121265.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121266.jpgsave_picture_121266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121266.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121267.jpgsave_picture_121267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121267.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:2D9AFB1BD22D5B109CC81E1D93F1EC5A2F918C00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121268.jpgsave_picture_121268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121268.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Slidepad 1.4.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121269.jpgsave_picture_121269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121269.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:C5671D80676D0D82B98417B3F95926997679AE5C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121270.jpgsave_picture_121270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121270.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Dark Oath - Ages of Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpgsave_picture_121271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpgsave_picture_121272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Evening (2016) Green Hill [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121273.jpgsave_picture_121273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121273.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Abysmal Grief - Reveal Nothing (2016) Compilation [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpgsave_picture_121274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mp3tag 1.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121275.jpgsave_picture_121275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121275.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dave Brubeck Quartet - Debut in the Netherlands 1958 (1958) 2022, The Lost Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121276.jpgsave_picture_121276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121276.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpgsave_picture_121277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Instrumental Wedding Music Zone, Relaxing Piano Music - Sexual Sounds (2019) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121278.jpgsave_picture_121278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121278.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121279.jpgsave_picture_121279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121279.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpgsave_picture_121280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121281.jpgsave_picture_121281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121281.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121282.jpgsave_picture_121282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121282.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Skype 8.111.0.607 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121283.jpgsave_picture_121283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121283.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121284.jpgsave_picture_121284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121284.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121285.jpgsave_picture_121285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121285.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Dash 7.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121286.jpgsave_picture_121286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121286.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:BA7DD58285044801CA8608A74036648E28479362
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121287.jpgsave_picture_121287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121287.jpg" />
 </div>
 
 

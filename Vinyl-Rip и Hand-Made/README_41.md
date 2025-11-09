@@ -6,7 +6,7 @@ Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpgsave_picture_120417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpgsave_picture_120604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120862.jpgsave_picture_120862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120862.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpgsave_picture_121101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpgsave_picture_121103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpgsave_picture_121114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121114.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpgsave_picture_121291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121581.jpgsave_picture_121581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121581.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121583.jpgsave_picture_121583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121583.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpgsave_picture_121681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121681.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Saxon - Дискография (33 releases) (1979-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpgsave_picture_121761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpgsave_picture_121872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122140.jpgsave_picture_122140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122140.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpgsave_picture_122326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpgsave_picture_122507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpgsave_picture_122519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpgsave_picture_122760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpgsave_picture_122926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpgsave_picture_123056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123116.jpgsave_picture_123116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123116.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpgsave_picture_123237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpgsave_picture_123238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpgsave_picture_123241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpgsave_picture_123243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpgsave_picture_123249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123249.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpgsave_picture_123278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpg" />
 </div>
 
 

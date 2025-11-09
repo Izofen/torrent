@@ -6,7 +6,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16341.jpgsave_picture_16341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16437.jpgsave_picture_16437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16437.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16458.jpgsave_picture_16458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16458.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16579.jpgsave_picture_16579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16579.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16582.jpgsave_picture_16582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16582.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17042.jpgsave_picture_17042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17042.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpgsave_picture_17228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17458.jpgsave_picture_17458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17458.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpgsave_picture_17654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpgsave_picture_17761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17897.jpgsave_picture_17897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17897.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17964.jpgsave_picture_17964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17964.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18016.jpgsave_picture_18016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18016.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18310.jpgsave_picture_18310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18310.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpgsave_picture_18543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18543.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18682.jpgsave_picture_18682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18682.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19095.jpgsave_picture_19095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19095.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19276.jpgsave_picture_19276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19276.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pure Bubble Hockey (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19280.jpgsave_picture_19280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19280.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19466.jpgsave_picture_19466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19466.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19513.jpgsave_picture_19513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19513.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19584.jpgsave_picture_19584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19584.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19589.jpgsave_picture_19589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19589.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19605.jpgsave_picture_19605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19605.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19621.jpgsave_picture_19621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19678.jpgsave_picture_19678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19678.jpg" />
 </div>
 
 

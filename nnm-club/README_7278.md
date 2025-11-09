@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249192.jpgsave_picture_249192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E10B62D40ECED001576F127C496E0758B87D2A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249197.jpgsave_picture_249197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249197.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DA15F8F7D3A149963BA47D791DA8156409BDA0A0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249198.jpgsave_picture_249198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249198.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Ministry Of Sound: The Mash Up Mix Bass (2012) [MP3|320 кб/с]<Drum 'n' B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249200.jpgsave_picture_249200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249200.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:911A8305FCD74DE617EAE6740B8E81663CBA19B8
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249201.jpgsave_picture_249201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249201.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Rebuild the History (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249203.jpgsave_picture_249203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249203.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9658BDFE3CB17AD07EC8446D72D8127026BE854F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249205.jpgsave_picture_249205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249205.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:82AE4707CF5384ECA4A8BB47615FC07BB1F5B755
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249208.jpgsave_picture_249208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249208.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249210.jpgsave_picture_249210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249210.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249212.jpgsave_picture_249212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249212.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Photo Slideshow Creator 3.0 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249213.jpgsave_picture_249213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249213.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Инструментальная музыка (2012) vol. № 31 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249214.jpgsave_picture_249214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249214.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249215.jpgsave_picture_249215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249215.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Playboy — легендарный журнал для мужчин. Экскл�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249221.jpgsave_picture_249221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249221.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Playboy — легендарный журнал для мужчин. Экскл�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249224.jpgsave_picture_249224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249224.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249228.jpgsave_picture_249228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249228.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249230.jpgsave_picture_249230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249230.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Cosmic Gate - Wake Your Mind (2011) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249232.jpgsave_picture_249232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249232.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cosmic Gate - Wake Your Mind (2011)
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249233.jpgsave_picture_249233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249233.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:22C3978B90E97B160D24DCE9F0E31B7CB1EF9996
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249234.jpgsave_picture_249234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249234.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:22C3978B90E97B160D24DCE9F0E31B7CB1EF9996
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249235.jpgsave_picture_249235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249235.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249236.jpgsave_picture_249236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249236.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249237.jpgsave_picture_249237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249237.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kaido Player 7 v.7.1.37.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249242.jpgsave_picture_249242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249242.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Kaido Player 7 v.7.1.37.12
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249246.jpgsave_picture_249246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249246.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Kaido Player 7 v.7.1.37.12
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249247.jpgsave_picture_249247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249247.jpg" />
 </div>
 
 

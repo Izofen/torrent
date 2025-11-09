@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31347.jpgsave_picture_31347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96E8A28A94E5B8132EFDF73419D27157E5E5B4DF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31348.jpgsave_picture_31348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31348.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B6DB155FFD70DDAAB9796DB670DE766DC007D4EF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31349.jpgsave_picture_31349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31349.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Queen - Flash Gordon (Original Soundtrack Music) (1980) Japanese Edition, SHM-CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31350.jpgsave_picture_31350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31350.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:37AB6DB5F9CF50AFF1BA2308139B897D53A44151
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31351.jpgsave_picture_31351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31351.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C47005D7C661A00E1240C369A5FE9766521EDC22
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31352.jpgsave_picture_31352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31352.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:83A0DD4C23C7FDABFC01CF0745373DB9DF67DA76
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31353.jpgsave_picture_31353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31353.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:08E14C056A477EEB1CF87724E2A3801AD4BDA221
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31354.jpgsave_picture_31354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31354.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Firefox Browser ESR 115.19.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31355.jpgsave_picture_31355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31355.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:90A41A5C38931D756096DF5D55E5D5AD0C3656CC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31356.jpgsave_picture_31356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31356.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:AE76C0DBEDFB807E8B56501BF63697BAEE186E1F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31357.jpgsave_picture_31357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31357.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FF9251DA35BA96B03E4E3F5A8685640119E307E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31358.jpgsave_picture_31358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31358.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31359.jpgsave_picture_31359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31359.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Music Collection 3.8.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31360.jpgsave_picture_31360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31360.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Melody Gardot - Live In Europe (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31361.jpgsave_picture_31361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31361.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PhotoRoom v5.8.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31362.jpgsave_picture_31362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31362.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31363.jpgsave_picture_31363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31363.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31364.jpgsave_picture_31364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31364.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31365.jpgsave_picture_31365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31365.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:46CA0DFC32C92D1316451C5FEF2DC5F03A74C71F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31366.jpgsave_picture_31366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31366.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:4D8B63AEBE3FA70F8D730137AC3622D103534A04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31367.jpgsave_picture_31367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31367.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31368.jpgsave_picture_31368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31368.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31369.jpgsave_picture_31369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31369.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31370.jpgsave_picture_31370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31370.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31371.jpgsave_picture_31371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31371.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:D0412B9C09184294A3C19C6F457881F99DC9DA00
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31372.jpgsave_picture_31372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31372.jpg" />
 </div>
 
 

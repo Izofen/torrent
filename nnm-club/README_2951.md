@@ -6,7 +6,7 @@
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87447.jpgsave_picture_87447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87447.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Driver Genius Professional 11.0.0.1126 RePack + Portable by BALISTA [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87449.jpgsave_picture_87449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87449.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Driver Genius Professional - программа для управления др
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87454.jpgsave_picture_87454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87454.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:81E84FA326F11BD3D16750A7AE88B5A84549C6C9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87456.jpgsave_picture_87456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87456.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BA9829F0549F45905AF956D0F46A03D174EBD839
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87459.jpgsave_picture_87459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87459.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87460.jpgsave_picture_87460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87460.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87461.jpgsave_picture_87461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87461.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87463.jpgsave_picture_87463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87463.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2F54AC4193345AB72777364035F2F7ECB57C2708
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87466.jpgsave_picture_87466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87466.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4EAFF536E7099AB8EDCFA8B10B9B54312FAD54B5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87471.jpgsave_picture_87471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87471.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87472.jpgsave_picture_87472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87472.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87473.jpgsave_picture_87473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87473.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87474.jpgsave_picture_87474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87474.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87476.jpgsave_picture_87476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87476.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:18D4EE320CE615A9C0B20FD719D6480EFA1D7373
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87477.jpgsave_picture_87477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87477.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:6CCD7B81FCCA1ED3AFB406992C5E67F299BDD6FB
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87478.jpgsave_picture_87478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87478.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1772C51B9DAB40A857F0FD51F1E8FFD7B54F4258
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87480.jpgsave_picture_87480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87480.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:6B55ADD1991DF81CFEDD48BDF08B338D098EB76F
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87481.jpgsave_picture_87481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87481.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:0C5FCBE743886EF9013BF1AC273683771323C16B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87482.jpgsave_picture_87482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87482.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Command & Conquer 3: Tiberium Wars Kane Edition + Kane's Wrath [Multi3] (L) 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87486.jpgsave_picture_87486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87486.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ The Elder Scrolls IV: Oblivion Association [Ru] (RePack/Mod/0.7) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87487.jpgsave_picture_87487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87487.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87488.jpgsave_picture_87488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87488.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87490.jpgsave_picture_87490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87490.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87492.jpgsave_picture_87492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87492.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Windows 7 SP1 x32 x64 Combined Images By StartSoft v 18.4.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87493.jpgsave_picture_87493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87493.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Chaser / Chaser: Вспомнить все [Ru] (RePack) 2003 | Pilotus
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87495.jpgsave_picture_87495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87495.jpg" />
 </div>
 
 

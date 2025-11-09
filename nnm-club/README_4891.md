@@ -6,7 +6,7 @@ Supreme Unbeing - Enter Reality (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153070.jpgsave_picture_153070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153070.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Best HD Wallpapers Pack (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153071.jpgsave_picture_153071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153071.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CA3181D679DAEA568DDF38BEBADB9528D8AA0274
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153072.jpgsave_picture_153072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153072.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9CE80E98BBCDA1355BBED9F58AF69F8E7CA969AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153073.jpgsave_picture_153073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153073.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:9CE80E98BBCDA1355BBED9F58AF69F8E7CA969AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153074.jpgsave_picture_153074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153074.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ CCleaner Browser 77.1.1836.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153075.jpgsave_picture_153075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153075.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Telegram Desktop 2.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153076.jpgsave_picture_153076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153076.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153077.jpgsave_picture_153077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153077.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153078.jpgsave_picture_153078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153078.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153079.jpgsave_picture_153079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153079.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:0C83DC61B6E59515F95863ABAAE26A78184806D3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153080.jpgsave_picture_153080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153080.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A93294B608DC49A8BC64B4029F0FDEDA52645B4E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153082.jpgsave_picture_153082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153082.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:F4DB5F347D7C9C8236AA156D41B51EA2369BF23E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153084.jpgsave_picture_153084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153084.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153086.jpgsave_picture_153086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153086.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153087.jpgsave_picture_153087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153087.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpgsave_picture_153088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpgsave_picture_153089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153090.jpgsave_picture_153090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153090.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ DupeZap 4.1.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153091.jpgsave_picture_153091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153091.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:40BBB6AED107EA75AF827363D35344A624719AD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153093.jpgsave_picture_153093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153093.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:89A5E145297E0175D4B3C77E7EDC7BE5640CED80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153094.jpgsave_picture_153094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153094.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CoolUtils Total Mail Converter 4.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153096.jpgsave_picture_153096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153096.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B6C1DE71995512BDCEEBB7986AA20D30E1449335
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153097.jpgsave_picture_153097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153097.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8873ACAB8B786CDFD4A604978A9A5B1BD944CE60
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153098.jpgsave_picture_153098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153098.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:CF40169746C135BC1A94729F2DE5E54FE67719C8
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153099.jpgsave_picture_153099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153099.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Reap The Light - Deliver Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpgsave_picture_153100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpg" />
 </div>
 
 

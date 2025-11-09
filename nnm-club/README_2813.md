@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81061.jpgsave_picture_81061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81061.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81063.jpgsave_picture_81063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81063.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5D429A6D03869B7B3112F020184EDC1F70314DD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81068.jpgsave_picture_81068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81068.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81069.jpgsave_picture_81069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81069.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81072.jpgsave_picture_81072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81072.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Major League Baseball 2K12 (Lossless Repack) [En] 2012 | R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81073.jpgsave_picture_81073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81073.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81082.jpgsave_picture_81082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81082.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7120FB4136D9E559E3B4F7DA56C5BB4D72121D4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81083.jpgsave_picture_81083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81083.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Poker Night at The Inventory [En] (RePack) 2010 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81087.jpgsave_picture_81087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81087.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E382E60D85CDF98279EE6BF8B3747643DBC3C32B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81090.jpgsave_picture_81090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81090.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:6074341591C4D89C6D232EFF11125245D5F526BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81091.jpgsave_picture_81091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81091.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SR5 Rock Bass 1.01 [English]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81092.jpgsave_picture_81092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81092.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ SR5 Rock Bass - это ультра реалистично-звучащий ви
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81093.jpgsave_picture_81093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81093.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ SR5 Rock Bass - это ультра реалистично-звучащий ви
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81094.jpgsave_picture_81094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81094.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CE9134420BDF90E71D1749DB7E7F9EAF397CCB3B
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81096.jpgsave_picture_81096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81096.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ SSX (PS3) - современное переиздание одной из сам
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81098.jpgsave_picture_81098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81098.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:ECAF63881E37B351447E72FFEA70D565C52B1641
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81099.jpgsave_picture_81099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81099.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 Portable by Boomer [Мульти, Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81100.jpgsave_picture_81100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81100.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 Portable by Boomer [Мульти, Русс
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81101.jpgsave_picture_81101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81101.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:94E75099C20728FDBBF5F180ECB161790A244915
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81102.jpgsave_picture_81102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81102.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:F969A6BE08597C917282A60D0FA35D3CAEBBCB84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81103.jpgsave_picture_81103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81103.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81105.jpgsave_picture_81105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81105.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81110.jpgsave_picture_81110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81110.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81113.jpgsave_picture_81113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81113.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:42044F4F9890C9D34C5C6A44FD2EB1DC431950DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81118.jpgsave_picture_81118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81118.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Oxford Native VSTi v1.0 by AiR [English]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81119.jpgsave_picture_81119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81119.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117880.jpgsave_picture_117880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117880.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpgsave_picture_117881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpgsave_picture_117882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117883.jpgsave_picture_117883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117883.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:397662369CB540CED43AAED04CAEDA87259FA0EB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117884.jpgsave_picture_117884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117884.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Adobe Acrobat Reader 2023.008.20533.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117885.jpgsave_picture_117885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117885.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpgsave_picture_117886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117887.jpgsave_picture_117887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117887.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Clip Studio Paint EX 2.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117888.jpgsave_picture_117888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117888.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpgsave_picture_117889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117890.jpgsave_picture_117890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117890.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117891.jpgsave_picture_117891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117891.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:51F1C81D4DDA55B8C04CCC2220F7B9DEA0662901
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117892.jpgsave_picture_117892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117892.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 11 Pro 23H2 22631.3007 x64 by SanLex [Lightweight] [Ru/En] (2024.02.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117893.jpgsave_picture_117893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117893.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117894.jpgsave_picture_117894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2032.0 (11.02.2024) RePack
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117895.jpgsave_picture_117895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117895.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpgsave_picture_117896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BB8BC7B0BD18FDE7A3D197E14EB6E39E95DC960D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117897.jpgsave_picture_117897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117897.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpgsave_picture_117898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117899.jpgsave_picture_117899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117899.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:52884A64DC60846B5EC13FB767D7159B628CFA9E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117900.jpgsave_picture_117900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117900.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D3A8390FACDC2C08C421B992DB5CACCFC754619D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117901.jpgsave_picture_117901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117901.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:3ABF9ED035CF8C1B9CB285FC57A3E6C52F13133D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117902.jpgsave_picture_117902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117902.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3ABF9ED035CF8C1B9CB285FC57A3E6C52F13133D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117903.jpgsave_picture_117903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117903.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A462E30A2C6B1A1DB41324847E96E41950A2D935
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117904.jpgsave_picture_117904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117904.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:F4383C878B8AE914C74516F7B2630CE3430E6380
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117905.jpgsave_picture_117905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117905.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125556.jpgsave_picture_125556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE0463E4D36126F3498ABC2EC4E2E485892A5956
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125557.jpgsave_picture_125557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125558.jpgsave_picture_125558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125559.jpgsave_picture_125559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125559.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Albert King - 42 Albums (1962 - 2017) 59 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125560.jpgsave_picture_125560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125560.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpgsave_picture_125561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:5D71010A025DE3F9035DF233F528F3FB65D26706
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125562.jpgsave_picture_125562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125562.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:007DE646F1833170C58ECA7B2C2667A486B93773
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125563.jpgsave_picture_125563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125563.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:71B92EC21101FDE281D3EEC455E71D8733BCC734
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125564.jpgsave_picture_125564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125564.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:19E782B09E5C9CFAE6E5DE74163D2126AD80B9AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125565.jpgsave_picture_125565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125565.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Thread - Thread (1995) 2xCD, Reissue, Remastered, 2023, Escape Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpgsave_picture_125566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpgsave_picture_125567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125568.jpgsave_picture_125568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125568.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7A867034163B173C94A52A19E67F7DADD8BB0D02
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125569.jpgsave_picture_125569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125569.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:1FCDFB43D02F04322FBFE809A2490EDF174E7071
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125570.jpgsave_picture_125570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125570.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7CAF4D0279B94070E3B7AD778A306F4F6F2F73C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125571.jpgsave_picture_125571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125571.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6A36D678417CCB6053DD660718A440C45A1E9533
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125572.jpgsave_picture_125572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125572.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dan Ogus - Scattering The Christmas Roots 20-12-23 (2023) [AAC|192 Kbps] <Blues,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125573.jpgsave_picture_125573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125573.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:7684DE5A11B3AC6268629CA689B68A95F64A0D26
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125574.jpgsave_picture_125574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125574.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125575.jpgsave_picture_125575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125575.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125576.jpgsave_picture_125576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125576.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:448BE64B4781B9EC65EE200DF84C2940FFE3C77F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125577.jpgsave_picture_125577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125577.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Agnetha Faltskog - A+ (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125578.jpgsave_picture_125578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125578.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A78E863A1BF402B7504A0B4ECEAEE35B94061DD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125579.jpgsave_picture_125579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125579.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:CE118B73176F6E564A1715E4E97DAE51ECF41331
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125580.jpgsave_picture_125580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125580.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:938915A2FABD4A05FB249C9B297600BC92715AF6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpgsave_picture_125581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135633.jpgsave_picture_135633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135633.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135636.jpgsave_picture_135636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135636.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:2184D2637878A443D90CD1047E382DF07B95A4FE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135639.jpgsave_picture_135639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135639.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DADD27891E6AC6004E072431299CC7D3132DEF7C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135642.jpgsave_picture_135642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135642.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:6B607725EDE79932742726E8846B8EDDACAFFE5B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135646.jpgsave_picture_135646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135646.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:B9B1DEB9AB13871DBE9A80DB1EEE3799B427619E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpgsave_picture_135648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135649.jpgsave_picture_135649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135649.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135652.jpgsave_picture_135652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135652.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135655.jpgsave_picture_135655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135655.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135662.jpgsave_picture_135662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135662.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135665.jpgsave_picture_135665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135665.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpgsave_picture_135667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135672.jpgsave_picture_135672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135672.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135675.jpgsave_picture_135675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135675.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135676.jpgsave_picture_135676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135676.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpgsave_picture_135677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135679.jpgsave_picture_135679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135679.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpgsave_picture_135684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpgsave_picture_135688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135692.jpgsave_picture_135692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135692.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpgsave_picture_135696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135700.jpgsave_picture_135700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135700.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135704.jpgsave_picture_135704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135704.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135706.jpgsave_picture_135706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135706.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135709.jpgsave_picture_135709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135709.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135712.jpgsave_picture_135712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135712.jpg" />
 </div>
 
 

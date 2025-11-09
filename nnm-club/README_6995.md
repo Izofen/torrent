@@ -6,7 +6,7 @@ VueScan Pro 9.7.99 (17.04.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240031.jpgsave_picture_240031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E4687099EA9E4F6B23016894C6174BB6089B11C9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240032.jpgsave_picture_240032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Energy Voice - Best of Energy Voice (Expanded Edition, New Italo Disco Hits) (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240033.jpgsave_picture_240033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240033.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240034.jpgsave_picture_240034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240034.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E65AD7557A4F533C4356AC8EA3D21059CE62CEF0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240035.jpgsave_picture_240035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240035.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240036.jpgsave_picture_240036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240036.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Modern Jazz Sextet - 1956 (2000) Азбука Звука [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240037.jpgsave_picture_240037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240037.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9E6EA83FBA69B1CC9D18EABD106623B33ED34057
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240038.jpgsave_picture_240038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240038.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CBE651E6152641B91902E389CE1D59CA6B238EDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240039.jpgsave_picture_240039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240039.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:664A2E51D90A6F03BA3BECB312EA1A207E649354
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240040.jpgsave_picture_240040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240040.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E7E1F73B5EF39D39DB61CB52F162E513DBB9EC0C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240041.jpgsave_picture_240041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240041.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Stan Getz - 1946 - 1949 (2000) Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240042.jpgsave_picture_240042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240042.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6A6BF802AB5208C0C1EFB0EAF6C959359509378B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240043.jpgsave_picture_240043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240043.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ PDF Checkpoint 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240044.jpgsave_picture_240044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240044.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Maze of Sothoth - Extirpated Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240045.jpgsave_picture_240045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240045.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:F9CF6EA66C5A9189395C5EDBB5A7FE39F1C93086
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240046.jpgsave_picture_240046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240046.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PhotoResizerOK 2.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240047.jpgsave_picture_240047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240047.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:08EEE33BCF4069AAE444868C0FD624A0EC15D9CB
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240048.jpgsave_picture_240048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240048.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:7A90352C05A500273F312A09BC4E8D1B891D61E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240049.jpgsave_picture_240049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240049.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:1D7AE7F7EE7112858A1E2ADFD1CAEE27721E5DA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240050.jpgsave_picture_240050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240050.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:23A63B007B0BBB5FB4AD721612B9558124287060
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240051.jpgsave_picture_240051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240051.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240052.jpgsave_picture_240052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240052.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FanControl V159 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240053.jpgsave_picture_240053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240053.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2BCC2C1034F9ABE9644B044D03E84E86BBBC37DE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240054.jpgsave_picture_240054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240054.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:F010D4FDB8C529AA77BA724FFEAF2A12FB420677
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240055.jpgsave_picture_240055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240055.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AnyTrans for iOS 8.8.0.20201009 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240056.jpgsave_picture_240056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240056.jpg" />
 </div>
 
 

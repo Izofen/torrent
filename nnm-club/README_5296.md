@@ -6,7 +6,7 @@ Valentina Studio Pro 11.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164505.jpgsave_picture_164505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Atlanta - Nugrybauti (2020) [MP3|320 Kbps] <Psychedelic Rock, Prog Rock, Jam Ban
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164506.jpgsave_picture_164506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164506.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:563F2B643A2E8B7252C74C65E6A968CB4C3447F6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164507.jpgsave_picture_164507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164507.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Any RecScreen 2.0.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164508.jpgsave_picture_164508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164508.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5922812672832984D6099846B2B3864C1021465F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164510.jpgsave_picture_164510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164510.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Smooze 1.9.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164511.jpgsave_picture_164511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164511.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ ImageRanger Pro Edition 1.7.8.1685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164512.jpgsave_picture_164512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164512.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - ОДНАЖДЫ В ЛАТВИИ Песни А.Мирского и С.Нем�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164513.jpgsave_picture_164513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164513.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164514.jpgsave_picture_164514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164514.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Super PhotoCut Pro 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164515.jpgsave_picture_164515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164515.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1AA1E788D3919BD12EBE0A6F415A7B7546A4924A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164516.jpgsave_picture_164516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164516.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Hype 4 Pro v4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164517.jpgsave_picture_164517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164517.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Chillout King Ibiza: Club Del Mar (2015) [AAC|~342 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164518.jpgsave_picture_164518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164518.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ PhotoDirector - Редактор фото 18.7.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164519.jpgsave_picture_164519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164519.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164520.jpgsave_picture_164520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164520.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164521.jpgsave_picture_164521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164521.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C39A2CA7193C171E5FEA1685FC56062A62A91E6C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164522.jpgsave_picture_164522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164522.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ High-Logic FontCreator Professional 15.0.0.2948 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164523.jpgsave_picture_164523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164523.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AudioSwitcher 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164524.jpgsave_picture_164524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164524.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Wattagio 1.12.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164525.jpgsave_picture_164525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164525.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164526.jpgsave_picture_164526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164526.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Hi Games Vol.3 (Chiptune, Dubstep, Breaks Edition) (2019) [MP3|320 Kbps] <C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164527.jpgsave_picture_164527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164527.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CorelDRAW Technical Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164528.jpgsave_picture_164528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164528.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Disk Xray 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164529.jpgsave_picture_164529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164529.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Chillout King Ibiza: The Relax Smoothie (2016) [AAC|~326 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164530.jpgsave_picture_164530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164530.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ System Dashboard Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164531.jpgsave_picture_164531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164531.jpg" />
 </div>
 
 

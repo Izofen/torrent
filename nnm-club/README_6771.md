@@ -6,7 +6,7 @@ VA - Running - Retro Rock Mix - You Can Do This! (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233064.jpgsave_picture_233064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233064.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Count Basie & Joe Williams - The Greatest!! Count Basie Plays... Joe Williams Si
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233065.jpgsave_picture_233065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233065.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:DB864FA58E6D628796F5B60F6A169B4A91249B4C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233069.jpgsave_picture_233069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233069.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233070.jpgsave_picture_233070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233070.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Livin'Evil - Prayers and Torments (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233072.jpgsave_picture_233072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233072.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Trance Emotions Vol. 11 (Best Of EDM Playlist Compilation 2023) (2023) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233074.jpgsave_picture_233074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233074.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dolloster - New Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233075.jpgsave_picture_233075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233075.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CleanShot X 4.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233077.jpgsave_picture_233077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233077.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:643E9E3CC5541670F18A11317A3FD0BFFBA1103C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233079.jpgsave_picture_233079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233079.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser 115.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233082.jpgsave_picture_233082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233082.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:777BD0C3AB9DE3101C453DCF240CF91A7E1E94B1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233083.jpgsave_picture_233083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233083.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Critical Pint - Thirst of All (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233085.jpgsave_picture_233085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233085.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:E4F632D3CE6228AB9F3A776DA33DB1FB6D1514E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233086.jpgsave_picture_233086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233086.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Roberto Tola - Under The Leo Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Smoonth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233087.jpgsave_picture_233087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233087.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:0DD43D21B505870B40AC51C784FD695A59B99E6F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233088.jpgsave_picture_233088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233088.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:ADA1500413DF8111F40C265E74CC7CB081C65587
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233090.jpgsave_picture_233090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233090.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:8CD7F66BFA3DE3F56065EF58BB40D180C7284268
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233092.jpgsave_picture_233092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233092.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233096.jpgsave_picture_233096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233096.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Bloodbound - Tales From The North (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233097.jpgsave_picture_233097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233097.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3521631A05D03A014FEF5D049A7FA4A92B0EFA3C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233099.jpgsave_picture_233099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233099.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:549C1C8AA270CA8F2CFF5085B0DAAF033A763E1A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233100.jpgsave_picture_233100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233100.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:EFEC3EE907A18F9EC43F97C54C196457DFC4CB52
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233103.jpgsave_picture_233103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233103.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:66C4D68553AAE837B056F418B264DE8568C97363
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233104.jpgsave_picture_233104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233104.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Rob Zinn - Anything Can Happen (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233105.jpgsave_picture_233105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233105.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Christopher Romberg - Stanna hos mig! (1992) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233106.jpgsave_picture_233106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233106.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Wondershare PDFelement 9.5.12.2329 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233109.jpgsave_picture_233109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233109.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35585.jpgsave_picture_35585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C198D2E02CDCADE02E0C8D1F2685D9114A4DFAB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35586.jpgsave_picture_35586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E61F10D5F6047D0549E2B9432DFE0AF720410C32
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35587.jpgsave_picture_35587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35587.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 10 Pro 22H2 19045.5131 x64 by SanLex [Lightweight] [Ru/En] (2024.12.01)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35588.jpgsave_picture_35588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35588.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B56E2FA0F61189C9E224D37053F1564D169BAD1F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35589.jpgsave_picture_35589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35589.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D568FFFA4FFF8A3A6035953B5ACC4653BCECFED9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35590.jpgsave_picture_35590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35590.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:4D2D3CC76FCFCA35D82F6E438531B852C8B9FD8D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35591.jpgsave_picture_35591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35591.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1A8CFB7BA5D1E69B883C8487B6D5BC42D591B4BF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35592.jpgsave_picture_35592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35592.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ WinPE 11-10 Sergei Strelec (x64) 2024.11.27 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35593.jpgsave_picture_35593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35593.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK (24.11.2024) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35594.jpgsave_picture_35594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35594.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:F74FCD28A1FCE573D3AEDC730D75E8DA2DE92B61
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35595.jpgsave_picture_35595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35595.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35596.jpgsave_picture_35596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35596.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ CMWTAT Digital Edition 2.7.2.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35597.jpgsave_picture_35597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35597.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:CA3F0E6725D760ECDF74D0189FDBC74A0ACF1389
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35598.jpgsave_picture_35598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35598.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D78A3964843AE3C0091765D8B9A7A63E9422F89A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35599.jpgsave_picture_35599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35599.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D6B9081B5692DF001DAB54726CBAAAD1CA45404A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35600.jpgsave_picture_35600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35600.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:EFA72FB16B70FD859F2CB5B219E764C20992F163
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35601.jpgsave_picture_35601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35601.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:44EA1588E85E2D62B14329CAEF04CA18F73F82DF
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpgsave_picture_35602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35603.jpgsave_picture_35603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35603.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35604.jpgsave_picture_35604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35604.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Joanne Shaw Taylor - 11 Albums (2009 - 2024) [FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35605.jpgsave_picture_35605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35605.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Office Tab Enterprise 16.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35606.jpgsave_picture_35606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35606.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35607.jpgsave_picture_35607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35607.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Fren
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35608.jpgsave_picture_35608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35608.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35609.jpgsave_picture_35609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35609.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35610.jpgsave_picture_35610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35610.jpg" />
 </div>
 
 

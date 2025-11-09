@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143258.jpgsave_picture_143258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143258.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143259.jpgsave_picture_143259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C652F79415293745E6B2AAEC004BC89471D291A1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143260.jpgsave_picture_143260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143260.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:D043DD427479152FCDCCC83A989865CB9E8612CD
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143261.jpgsave_picture_143261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143261.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:80D08BAFF276E298902B0215A3C056BB9E4A150B
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143262.jpgsave_picture_143262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143262.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:4FE19879DB4D82D6AFEFF6BEA7DDEA144B4D3CB1
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143263.jpgsave_picture_143263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143263.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:8490D7084F58F4940DDB7BA7101D19C0E3B5AE1B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143264.jpgsave_picture_143264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143264.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:FCF5FA71E9BD2A300D953BA22EBE90FBF492C52A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143265.jpgsave_picture_143265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143265.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143266.jpgsave_picture_143266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143266.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Be
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143267.jpgsave_picture_143267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143267.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Ashampoo WinOptimizer 26.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143268.jpgsave_picture_143268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143268.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:47E86140DC083DCCFD8FBFA9837AA65262A76502
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143269.jpgsave_picture_143269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143269.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143270.jpgsave_picture_143270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143270.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143272.jpgsave_picture_143272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143272.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:7621A01687DE592137D4DB27AE4621112F681E45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143273.jpgsave_picture_143273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143273.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:70F19252DFFBF81E5738ECAECC0AE22CD352AF4D
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143275.jpgsave_picture_143275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143275.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:C01E98CB9877B2BB1D86010B1015AB4126349864
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143276.jpgsave_picture_143276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143276.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Coolmuster Word to PDF Converter 2.1.7 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143277.jpgsave_picture_143277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143277.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6FB5ADC7245248D5975CB88EDAC7A5B6EE3A3460
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143280.jpgsave_picture_143280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143280.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:DD25D001DF45ED255E4BE94A6F523855A98AD7BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143281.jpgsave_picture_143281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143281.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143282.jpgsave_picture_143282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143282.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:DC393814DFF22D7FB9F91D9FBBB2FF11E6589192
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143285.jpgsave_picture_143285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143285.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Coolmuster PDF Creator Pro 2.1.20 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143286.jpgsave_picture_143286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143286.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143289.jpgsave_picture_143289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143289.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:217EED0266167836F0F4196BEA9F5B6A98B4DF30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143290.jpgsave_picture_143290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143290.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:3E9ABC1939C5EE77AEA5C4248A6FE339F153624D
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143291.jpgsave_picture_143291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143291.jpg" />
 </div>
 
 

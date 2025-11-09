@@ -6,7 +6,7 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6344.jpgsave_picture_6344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6344.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:223AB30C7383720810604654EE01E7D063C4C767
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6345.jpgsave_picture_6345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6345.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7EEBAE910812106A547A020967A55DF77FC3FDEB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6346.jpgsave_picture_6346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6346.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FAA2D821F3CB9848CA0B50C311443A4702C343D7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6347.jpgsave_picture_6347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6347.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C704A4033DEAC33423ACFDDC9786940C9A50A3A9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6348.jpgsave_picture_6348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6348.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ priPrinter Professional 7.0.0.2591 Beta RePack by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6349.jpgsave_picture_6349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6349.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DE84E4E11E516FBC96C02931172C69F968924C5F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6350.jpgsave_picture_6350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6350.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Photo Studio Simulator (2025) [Ru/Multi] (0.98) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6351.jpgsave_picture_6351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6351.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Malwarebytes AdwCleaner 8.6.0.613 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6352.jpgsave_picture_6352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6352.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B1F2C698A158E9425BD58724CA34163D4E3BC846
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6353.jpgsave_picture_6353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6353.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9B9226562193B1182A55187D94748F3CDD1064B7
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6354.jpgsave_picture_6354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6354.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7FBBAD5E66D15B7DEA5478F19AC463C070EEF189
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6355.jpgsave_picture_6355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6355.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B34A0516DCA62E752B48F1DB1315FD896E51792B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6356.jpgsave_picture_6356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6356.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 20.08.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6357.jpgsave_picture_6357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6357.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TwinMe - конфиденциальный мессенджер 30.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6358.jpgsave_picture_6358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6358.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6359.jpgsave_picture_6359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6359.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6360.jpgsave_picture_6360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6360.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6361.jpgsave_picture_6361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6361.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:EA02714451F80BFBFDE42934EFC026986BD90D39
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6362.jpgsave_picture_6362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6362.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:CBD077B365DFA5299F474E66A12B22E0D63981DA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6363.jpgsave_picture_6363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6363.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:5358DD2E0B0A45F707B7B2238F7F2A971464CA3F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6364.jpgsave_picture_6364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6364.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:72310FD3C468C282AA112D611E09EFAB6C9C0C94
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6365.jpgsave_picture_6365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6365.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) Repack Let'sРlay [Deluxe Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6366.jpgsave_picture_6366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6366.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpgsave_picture_6367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:1A82A1540DC5E02CB8C0930D0898A163112A12D0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6368.jpgsave_picture_6368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6368.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:DF77D2E667C6D5C05CD1C0DF2066891BCABBE38A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6369.jpgsave_picture_6369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6369.jpg" />
 </div>
 
 

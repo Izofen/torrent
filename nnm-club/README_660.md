@@ -6,7 +6,7 @@ VA - Musical kaleidoscope part 48 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17479.jpgsave_picture_17479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17479.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Compilation Part 179 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17480.jpgsave_picture_17480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17480.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Compilation Part 180 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17481.jpgsave_picture_17481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17481.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:593E5664626E4806F4DB9A90E2CD1A5F7F7D9CBC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17482.jpgsave_picture_17482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17482.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F2662381052281B1F464FD7570D478F18401AB0D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17483.jpgsave_picture_17483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17483.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:B4D9203D9D52577721B75D3331F6CDAA608C46C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17484.jpgsave_picture_17484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17484.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B4D9203D9D52577721B75D3331F6CDAA608C46C7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17485.jpgsave_picture_17485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17485.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:75F7DB0DF1D563CDAFC309521BE51993B39BEECF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17486.jpgsave_picture_17486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17486.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9A96832DF956E8FB12FBA0E37AAE45DEB78D43EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17487.jpgsave_picture_17487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17487.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7DA2DD508BD59D8D70FE6779A6FFD46F7FE05439
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17488.jpgsave_picture_17488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17488.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:51FCD06514A555D81E160D20A60B14AC3763C825
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17489.jpgsave_picture_17489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17489.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:956853EC8EB55791F04B40C60C54F02DBD9F63C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17490.jpgsave_picture_17490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17490.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:956853EC8EB55791F04B40C60C54F02DBD9F63C9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17491.jpgsave_picture_17491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17491.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:3D62A13C0412ACDBB7071EE198ACBEDEBA7BF9A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17492.jpgsave_picture_17492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17492.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Wondershare Filmora 14.5.18.12900 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17493.jpgsave_picture_17493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17493.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:2C12BEBE76791EB4A1A1D6E186F8229697E2DC12
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17494.jpgsave_picture_17494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17494.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.5854 (Updated May 2025) by FaTaL [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17495.jpgsave_picture_17495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17495.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:89D0A6A032D93475B509A51D95C084A34ACE4B00
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17496.jpgsave_picture_17496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17496.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6AE000075662FC57ED801A5ABE8702820022218F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17497.jpgsave_picture_17497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17497.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6AE000075662FC57ED801A5ABE8702820022218F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17498.jpgsave_picture_17498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17498.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:ABE48EFF5F33D25115EF4582D8DB5ED2EFB7A80D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17499.jpgsave_picture_17499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17499.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:20F829CE6F206225E416E7DC4E66B4B8A0C4EBE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17500.jpgsave_picture_17500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17500.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:78ABCA3425FD41C70DA2866F2E4960D887D5FA60
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17501.jpgsave_picture_17501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17501.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Windows 11 PRO 24H2 26100.4061 Update 15 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17502.jpgsave_picture_17502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17502.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Stellar Silence - Reditus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17503.jpgsave_picture_17503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17503.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ D16 Group - Lush 2 2.1.5 VSTi, VSTi 3, AAX (x86/x64) RePack by TCD (Rev.1) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17504.jpgsave_picture_17504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17504.jpg" />
 </div>
 
 

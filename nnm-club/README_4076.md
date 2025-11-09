@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126551.jpgsave_picture_126551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1BDE382BF101E5D1F946D4F75091EEF53FB099B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126552.jpgsave_picture_126552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126552.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:51A4219B4160113A04238939AA72244B4D10757F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126553.jpgsave_picture_126553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126553.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BCB721F879B379E4767BD9E3746D0A772581421C
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126554.jpgsave_picture_126554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126554.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B0DA2A9061F9AAEFDE3C07FF8DB4AD2C91D30ABC
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126555.jpgsave_picture_126555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126555.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Udemy, Иван Петриченко | Полный курс по совреме
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126556.jpgsave_picture_126556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126556.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126557.jpgsave_picture_126557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126557.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5DB4AD1019302903FE052CAE67F2AD7236F86DAE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126558.jpgsave_picture_126558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126558.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 12.2023 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126559.jpgsave_picture_126559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126559.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:50D0E86C6EA59D8B817B24BAE97CC85E634EDB03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126560.jpgsave_picture_126560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126560.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:33F0CC48D9D08EC15DB858C817A4087645A7866B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126561.jpgsave_picture_126561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126561.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:428EB8AE8AEFC7F21119820249D2D93945ECEC5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126562.jpgsave_picture_126562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126562.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126563.jpgsave_picture_126563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126563.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:085D9142B773BC7513C2174CB469DBBF6A71E5F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126564.jpgsave_picture_126564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126564.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:C8A0CF5BB96AED9FC967587086443A70297A0985
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126565.jpgsave_picture_126565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126565.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:C8A0CF5BB96AED9FC967587086443A70297A0985
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126566.jpgsave_picture_126566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126566.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:48BC9EE28396B46CE7278EAD2DC3456998EB5049
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126567.jpgsave_picture_126567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126567.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:B76E03DCC81CDB815FF022A0D0E834551F2F9438
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126568.jpgsave_picture_126568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126568.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:5427E01787DE16E121374B270FAEE9122C8DAA98
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126569.jpgsave_picture_126569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126569.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126570.jpgsave_picture_126570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126571.jpgsave_picture_126571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126571.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpgsave_picture_126572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126573.jpgsave_picture_126573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126573.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E2C069D979F1880DFB74DA39B5309A6160100807
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126574.jpgsave_picture_126574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126574.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2DDD9D8A9D06F203180BED8C614438010DB55819
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126575.jpgsave_picture_126575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126575.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpgsave_picture_126576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpg" />
 </div>
 
 

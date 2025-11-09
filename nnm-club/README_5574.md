@@ -6,7 +6,7 @@ Zoner Photo Studio X 19.2309.2.501 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171912.jpgsave_picture_171912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171912.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:232D59AE581AE369839C576CB1CE9BD44630311B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171913.jpgsave_picture_171913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171913.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:81B20752CC402916B609CF955D40B5104BFC6B0C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171914.jpgsave_picture_171914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171914.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E3A418FC554778FD4B669E5F2F81324C7E7F7B99
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171915.jpgsave_picture_171915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171915.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B8F0E0C4587E952753D1620709AB137A15F70342
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171916.jpgsave_picture_171916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171916.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9D1D2D485802E39659E7DA5EA479DAD2DC467F0F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171917.jpgsave_picture_171917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171917.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:906870C653E73BFA7D82E61B0C51C2EA8879E822
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171918.jpgsave_picture_171918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171918.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6DE6BAB5B4ED6F0A0577C42CD2C61E1D81942A75
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171919.jpgsave_picture_171919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171919.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171920.jpgsave_picture_171920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171920.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Kardang - Rizky Biznizz (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171921.jpgsave_picture_171921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171921.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B35BC2E8733743B6CD36D1D87F7284EEDFA930AA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171922.jpgsave_picture_171922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171922.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:A2383A3AB008BFC2621471CF72D046F20F50FDF1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171923.jpgsave_picture_171923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171923.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Rival Sons - Lightbringer (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171924.jpgsave_picture_171924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171924.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MotoGP. Этап 16. Гран-при Австралии. Гонка (21.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171925.jpgsave_picture_171925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171925.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Savage - Glory Riders (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171926.jpgsave_picture_171926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171926.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:8C89729F0D3E0B3F51208D0302ED86E9DADAEBDE
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171927.jpgsave_picture_171927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171927.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ MotoGP. Этап 16. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171928.jpgsave_picture_171928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171928.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lazy Bonez - Eye of the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171929.jpgsave_picture_171929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171929.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:477A19C1C3CBF3CC206CA72A4DC4D58EF928C627
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171930.jpgsave_picture_171930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171930.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Trimma for Mac 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171931.jpgsave_picture_171931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171931.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:80F76E5D49C477E8F7D566E9720AE8C85613DD29
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171932.jpgsave_picture_171932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171932.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:7AF6C607B52E966F4C9CFACABB0D0679678C157C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171933.jpgsave_picture_171933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171933.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ High-Logic FontCreator Professional 15.0.0.2943 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171934.jpgsave_picture_171934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171934.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2D4E689723765876CB06D3C059B83A672452B6AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171935.jpgsave_picture_171935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171935.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171936.jpgsave_picture_171936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171936.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Lycania - My Kingdom Come (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171937.jpgsave_picture_171937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171937.jpg" />
 </div>
 
 

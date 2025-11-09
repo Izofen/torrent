@@ -6,7 +6,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164084.jpgsave_picture_164084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164085.jpgsave_picture_164085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164085.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164087.jpgsave_picture_164087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164087.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164088.jpgsave_picture_164088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164088.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164089.jpgsave_picture_164089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164089.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BDB02D11849DE22AE18561416FC481E5634F318C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164091.jpgsave_picture_164091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164091.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164092.jpgsave_picture_164092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164093.jpgsave_picture_164093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164094.jpgsave_picture_164094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164094.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DEA3F5F3D14C8FDB67AE4AA5C01BDB41C7B8F293
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164095.jpgsave_picture_164095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164095.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E9A1C7913ED8BF4319B2EB9F832D3169FC8AACA9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164096.jpgsave_picture_164096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164096.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:CF186431D959DE3FC77557AFFC45700968103287
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164097.jpgsave_picture_164097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164097.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:B26D43B8C9927C50389064D450C93DF90AC17F3E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164098.jpgsave_picture_164098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164098.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5C2FFA8683857581CD30DE438A22A7F265346FBA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164099.jpgsave_picture_164099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164099.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Truecaller: определитель номера и запись звонков
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164100.jpgsave_picture_164100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164100.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:EB3151F365CAACD76A869BD274C8FDCF2F84C90D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164101.jpgsave_picture_164101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164101.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:70AE1BA4223DF2EE221C98A1234BCF424B61E2C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164102.jpgsave_picture_164102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164102.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164103.jpgsave_picture_164103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164103.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164104.jpgsave_picture_164104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164104.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Till Lindemann - Zunge (2023) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164105.jpgsave_picture_164105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164105.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ OCCT 7.2.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164106.jpgsave_picture_164106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164106.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:85F96EE0A8F65907C6BA56E708AF8B42D2D7107A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164107.jpgsave_picture_164107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164107.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:ACD9F909564E9575491633DBFA2A20A53348DB81
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164108.jpgsave_picture_164108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164108.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Total Commander 11.01 (01.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164109.jpgsave_picture_164109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164109.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:5FB06F9AD8BBC5E4AEC3A13A4B858B048928EFFD
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164110.jpgsave_picture_164110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164110.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:14B04823B7481962B2D88C9B219F77DC3F1BAFA4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164111.jpgsave_picture_164111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164111.jpg" />
 </div>
 
 

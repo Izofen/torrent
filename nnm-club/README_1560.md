@@ -6,7 +6,7 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40916.jpgsave_picture_40916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40916.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04E33FD5408B9C787E4CB02AEE8EB7E60404B27E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40917.jpgsave_picture_40917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40917.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40918.jpgsave_picture_40918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40918.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40919.jpgsave_picture_40919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40919.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F3C69D19ED246EE622BA80C35BE9ADB01CCD0CF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40920.jpgsave_picture_40920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40920.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:43AE17F478355AD1CC97B745D132B9AFCC172ACB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40921.jpgsave_picture_40921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40921.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BCC8C04BC733C604571682CD1787814FE9B7C38F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40922.jpgsave_picture_40922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40922.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:68A10E1132F4A4FDBDFD1A0022144FA4549EF48D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40923.jpgsave_picture_40923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40923.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7C299A353A36C1822FDDEADE03A89FC20B076C83
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40924.jpgsave_picture_40924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40924.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40925.jpgsave_picture_40925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40925.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40926.jpgsave_picture_40926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40926.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:832185861F7A86C4A07A0C8742EA8ED8DD860040
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40927.jpgsave_picture_40927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40927.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7A986CAABEBA1EAF54FE37882084FFA312AC1A87
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40928.jpgsave_picture_40928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40928.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:BDA9B5C1364C5758E964E367D7DA5EC471454A56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40929.jpgsave_picture_40929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40929.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1CB2F02826FC9D1E97ED8A9AF01EA68E234DC889
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40930.jpgsave_picture_40930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40930.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C26CD4797F53BA888D264218A9363D9E409B5873
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40931.jpgsave_picture_40931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40931.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FA6CC1CF9571A187BBD29224DC62C82846F0194D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40932.jpgsave_picture_40932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40932.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:5B995A819522279BDAB3B0EE6BBA39496377AAAC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40933.jpgsave_picture_40933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40933.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40934.jpgsave_picture_40934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40934.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4C33F509BD548DAE352E81F5D3253C4B8F38B992
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40935.jpgsave_picture_40935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40935.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:7929A6DC843C3A13223C590DC930635C0122BDEB
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40936.jpgsave_picture_40936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40936.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Microsoft выпустила Windows 11 25H2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40937.jpgsave_picture_40937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40937.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Microsoft наконец-то официально выпустила верси
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40938.jpgsave_picture_40938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40938.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft наконец-то официально выпустила верси
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40939.jpgsave_picture_40939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40939.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Microsoft наконец-то официально выпустила верси
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40940.jpgsave_picture_40940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40940.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B76CC3C5A2A8D65D42D247FDB85D12E6439001A0
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40941.jpgsave_picture_40941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40941.jpg" />
 </div>
 
 

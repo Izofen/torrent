@@ -6,7 +6,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpgsave_picture_56293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56293.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:66863D9E8BF8C355DEAAD256F599CDC25801D378
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56294.jpgsave_picture_56294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56294.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:938C7A9DFA5DC374D22458EEE66E6ED999292103
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56295.jpgsave_picture_56295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56295.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BC2E44EB004E196E6F5F4D1E70DBBDFA63DA403A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56296.jpgsave_picture_56296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56296.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ WinRAR 7.01 RePack (& Portable) by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56297.jpgsave_picture_56297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56297.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56298.jpgsave_picture_56298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56298.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:222605C4F2E70A37FC2DF7D32AD5E20399B19078
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56299.jpgsave_picture_56299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56299.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3FF2AECD5BED0A662DFEFE822DD66A83D4CCDF09
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56300.jpgsave_picture_56300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56300.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ WinRAR 7.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56301.jpgsave_picture_56301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56301.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpgsave_picture_56302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56302.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:ACF5C11C1331C72509F7768A0EF4584D4FFD21C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56303.jpgsave_picture_56303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56303.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:5CBE39BCF5D6997AF4C26C5653CC25D77F258EE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56304.jpgsave_picture_56304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56304.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ vpnify - Безлимитный VPN 2.1.9.4 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56305.jpgsave_picture_56305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56305.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Astral Ascent (2023) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56306.jpgsave_picture_56306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56306.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1B428E0D630994113795D550FBC0822A5E115F78
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56307.jpgsave_picture_56307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56307.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Windows Firewall Control 6.11.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56308.jpgsave_picture_56308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56308.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:914E44F63D5E53C0DC58DF3FD1F7B9FB6F5C6AFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56309.jpgsave_picture_56309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56309.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4412 (Updated May 2024) by FaTaL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56310.jpgsave_picture_56310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56310.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpgsave_picture_56311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56311.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E31956215E9B8BAA6CA2CDDE72C315B6CAA48D81
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56312.jpgsave_picture_56312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56312.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Oracle Linux 9.4 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56313.jpgsave_picture_56313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56313.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56314.jpgsave_picture_56314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56314.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:BF53DBDE2E8E0E8B5003302F0AE69D8D08286398
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56315.jpgsave_picture_56315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56315.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:87667AA355DCA0ED3B7014CCF701CF20744C8F2D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56316.jpgsave_picture_56316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56316.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:3A7FD37849D62D87D8F308858225CE1E9C7F83EB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56317.jpgsave_picture_56317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56317.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Linux для дома 22.21 [DX12] [Mint 21] [amd64] 1xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56318.jpgsave_picture_56318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56318.jpg" />
 </div>
 
 

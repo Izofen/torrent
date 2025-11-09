@@ -6,7 +6,7 @@ Gilrs Wallpaper Collection (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136015.jpgsave_picture_136015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sexy Girls Pack Wallpapers (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136016.jpgsave_picture_136016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136016.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sexy Girls Wallpapers (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136017.jpgsave_picture_136017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136017.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Desktop Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136019.jpgsave_picture_136019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136019.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D83BCA28C8836ED509717EA9BC3FC4543FCFB569
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136026.jpgsave_picture_136026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136026.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Class
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136027.jpgsave_picture_136027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136027.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136029.jpgsave_picture_136029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136029.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:E93D62F8D74BB1D0E9033044A340AC6FD0281EE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136030.jpgsave_picture_136030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136030.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Oddworld Stranger's Wrath HD [Ru/En/Multi10] (L) 2012 | GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136032.jpgsave_picture_136032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136032.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Ballance / Баланс [Ru/En] (P) 2004
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136036.jpgsave_picture_136036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136036.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:F15BE1C8FE717604B94573B6729E34C1AE641D43
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136037.jpgsave_picture_136037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136037.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:557D622BB7952F0A25ABD85511C2C14806BDBF8D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136044.jpgsave_picture_136044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136044.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:6A8A40507E7832026F91FD5C2DAC9F9DC2C12442
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136049.jpgsave_picture_136049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136049.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:7EF57F2AE78D5C01B282206D8E1F96E22B7FF12F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136051.jpgsave_picture_136051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136051.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136052.jpgsave_picture_136052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136052.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:29C2C4362CF13AA6A7539A08AE2589B69F1187CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136054.jpgsave_picture_136054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136054.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:D74C80A772AFCE138CC220E4D079AB50A79FAF4C
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136055.jpgsave_picture_136055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136055.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:28E8E49CE3C8AEA13F01FFB1BB66D651370B0541
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136057.jpgsave_picture_136057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136057.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:98CC713E94040B0D5563B9EDC09589405EAA36DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136058.jpgsave_picture_136058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136058.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:4FC7440A78281E1E7193474DA420C202D99EA6A4
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136061.jpgsave_picture_136061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136061.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FD0AA3D85A036BFA5B4F5B85BD62783F015A5C76
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136063.jpgsave_picture_136063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136063.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Berlitz | Греческий язык. Базовый курс [PDF + MP3] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136064.jpgsave_picture_136064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136064.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1BCDB54359216D5F6BE497B1078DE8773329F5A7
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136066.jpgsave_picture_136066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136066.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Goethe Verlag | Book2. Аудиокурс испанского языка [2011]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136071.jpgsave_picture_136071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136071.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:788850B61B65AB870633722306CB08512F5B697B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136075.jpgsave_picture_136075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136075.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:FE7250FE0F987D58E6A86FA9FEF127DCE68303BD
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136079.jpgsave_picture_136079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136079.jpg" />
 </div>
 
 

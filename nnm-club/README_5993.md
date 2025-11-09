@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188603.jpgsave_picture_188603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ White Dragon Project - The Story Of Gaia (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188605.jpgsave_picture_188605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:291302E5FF5139034609334574B3D196D76A8BE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188606.jpgsave_picture_188606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188606.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MediaInfo for Mac 23.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188608.jpgsave_picture_188608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188608.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adiant - Killing Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188609.jpgsave_picture_188609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188609.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ File List Export 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188610.jpgsave_picture_188610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188610.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Acroma - Burning Creation (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188611.jpgsave_picture_188611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188611.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Adaimon - World of Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188612.jpgsave_picture_188612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188612.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Text Workflow 1.6.6  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188613.jpgsave_picture_188613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188613.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:92BDFD45D739739289EBCB3367CD80FABDBE1A36
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188614.jpgsave_picture_188614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188614.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Nixil - All Knots Untied (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188615.jpgsave_picture_188615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188615.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Advent of Fire - Verikaste (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188616.jpgsave_picture_188616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188616.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:0CC6766D55F854F79DC2051E3E9526E9319ADFD0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188617.jpgsave_picture_188617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188617.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Windows 10 22H2 (19045.2251) x64 (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188618.jpgsave_picture_188618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188618.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188619.jpgsave_picture_188619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188619.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:62CFB07321341F329793EC8A310B16F20D973456
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188620.jpgsave_picture_188620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188620.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ WinPaletter v1.0.6.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188622.jpgsave_picture_188622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188622.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E223E7293DD661E39EC92037504576DF2387562E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188624.jpgsave_picture_188624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188624.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E124A9EAD0834A1B646E2FE760F843D318774E50
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188625.jpgsave_picture_188625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188625.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E2036B962CE4662C67C171377F31CC99F1F70A90
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188626.jpgsave_picture_188626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188626.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:8532B28EF25A914C7DF29B8E9E82F713426104BF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188627.jpgsave_picture_188627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188627.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:8532B28EF25A914C7DF29B8E9E82F713426104BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188628.jpgsave_picture_188628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188628.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:B40913CAFCEAC5AC0FEB1B2F93B905CD59CA4648
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188629.jpgsave_picture_188629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188629.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188630.jpgsave_picture_188630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188630.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:EC1EE78A26B642315423ECF74ED2D3DF6EC1F0D3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188632.jpgsave_picture_188632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188632.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:63A090A0F1E6FFC5C233C6EBA15B78FC6BD6CC01
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188634.jpgsave_picture_188634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188634.jpg" />
 </div>
 
 

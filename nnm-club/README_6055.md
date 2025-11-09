@@ -6,7 +6,7 @@ Sodomisery - Mazzaroth (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190689.jpgsave_picture_190689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190689.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fire Down Below - 3 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190691.jpgsave_picture_190691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190691.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ GraveRipper - Seasons Dreaming Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190694.jpgsave_picture_190694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190694.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mimestream 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190696.jpgsave_picture_190696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190696.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Egokills - Egokills (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190697.jpgsave_picture_190697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190697.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Seinaru Sekai - Fragile Little World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190700.jpgsave_picture_190700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190700.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Spillage - Phase Four (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, Heavy, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190702.jpgsave_picture_190702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190702.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Lowdrive - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190703.jpgsave_picture_190703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190703.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ WhatsApp 2.2326.10 Portable by OvArt 09.2023 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190707.jpgsave_picture_190707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190707.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:DC35782FBF4E341C2BDEC78DE6901D6B8DFA8C27
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190709.jpgsave_picture_190709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190709.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:37E3C0F3F01345C0118958AD662AEB3337B3F971
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190713.jpgsave_picture_190713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190713.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190715.jpgsave_picture_190715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190715.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190718.jpgsave_picture_190718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190718.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ uTorrent Pro 3.6.0 Build 46896 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190719.jpgsave_picture_190719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190719.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:9C80095526B1CD9700B43664D904E27FC3911EB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190724.jpgsave_picture_190724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190724.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:0E3D7F028766B502E3942E81C8B280A4374840ED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190725.jpgsave_picture_190725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190725.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:78A16201297BAC36D19E157FD77DFEE3F17046E9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190728.jpgsave_picture_190728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190728.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7C074D9503C4B15E989C5A5E31403ADCEA23EA16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190730.jpgsave_picture_190730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190730.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:AF42A51DDC0AFC0FA522A7322F7492A1ACB33A3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190731.jpgsave_picture_190731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190731.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E880ACE9801E211A54C094261E945681B4C03F2A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190732.jpgsave_picture_190732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190732.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.831.0.0/dlc) Repack Other s
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190733.jpgsave_picture_190733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190733.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.831.0.0/dlc) Repack Other s
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190734.jpgsave_picture_190734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190734.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ CONVERGENCE: A League of Legends Story (2023) [Ru/Multi] (d3eb3874bbc/dlc) Licen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190736.jpgsave_picture_190736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190736.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:314E10146197837ACC4F95C11167517B69103C56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190739.jpgsave_picture_190739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190739.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:4E20BC4FFD176724D2B4BEBAAC24F980B5574735
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190741.jpgsave_picture_190741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190741.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:59F6BCAD650788FBDE2338C135D8B8AEA043065C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190744.jpgsave_picture_190744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190744.jpg" />
 </div>
 
 

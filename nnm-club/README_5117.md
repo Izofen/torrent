@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159768.jpgsave_picture_159768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159768.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Gary Hiebner | Mastering Your Drums in Studio One (2023) WEB-DL [AD] [EN,
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159769.jpgsave_picture_159769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159769.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ant Download Manager Pro 2.10.6 Build 86573 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159770.jpgsave_picture_159770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159770.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ MediaInfo 22.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159771.jpgsave_picture_159771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159771.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ NIUBI Partition Editor 9.3.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159772.jpgsave_picture_159772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159772.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1303EC874D161EE9B3567362DD968C3C4FCBD521
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159773.jpgsave_picture_159773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159773.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VPN Russia - VPN сервера в России 1.182 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159774.jpgsave_picture_159774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159774.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Dance Compliance Bests (2022) [MP3|320 Kbps] <Dancecore, Synthpop, Eurobeat
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159775.jpgsave_picture_159775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159775.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4A91F7EB841FED15B8F6D657180186E23DD94297
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159776.jpgsave_picture_159776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159776.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2A5B272A157179F18541E18C1442D84A4509DC0A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159777.jpgsave_picture_159777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159777.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:668F3381C0572209A299248FAB0BCB7BA814FAC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159778.jpgsave_picture_159778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159778.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:966C56D6F587F6A0097A7C1B065DEC7A0876586F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159779.jpgsave_picture_159779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159779.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Opera One 104.0.4944.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159780.jpgsave_picture_159780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159780.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:E92E2F19FD401F235BD375E46CBF534D0BF82E4B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159781.jpgsave_picture_159781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159781.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159782.jpgsave_picture_159782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159782.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:3138071054F4F8F642FE9CFFC5BE95BE454E8F38
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159783.jpgsave_picture_159783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159783.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ JetBrains WebStorm for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159784.jpgsave_picture_159784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159784.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:04D0070EE6E075AE86F87730D09583348BF693CE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159785.jpgsave_picture_159785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159785.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:F08E89DDDB4A2D3A6E20777530FC799A656C41B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159786.jpgsave_picture_159786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159786.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:DC3FFB45877421F05AA150E2EC791406B378776E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159787.jpgsave_picture_159787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159787.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:1F756E78B8EBEF8554119346F40E28C4C44E23AE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159788.jpgsave_picture_159788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159788.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159789.jpgsave_picture_159789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159789.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Capture One 23 Pro 16.3.1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159790.jpgsave_picture_159790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159790.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8F2B17847C3B384DD7144D7595F4BC1B8D516958
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159791.jpgsave_picture_159791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159791.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ XY VPN - Security Proxy VPN 4.7.305 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159792.jpgsave_picture_159792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159792.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159793.jpgsave_picture_159793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159793.jpg" />
 </div>
 
 

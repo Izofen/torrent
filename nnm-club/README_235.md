@@ -6,7 +6,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6188.jpgsave_picture_6188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6188.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3FBD1B240BC683C310E2AD9115579780CEA9B050
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6189.jpgsave_picture_6189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6189.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8EE282CB8536E4573FDC9F82A35307B08CA98A7E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6190.jpgsave_picture_6190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6190.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:10DAFE25209EC9B44004E0D12BFB9BD81284F390
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6191.jpgsave_picture_6191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6191.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1DC0958C512E327955A335873BD6EE37524213E8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6192.jpgsave_picture_6192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6192.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B38E1A40FD93BC5C5330F087071F417A97B15768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6193.jpgsave_picture_6193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6193.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E031D24B1CBF9B122356753E8C6465DA9F676816
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6194.jpgsave_picture_6194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6194.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpgsave_picture_6195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6196.jpgsave_picture_6196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpgsave_picture_6197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6198.jpgsave_picture_6198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6198.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:C85DCDA879247C8D1CF49EB6C5E9205C0ACEFFAD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6199.jpgsave_picture_6199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6199.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3022687D40910A174D42919F6FE565E6134937E5
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6200.jpgsave_picture_6200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6200.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6201.jpgsave_picture_6201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6201.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6202.jpgsave_picture_6202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6202.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6203.jpgsave_picture_6203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6203.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5A76683C8637EBFC59B279F7F4301AC49A2E8E31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6204.jpgsave_picture_6204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6204.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AB515CEB3CD6F543DE11932E05304459835FDBEB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6205.jpgsave_picture_6205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6205.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6206.jpgsave_picture_6206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6206.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6207.jpgsave_picture_6207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6207.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:F162B2B2D9EA08611F6C3FAEE6C4E2D0F9908CA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6208.jpgsave_picture_6208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6208.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:7904BA103FCACBA18EFD048702B85C500BCDED52
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6209.jpgsave_picture_6209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6209.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:583BE590969A4E2739BFD0F231A8A1D4B51E2C41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6210.jpgsave_picture_6210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6210.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6E290843F499C09C488419B36CE1BF0D5475F2F7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6211.jpgsave_picture_6211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6211.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpgsave_picture_6212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6213.jpgsave_picture_6213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6213.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Eagles - To the Limit: The Essential Collection (2024) 3CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59929.jpgsave_picture_59929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Black Keys - 19 albums, 21 CD (2002-2024) [FLAC|Lossless|image + .cue | trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59952.jpgsave_picture_59952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59952.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mark Knopfler - One Deep River (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59972.jpgsave_picture_59972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59972.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3D90FEF35DEEB57F50D7A80BEBCA55D06E74CC21
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59975.jpgsave_picture_59975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59975.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Lou Gramm & Projects - 7 albums, 1 Box-set, 14CD (1975-2021)  [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59979.jpgsave_picture_59979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59979.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:204E6F52A6E5382DE145CCFBAF0910331293D755
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60003.jpgsave_picture_60003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60003.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:D165C9429C43D222BDACF37AB730A37F464C1DD4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60059.jpgsave_picture_60059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60059.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rage - Afterlifelines (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60137.jpgsave_picture_60137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60137.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mark Knopfler - One Deep River (Deluxe Edition) (2024) 2 x CD [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60147.jpgsave_picture_60147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60147.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Steppenwolf (John Kay & Steppenwolf) - 28 albums, 3 Box Sets, 61 CD (1968-2023) 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60177.jpgsave_picture_60177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60177.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DBF9268CAC6042D56E8ACA4024F46C71CDD2C4E9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60344.jpgsave_picture_60344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60344.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A648C7E9F938D27F746949CFD8CC3A2977C4C682
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60547.jpgsave_picture_60547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60547.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Garbage - Bleed Like Me (2005) [MP3|320 Kbps] <Remaster, 2024, Liberator Music>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60554.jpgsave_picture_60554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60554.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rod Stewart - 55 albums, 5 Box-sets, 137 CD (1969-2024) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60611.jpgsave_picture_60611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60611.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Judas Priest - Invincible Shield (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60767.jpgsave_picture_60767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60767.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Alice Cooper - 53 аlbums, 4 Box Sets, 134 CD (1969-2023) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60836.jpgsave_picture_60836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60836.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Judas Priest (Glenn Tipton / KK's Priest) - 60 albums, 4 Box-set, 236 CD (1974-2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60938.jpgsave_picture_60938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60938.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bruce Dickinson - 12 Albums, 15 Singles, 77 CD (1989-2024) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61138.jpgsave_picture_61138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61138.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Michael Schenker Group - Is It Loud Enough? Michael Schenker Group: 1980-198
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61310.jpgsave_picture_61310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61310.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rick Miller  - 10 Albums (2004 - 2020) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61341.jpgsave_picture_61341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61341.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Famy - We Fam Econo (2014) 1st UK Press [APE|Lossless|image + .cue] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61387.jpgsave_picture_61387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61387.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rage - Afterlifelines (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61397.jpgsave_picture_61397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61397.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61518.jpgsave_picture_61518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61518.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Domine - Champion Eternal (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61794.jpgsave_picture_61794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61794.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Epic Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61815.jpgsave_picture_61815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61815.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Rock for Running (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61816.jpgsave_picture_61816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61816.jpg" />
 </div>
 
 

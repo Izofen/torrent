@@ -6,7 +6,7 @@ VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239899.jpgsave_picture_239899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239899.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Coltrane - Coltrane Time (1958) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239900.jpgsave_picture_239900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239900.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Find Any File (FAF) 2.3.3b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239901.jpgsave_picture_239901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239901.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:0DC3396851FE7E0203977FBD14EAB24C6A88B1C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239902.jpgsave_picture_239902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239902.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Chrome Waves - Earth Will Shed Its Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239903.jpgsave_picture_239903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239903.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:020CF7D2DCC092650929FA6CAD1764FCF42A9FE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239904.jpgsave_picture_239904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239904.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Format Factory 5.12.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239905.jpgsave_picture_239905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239905.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ BusyCal 2023.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239906.jpgsave_picture_239906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239906.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Czakan - Unreal (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239908.jpgsave_picture_239908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239908.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:2D072CBF64D0B0C8738FA4187C98E883294D50BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239909.jpgsave_picture_239909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239909.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Ne Obliviscaris - Exul (2023) [FLAC|Lossless|WEB-DL|tracks] <Extreme Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239910.jpgsave_picture_239910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239910.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Topaz Video AI 3.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239911.jpgsave_picture_239911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239911.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Magic Sort List 3.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239912.jpgsave_picture_239912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239912.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239913.jpgsave_picture_239913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239913.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239914.jpgsave_picture_239914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239914.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:2FE3D8AFA880F928171B38FF4F588A9BC84D4122
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239915.jpgsave_picture_239915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239915.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:174F482093876046E9DA6365DBB9B283E286ACDB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239916.jpgsave_picture_239916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239916.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ EasyGantt 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239917.jpgsave_picture_239917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239917.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ iShowU Instant (Advanced) 1.4.11 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239918.jpgsave_picture_239918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239918.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:73325F59C5B642D92DE00F7721ADA74ACEB2EBE7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239919.jpgsave_picture_239919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239919.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Skype 8.98.0.206 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239920.jpgsave_picture_239920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239920.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Noltem - Mannaz (2015) EP, Reissue Northern Silence 2016 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239921.jpgsave_picture_239921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239921.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C259CAB26CFE5D4402D8500D02F3756208E3D05F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239922.jpgsave_picture_239922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239922.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TreeSize Free 4.6.0.503 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239923.jpgsave_picture_239923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239923.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:64357C7E299A8639F60CC68C7072AEB005DE40D9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239924.jpgsave_picture_239924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239924.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239925.jpgsave_picture_239925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239925.jpg" />
 </div>
 
 

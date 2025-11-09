@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195244.jpgsave_picture_195244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:086688A8250A21DB69F80E159F0EFBEEFD1F908D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195247.jpgsave_picture_195247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195247.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:70AB1EBEDF90EE2CF1C31027561674EAD64C52DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195252.jpgsave_picture_195252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195252.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:0A1DF853C2C069FEC71ACC6C8B6FB1755DFBCB1B
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195254.jpgsave_picture_195254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195254.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:936A0A808136930ECBD2F52D2F117D71FD666AB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195262.jpgsave_picture_195262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195262.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:056D46857B9120FB17AF14FC8AC96A9DAD114C9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195264.jpgsave_picture_195264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195264.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:82BE328BBEC49B9B57EDA5795CE3843524AD3627
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195268.jpgsave_picture_195268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195268.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:583AA73804F9A8D5086348886A695BE65F7B8254
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195270.jpgsave_picture_195270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195270.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:777DB3151292A5615E5D3786FAA62C0D5DC3F4DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195274.jpgsave_picture_195274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195274.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:A150BE961850B73216F283657C068FF6E78FD6EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195276.jpgsave_picture_195276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195276.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4735CADA587C8D2C9A1C9DAB75053100B907C541
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195280.jpgsave_picture_195280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195280.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3AEA3E9B5362C75DAC0CE53A533C95693AABC9D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195285.jpgsave_picture_195285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195285.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:990B7E923E176582EAD2C64A4B077DB569E8F49A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195286.jpgsave_picture_195286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195286.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:0F1417146FF65D6CDB59F3D53779F7E6EB4CB4AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195292.jpgsave_picture_195292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195292.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:7B9C96258E3170DB63ED63F70ACEF6FF271BF1F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195297.jpgsave_picture_195297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195297.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:275D53B11AA4F36DD98E15CAD86B9B680F2A8534
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195299.jpgsave_picture_195299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195299.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:83F4BB3183868F1AE19B57F0A78317D19E67EE35
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195303.jpgsave_picture_195303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195303.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9E2BAF922F2D695A9516DD3C46493976130F719C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195313.jpgsave_picture_195313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195313.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D90D848C2DEA2997CE032D03C14A2FAEED1A756E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195315.jpgsave_picture_195315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195315.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:9952D5B44665B72C9E602A5A1548C22400D157EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195340.jpgsave_picture_195340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195340.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:FAD233F6D84DF26C117B1705CF4AF42BC639BC30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195342.jpgsave_picture_195342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195342.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:416D1C357F531236E54F67BAB9C734B4C2E159E3
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195344.jpgsave_picture_195344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195344.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:305917BACA6F1310FFE4ECA6EB5EAC55BEBC607E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195347.jpgsave_picture_195347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195347.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F40BD410BA1BD3DE74D4BDA9B71A95DC7187F1B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195351.jpgsave_picture_195351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195351.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:834FE67E2B2C46110B07B089C998707DAE447D27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195352.jpgsave_picture_195352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195352.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:4E03DF6480B5B2886FB8B1A4AFA4EFA149E4BF4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195368.jpgsave_picture_195368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195368.jpg" />
 </div>
 
 

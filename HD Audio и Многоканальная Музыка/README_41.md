@@ -6,7 +6,7 @@ Cher - Forever Fan (2024) Remaster, 2024, Warner Records [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43039.jpgsave_picture_43039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43126.jpgsave_picture_43126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43126.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43149.jpgsave_picture_43149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43149.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43175.jpgsave_picture_43175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43175.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpgsave_picture_43251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Julian Smith - Being with You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43253.jpgsave_picture_43253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43253.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jhene Aiko - Chilombo (2020) Deluxe, 2020, Def Jam Recordings [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43254.jpgsave_picture_43254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43254.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Flotsam And Jetsam - Studio Albums (15 releases) (1986-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43263.jpgsave_picture_43263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dark Tranquillity - Studio Albums (14 releases) (1993-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpgsave_picture_43309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Find Me - Nightbound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43357.jpgsave_picture_43357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43357.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43665.jpgsave_picture_43665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43665.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43666.jpgsave_picture_43666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43666.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kylie Minogue - My Oh My (with Bebe Rexha & Tove Lo) (The Remixes) (2024) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43759.jpgsave_picture_43759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43759.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Indochine - Babel Babel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43762.jpgsave_picture_43762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43762.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43778.jpgsave_picture_43778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43778.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ C-Lekktor - 2.0 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, Hars
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43779.jpgsave_picture_43779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43779.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:C08D0B82D0CB52F173A5FAC7FCCC47AC7C9A9E5C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43784.jpgsave_picture_43784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43784.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Threshold - Studio Albums (22 releases) (1993-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43838.jpgsave_picture_43838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43838.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lenny Kravitz - Human (Remixes) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43875.jpgsave_picture_43875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43875.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The The - Ensoulment (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternatif, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43881.jpgsave_picture_43881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43881.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tim Montana - Savage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43884.jpgsave_picture_43884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43884.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2774902881794B5E3BB1FB9123E2BE7D441958C2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43900.jpgsave_picture_43900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43900.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Edge of Sanity - Studio Albums (12 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43972.jpgsave_picture_43972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43972.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ David Gilmour - Luck and Strange (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44284.jpgsave_picture_44284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44284.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:A4E20562FC005D08A741771231217EDF32AB8837
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44400.jpgsave_picture_44400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44400.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Linkin Park - The Emptiness Machine (2024) Single [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44405.jpgsave_picture_44405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44405.jpg" />
 </div>
 
 

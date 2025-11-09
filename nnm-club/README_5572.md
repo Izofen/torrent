@@ -6,7 +6,7 @@ Malwarebytes Windows Firewall Control 6.9.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171860.jpgsave_picture_171860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171860.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C371A111B306B347111220AAB75EDA46635A35A7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171861.jpgsave_picture_171861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StartAllBack 3.6.14 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171862.jpgsave_picture_171862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171862.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A0A0A563C422A44DA3C36C67564035AE13CA64C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171863.jpgsave_picture_171863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171863.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Within Temptation - Bleed Out (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171864.jpgsave_picture_171864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171864.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ StartAllBack 3.6.14 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171865.jpgsave_picture_171865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171865.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FB8D49167B30123D9DE89917334A47A528015006
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171866.jpgsave_picture_171866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171866.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Room Arranger  9.8.1.641 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171867.jpgsave_picture_171867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171867.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ blink-182 - One More Time... (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-pun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171868.jpgsave_picture_171868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171868.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:06175B967EC6B71CF968F0681E7A5575012C2D3E
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171869.jpgsave_picture_171869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171869.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:07478FAE345B73CF0C2F1B98F20D535CF0ECD60E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171870.jpgsave_picture_171870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171870.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:07478FAE345B73CF0C2F1B98F20D535CF0ECD60E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171871.jpgsave_picture_171871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171871.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:73C046CCFFC9217722FB274724D73D4772EA3833
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171872.jpgsave_picture_171872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171872.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F60F4C2A75298D0890B48D429E28795EBB1B9987
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171873.jpgsave_picture_171873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171873.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ StartAllBack 3.6.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171874.jpgsave_picture_171874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171874.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:743929A399D7D9010F8B51F4E54122BCE2F7E709
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171875.jpgsave_picture_171875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171875.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Resource Hacker 5.2.3.379 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171876.jpgsave_picture_171876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171876.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:AC169E87A09A3A878872917ED28C4477B9DCDFC7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171877.jpgsave_picture_171877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171877.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ DVDFab StreamFab 6.1.4.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171878.jpgsave_picture_171878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171878.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:86CFE6F01A93114D19EE025E0B592C0EDD456D0D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171879.jpgsave_picture_171879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171879.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Metal Church - Congregation Of Annihilation (2023) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171880.jpgsave_picture_171880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171880.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:D36BE1C0CF19146C8BDFB4C175959B002B0ECA3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171881.jpgsave_picture_171881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171881.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171882.jpgsave_picture_171882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171882.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Fitness Motivation Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171883.jpgsave_picture_171883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171883.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:EB6EAD2C5C3116EF1F40F9250634D19B7F298304
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171884.jpgsave_picture_171884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171884.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171885.jpgsave_picture_171885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171885.jpg" />
 </div>
 
 

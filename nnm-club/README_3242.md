@@ -6,7 +6,7 @@ Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Am
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104653.jpgsave_picture_104653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104653.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:91C5DE1CDB02DDBABD7B446996925F88C5B2D233
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104654.jpgsave_picture_104654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104654.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:03062C29A763355363A3DCE5E236DC285022D67B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104655.jpgsave_picture_104655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104655.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Miseria Ultima - Arctic Esotericism (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM / 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104656.jpgsave_picture_104656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104656.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Dead Daisies - Light 'Em Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104657.jpgsave_picture_104657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104657.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Kazal Records Present - Trance Legends Vol. 1 (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104658.jpgsave_picture_104658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104658.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:CADAD131CB2FDF39EDBF1997D4C825A8053D7AD0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104659.jpgsave_picture_104659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104659.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104660.jpgsave_picture_104660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104660.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104661.jpgsave_picture_104661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104661.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:4BE146145D8AA2C1947229EC67DE42D529616182
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104662.jpgsave_picture_104662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104662.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Telegram Desktop 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104663.jpgsave_picture_104663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104663.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Audacity 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104664.jpgsave_picture_104664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104664.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:905CA4A82E256AE87089BF5E93B79B57639AC9A0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104665.jpgsave_picture_104665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104665.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:46B2C8F0DD17DBD8359A1188A916A6F69697A605
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104666.jpgsave_picture_104666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104666.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Sigil 2.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104667.jpgsave_picture_104667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104667.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ PageEdit 2.3.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104668.jpgsave_picture_104668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104668.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ USB Device Tree Viewer 4.4.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104669.jpgsave_picture_104669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104669.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ GetPixelColor 3.36 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104670.jpgsave_picture_104670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104670.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:C5050591CCCC71527B34B618AD4AF16EBDC2E996
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104671.jpgsave_picture_104671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104671.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:7D65D2AAA8023FDA4FF63F176F93C059FA93D5CB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104672.jpgsave_picture_104672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104672.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104673.jpgsave_picture_104673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104673.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Process Lasso Pro 15.0.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104674.jpgsave_picture_104674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104674.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:7E57205DD5A1D45C2D4B39BFEF9BADAF9A4352C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104675.jpgsave_picture_104675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104675.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ XMedia Recode 3.6.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104676.jpgsave_picture_104676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104676.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:3933FFB4816E08319C7E23BB9FAD96AED5FDDDDA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104677.jpgsave_picture_104677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104677.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:7F3D4836EBE247549664FE66FC81AD1772952959
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104678.jpgsave_picture_104678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104678.jpg" />
 </div>
 
 

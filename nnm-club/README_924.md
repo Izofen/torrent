@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24363.jpgsave_picture_24363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24363.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24364.jpgsave_picture_24364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24364.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Dashcam Viewer 4.0.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24365.jpgsave_picture_24365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24365.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nezabudka  cake | Трайфлы  (2020) [PDF]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24366.jpgsave_picture_24366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24366.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0035451B30690176BCB2B5B5B8C120EF629A1D29
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24367.jpgsave_picture_24367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24367.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Perfectly Clear WorkBench 4.6.1.2732 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24368.jpgsave_picture_24368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24368.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6C35744F1D12437992A8AA091A2CABB30812279B
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24369.jpgsave_picture_24369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24369.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:B466FEF00147149C2BAEBF8B7F6B8C30A29CB2F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24370.jpgsave_picture_24370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24370.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Elisabeth Vincentelli | Артбук по мультсериалу Аркейн 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24371.jpgsave_picture_24371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24371.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:17B6332E5E2D1F3D77866766F6BBF66DDE599A5D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24372.jpgsave_picture_24372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24372.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ NetSarang Xmanager Power Suite 8.0.0006 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24373.jpgsave_picture_24373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24373.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24374.jpgsave_picture_24374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24374.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24375.jpgsave_picture_24375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24375.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D07092396BE64828B97410A644D80A40CCEE91FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24376.jpgsave_picture_24376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24376.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C82CCE89169CB9D55F8924E127A9E15EFA263EBA
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24377.jpgsave_picture_24377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24377.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:1AEDC606AF92D82F11CD5756AA719171D9772A07
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24378.jpgsave_picture_24378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24378.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Potion Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24379.jpgsave_picture_24379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24379.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:0C06EE5DD9EFC464587BADC738010581DF9246B5
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24380.jpgsave_picture_24380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24380.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24381.jpgsave_picture_24381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24381.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:BF30E303C6A4DB909AC2F993C1007A2BDE1DBFA5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24382.jpgsave_picture_24382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24382.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, Rafael Falconi | Creating Golden Hour Atmosphere to Cityscape in Photosho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24383.jpgsave_picture_24383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24383.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1DD444FAB5D6A63AD43B3DDE5F565BD5627FD027
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24384.jpgsave_picture_24384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24384.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:F93F4643E69CBC1FF19507F7620EC6A37595FE98
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24385.jpgsave_picture_24385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24385.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ MusicBee 3.6.9202 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24386.jpgsave_picture_24386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24386.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:8C080B42D28258E45C6DD0BD84EE2D7A163FF500
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24387.jpgsave_picture_24387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24387.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AIMP 5.40.2668 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24388.jpgsave_picture_24388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24388.jpg" />
 </div>
 
 

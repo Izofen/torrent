@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154134.jpgsave_picture_154134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154134.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154135.jpgsave_picture_154135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154135.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154136.jpgsave_picture_154136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154136.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Loop Mash Up Pro 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154137.jpgsave_picture_154137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154137.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Contacts Journal CRM 3.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154138.jpgsave_picture_154138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154138.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:FC89410525D66B1BD8C2A3D47A1C3B32B0322101
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154139.jpgsave_picture_154139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154139.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BEB50C5CF6642F6CCCDE855FED0E33A4A9C00F7A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154140.jpgsave_picture_154140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154140.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6F923F4679BDA6A0B0246584F62A8217E8EB3C7E
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154141.jpgsave_picture_154141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154141.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D6B4BFC5DC1C5898DF4AD4B5532BD0A5B431AED0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154142.jpgsave_picture_154142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154142.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:3466493BC63FED621CF85BBB0C418CA1E8787120
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154143.jpgsave_picture_154143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154143.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154144.jpgsave_picture_154144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154144.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:824F16F44B67CDA1116862A4E59CF36E5D86CBDD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154145.jpgsave_picture_154145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154145.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F7C2C4EE739A729215D6BB1A383D7C411A65B6A6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154146.jpgsave_picture_154146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154146.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:786076446AC8E1CA72344979B703CBE5667DE7AA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154147.jpgsave_picture_154147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154147.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:126949207C6177F429A35DF2FBB79498D231CE38
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154148.jpgsave_picture_154148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154148.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:77D3B0628C3A407AC9FDAC0A83E4D702347F13FE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154149.jpgsave_picture_154149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154149.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3B644A9885648260DA941A8925CB2D501CA3562D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154150.jpgsave_picture_154150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154150.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ GhosteMane - Rituals (2016) [FLAC|Lossless|tracks] <Hip-Hop, Underground Rap, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154151.jpgsave_picture_154151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154151.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154152.jpgsave_picture_154152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154152.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154153.jpgsave_picture_154153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154153.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:47D1FB093D8E8B32FBADBAB0C1C1238CB861B0C3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154154.jpgsave_picture_154154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154154.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Skarlett Riot - Regenerate (2017) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154155.jpgsave_picture_154155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154155.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:CA1500F196CEC7D2167E7758BB4CC027C42C221D
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154156.jpgsave_picture_154156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154156.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:520FFC754E763F4705E419D0553BC03E21AC0E8B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154157.jpgsave_picture_154157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9D80A54BBB517471AF5BD10F77D49E3D85031859
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154158.jpgsave_picture_154158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154158.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AIMP 4.70 Build 2239 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154159.jpgsave_picture_154159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154159.jpg" />
 </div>
 
 

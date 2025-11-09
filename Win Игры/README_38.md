@@ -6,7 +6,7 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11251.jpgsave_picture_11251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11265.jpgsave_picture_11265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11265.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11267.jpgsave_picture_11267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11267.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11320.jpgsave_picture_11320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11320.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11338.jpgsave_picture_11338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11338.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11339.jpgsave_picture_11339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11339.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11342.jpgsave_picture_11342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11342.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Murky Divers (2024) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11362.jpgsave_picture_11362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11362.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11371.jpgsave_picture_11371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11371.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11469.jpgsave_picture_11469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11469.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Shadow of the Night (2023) [En] (2.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11511.jpgsave_picture_11511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11511.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Below the Stone (2023) [En] (Alpha 0.9.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11573.jpgsave_picture_11573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11573.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11593.jpgsave_picture_11593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11593.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11630.jpgsave_picture_11630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11630.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11653.jpgsave_picture_11653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11653.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11663.jpgsave_picture_11663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11663.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11664.jpgsave_picture_11664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11664.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11667.jpgsave_picture_11667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11667.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Necesse (2019) [Ru/Multi] (0.33.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11669.jpgsave_picture_11669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11669.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11703.jpgsave_picture_11703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11703.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11722.jpgsave_picture_11722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11722.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpgsave_picture_11732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11735.jpgsave_picture_11735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11735.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11738.jpgsave_picture_11738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11738.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Paranormal Files 13: Chaos Weekend (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11803.jpgsave_picture_11803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11803.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11826.jpgsave_picture_11826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11826.jpg" />
 </div>
 
 

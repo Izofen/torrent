@@ -6,7 +6,7 @@ City Navigator Thailand NT 2017.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137990.jpgsave_picture_137990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137990.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PixelLab Pro - Text on pictures 2.1.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138072.jpgsave_picture_138072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138072.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138177.jpgsave_picture_138177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138177.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wi-Fi Mouse Pro v4.3.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138303.jpgsave_picture_138303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138303.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Coach Guitar v1.1.6 Premium [Ru] - Играть на гитаре, Songs, Tab, C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138447.jpgsave_picture_138447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138447.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138459.jpgsave_picture_138459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138459.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138647.jpgsave_picture_138647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138647.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138972.jpgsave_picture_138972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138972.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Caustic 3 v3.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139142.jpgsave_picture_139142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139142.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139147.jpgsave_picture_139147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139147.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139238.jpgsave_picture_139238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139238.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140196.jpgsave_picture_140196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140196.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140227.jpgsave_picture_140227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140227.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ aCalendar+ Calendar & Tasks v2.5.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140421.jpgsave_picture_140421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140421.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpgsave_picture_141229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141336.jpgsave_picture_141336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141336.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141464.jpgsave_picture_141464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141464.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:BC6178640E1BD2B3BA8191CB989748C1AB7CC630
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141675.jpgsave_picture_141675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141675.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141679.jpgsave_picture_141679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141679.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141742.jpgsave_picture_141742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141742.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141841.jpgsave_picture_141841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141841.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143174.jpgsave_picture_143174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143174.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143270.jpgsave_picture_143270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143270.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143507.jpgsave_picture_143507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143507.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143688.jpgsave_picture_143688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143688.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Vetcalculators v2.9.91 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143714.jpgsave_picture_143714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143714.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41879.jpgsave_picture_41879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41879.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FAFCAD8F6520281A533045FEAB6A476319DEB381
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41880.jpgsave_picture_41880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41880.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41881.jpgsave_picture_41881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41881.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41882.jpgsave_picture_41882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41882.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - ADE Behind Scenes (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41883.jpgsave_picture_41883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41883.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41884.jpgsave_picture_41884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41884.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Munarheim - Heimkehr (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41885.jpgsave_picture_41885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41885.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpgsave_picture_41886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Rated Revisited Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41887.jpgsave_picture_41887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41887.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:221C7D21CF0609599D464DDED04277327AA2DB84
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41888.jpgsave_picture_41888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41888.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41889.jpgsave_picture_41889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41889.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tommy J Stewart - Turning up the Heat (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41890.jpgsave_picture_41890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41890.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tracy Stafford Platinum VIBES - NAWLIN'S BLUE VIBES (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41891.jpgsave_picture_41891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41891.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Pszenny Project - Smokey Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41892.jpgsave_picture_41892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41892.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:BFD57DB1C79EF48FAD9C236FDADFFBBDBF1214FB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41893.jpgsave_picture_41893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41893.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F10E7D7984619EF1AF53E39BD7AF308159DE9368
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41894.jpgsave_picture_41894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41894.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:91535C5CCB1B1118F26DD240AD1ACEA987E90693
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41895.jpgsave_picture_41895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41895.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:651A3080D97B320AA885D9A7917EB6AAF3B35790
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41896.jpgsave_picture_41896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41896.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F98D55F476A41DF475A7F693EC707E6BC0C80E3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41897.jpgsave_picture_41897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41897.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:74A69763708E400A6E3E79F8CCDFB19A47FAF154
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41898.jpgsave_picture_41898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41898.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:233991D177F5FFE9E0F3CB6D92887E22BEA66B08
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41899.jpgsave_picture_41899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41899.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3A504E77D22B72A7956F2E912578EF4720871FB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41900.jpgsave_picture_41900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41900.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:61B1E859B08DF40E6FF515C9234CE45B3B6E7DF5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41901.jpgsave_picture_41901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41901.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Blues And Roll (2024) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41902.jpgsave_picture_41902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41902.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6F3284E5A6A2B811FF7A1A05FA514FF673FC6C0E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41903.jpgsave_picture_41903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41903.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:81E1460BBBB18A7E8A5DD1E8CA27BAAA8ACA11A6
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41904.jpgsave_picture_41904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41904.jpg" />
 </div>
 
 

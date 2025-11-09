@@ -6,7 +6,7 @@ Croteam | Артбук по игре Serious Sam 3: BFE / Serious Sam 3: BFE - A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159290.jpgsave_picture_159290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159291.jpgsave_picture_159291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159291.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D2B0AFD423C81C392AE9A490A06D94FBC2A6C6D5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159292.jpgsave_picture_159292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159292.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159293.jpgsave_picture_159293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159293.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:74804B3062F71CF34EA5972679F678059BF505F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159294.jpgsave_picture_159294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159294.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Photo Studio PRO v2.7.1.2139 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159295.jpgsave_picture_159295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159295.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Photo Lab PRO v3.12.75 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159296.jpgsave_picture_159296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159296.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:59C29BD9127D0B3AA482A45257E47FA68AF059F1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159297.jpgsave_picture_159297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159297.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:03E8FC61E7F895765ECD0776791403393635E979
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159298.jpgsave_picture_159298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159298.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ iPulse 3.1.41 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159299.jpgsave_picture_159299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159299.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PowerDirector – Video Editor v12.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159300.jpgsave_picture_159300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159300.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159301.jpgsave_picture_159301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159301.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C4F3A9E4A69183DE22D5EBC9234E11B3E9F2783A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159302.jpgsave_picture_159302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159302.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mimimi Games | Артбук по игре Desperados 3 / The Art of Desperados I
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159303.jpgsave_picture_159303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159303.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpgsave_picture_159304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B233752D78E792FEC09F01CCB7FE8C8A524BB29E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159305.jpgsave_picture_159305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159305.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159306.jpgsave_picture_159306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159306.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:EC7821A7E13379632CBCF3E2A879305E3792BB34
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159307.jpgsave_picture_159307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159307.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:DBF70F81EF52E0159E23D73556A03217AF089456
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159308.jpgsave_picture_159308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159308.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Female vocal assorted (2022) [MP3|320 Kbps] <Pop, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159309.jpgsave_picture_159309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159309.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B2E82DC0BE8671A20723C6D2688026A77753D73E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159310.jpgsave_picture_159310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159310.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ YouCut - Video Editor v1.600.1178 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159311.jpgsave_picture_159311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159311.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:167481CC6D09D953717DE1ACE525C6762F71547C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159312.jpgsave_picture_159312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159312.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:DED220BB5A9E857BC050B0FE42C643D5DCFB539F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159313.jpgsave_picture_159313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159313.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159314.jpgsave_picture_159314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159314.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159315.jpgsave_picture_159315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159315.jpg" />
 </div>
 
 

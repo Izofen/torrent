@@ -6,7 +6,7 @@ New year wallpapers 2013 (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpgsave_picture_132760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Femal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpgsave_picture_132761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpgsave_picture_132762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpgsave_picture_132763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpgsave_picture_132765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132767.jpgsave_picture_132767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132767.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132769.jpgsave_picture_132769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132769.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C2AA561E24E9E05A1FD4785DE7EDEAAFD77CBAD3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132770.jpgsave_picture_132770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132770.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132771.jpgsave_picture_132771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132771.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132772.jpgsave_picture_132772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132772.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3432E3AA200C2C28D6316E75D02B191C025093FF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132773.jpgsave_picture_132773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132773.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C873B6B512A7A11268C5C175B3717D5DED3ECF5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132775.jpgsave_picture_132775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132775.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Winter Wallpapers (26.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132776.jpgsave_picture_132776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132776.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132777.jpgsave_picture_132777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132777.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ F1 Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132778.jpgsave_picture_132778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132778.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132779.jpgsave_picture_132779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132779.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132780.jpgsave_picture_132780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132780.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Daimos - A World Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132781.jpgsave_picture_132781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132781.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:D74E957A168F40DAF840EA9E36F9B2A7C0F2E778
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132782.jpgsave_picture_132782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132782.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.4.0.0/00.014.037/dlc) Repack Other s [A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132783.jpgsave_picture_132783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132783.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:AD229EFB0307934A4AB1DCB4D083E726ACA7D340
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132785.jpgsave_picture_132785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132785.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ KMS Tools Portable by Ratiborus 01.12.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132787.jpgsave_picture_132787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132787.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VMware vSphere ESXi 8.0U2 [amd64] 1xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132790.jpgsave_picture_132790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132790.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Creative Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132791.jpgsave_picture_132791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132791.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:ADA492C4EEDF8CC5889316F9E006569A89C4C1FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132792.jpgsave_picture_132792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132792.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:74893CFC615757C1FD1965FC027CC54240F0E3B0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132793.jpgsave_picture_132793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132793.jpg" />
 </div>
 
 

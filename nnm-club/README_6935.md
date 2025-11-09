@@ -6,7 +6,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238109.jpgsave_picture_238109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238109.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238110.jpgsave_picture_238110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238110.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8D4CCDA5F40D586E1D59AE4335B982511298F0E9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238111.jpgsave_picture_238111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238111.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Driver Booster Pro 10.4.0.127 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238112.jpgsave_picture_238112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238112.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Integrity Plus 10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238113.jpgsave_picture_238113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238113.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ PDFsam Basic 5.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238114.jpgsave_picture_238114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238114.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ FotoSketcher 3.80 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238115.jpgsave_picture_238115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238115.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Lower 13 - Embrace the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238116.jpgsave_picture_238116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238116.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ River Of Deceit - The Dead Won't Raise Themselves (2023) [MP3|320 Kbps] <Heavy, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238117.jpgsave_picture_238117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238117.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ RAR Extractor Max-Unzip Winrar 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238118.jpgsave_picture_238118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238118.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ James Moody - 1950 - 1951 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238119.jpgsave_picture_238119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238119.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ June 1974 - Please Destroy Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238120.jpgsave_picture_238120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238120.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpgsave_picture_238121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Amongst The Giants - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238122.jpgsave_picture_238122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238122.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1026F08B45A014B8BE19AE5F1089C73128030917
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238123.jpgsave_picture_238123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238123.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Sucker Punch Productions | Артбук по игре Ghost of Tsushima / The Ar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238124.jpgsave_picture_238124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238124.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A47A89B56FAA72073310B5A5E000B30ABF37A1AB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238125.jpgsave_picture_238125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238125.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Xanadu At Montreux (1978) 1987, EPM Musique [APE|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238126.jpgsave_picture_238126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238126.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:87957D8BB23207B1C3C231EC993811AA7225E262
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238127.jpgsave_picture_238127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238127.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Geekbench 5 v5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238128.jpgsave_picture_238128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238128.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ CyberLink PhotoDirector Ultra 14.4.1619.1 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238129.jpgsave_picture_238129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238129.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Drama Noir - Nightfall upon the Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238130.jpgsave_picture_238130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238130.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:2DE015DC6801934CC7C82340CCA40A6510530A91
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238131.jpgsave_picture_238131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238131.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B41122ACE66F17B28E4C42915DF3F032B8B0FCAB
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238132.jpgsave_picture_238132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238132.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Lo Garp - True Friends (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238133.jpgsave_picture_238133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238133.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ File List Export 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238134.jpgsave_picture_238134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238134.jpg" />
 </div>
 
 

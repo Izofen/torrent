@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203169.jpgsave_picture_203169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203169.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:BB4CDAC989D3CA6FDC27A80BD112C88F15C1B201
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203170.jpgsave_picture_203170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203170.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FA37D8BA9DA0C1F52CE8DD05A7CA8DB97F8405E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203171.jpgsave_picture_203171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203171.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2F849ADDAEAD2FE78803D89DD4F7DEC16E8DA76B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203172.jpgsave_picture_203172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203172.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpgsave_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203174.jpgsave_picture_203174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203174.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C8AB907BFBC9E18E540DC8CA11E3CB0E494DA266
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203176.jpgsave_picture_203176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203176.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D07224A5F4D30F19F6AF5E3E4BEF5CEA94D757ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203177.jpgsave_picture_203177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203177.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Auslogics Driver Updater 1.24.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203178.jpgsave_picture_203178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203178.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ R-Studio Network 9.2 Build 191126 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203179.jpgsave_picture_203179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203179.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:6D0C0B85CE724F0CA13D878D87FF0305797F6E5D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203180.jpgsave_picture_203180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203180.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B52D23FBE4690A0A007B62A5DC9E932B2376F046
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203181.jpgsave_picture_203181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203181.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Psiphon 3 build 179 (30.08.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203182.jpgsave_picture_203182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203182.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:14ED9D85F9EE82ACE48463FA35FCB650E2420F30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203183.jpgsave_picture_203183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203183.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:428FE8555A84EE29B628039416DF1BC9C6DD6C7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203184.jpgsave_picture_203184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203184.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EFEF9F2E50F664F8132EACEE9E8A1733D74B6C9D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203185.jpgsave_picture_203185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203185.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:2E1A9AC7D7D8124D2689FE29916B111C2755E438
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203186.jpgsave_picture_203186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203186.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0D608DB978D421EBAC9C7869B0E337F9B888470E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203187.jpgsave_picture_203187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203187.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:9D5384BA249E426DB6921BC22221C73ADCEB6B51
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203188.jpgsave_picture_203188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203188.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WinTools.net Premium 23.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203189.jpgsave_picture_203189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203189.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:70C43B75AFBFF3CCABE63B9CE17F82D5945FF085
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203191.jpgsave_picture_203191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203191.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:4C7A9073ADC02C310C2B064B92646A901F4A581A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203192.jpgsave_picture_203192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203192.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203193.jpgsave_picture_203193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203193.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F2F9A659B1463F2522C3682AC6F38991F60F4E27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203194.jpgsave_picture_203194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203194.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Alfa eBooks Manager 8.6.17.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203195.jpgsave_picture_203195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203195.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203196.jpgsave_picture_203196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203196.jpg" />
 </div>
 
 

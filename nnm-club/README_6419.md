@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203574.jpgsave_picture_203574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203574.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:28DB451DEF005689F51B5669D239BD8D1994B7C6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203575.jpgsave_picture_203575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203575.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maetel Legend / Легенда Мэйтел [2000, OVA, 2 из 2] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203576.jpgsave_picture_203576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203576.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:32439FF0A842F12E0C7ADC2C18126A49DE4BA2CA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203577.jpgsave_picture_203577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203577.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8F92FE741BB1365447F742D6A6F654E0A116508D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203578.jpgsave_picture_203578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203578.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A3B5F1E19C6989800131737DBF06E871974EA4A0
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203579.jpgsave_picture_203579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203579.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Trance Travel Hits 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203580.jpgsave_picture_203580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203580.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203581.jpgsave_picture_203581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203581.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WinRAR 6.21 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203582.jpgsave_picture_203582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203582.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F1DA52F4024B03931E998FF21EB949C0BFE45CE1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203583.jpgsave_picture_203583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203583.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5257D7837D5FB170B5822E27E1123B631775503B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203584.jpgsave_picture_203584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203584.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Caramba Switcher Lab 2022.03.29 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203585.jpgsave_picture_203585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203585.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1F5C5116FD08884F1F1677771206E68445FEFD71
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203586.jpgsave_picture_203586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203586.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0E51E2DF3E72D936782B115562913492AA5D4008
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203587.jpgsave_picture_203587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203587.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6BED5F25B2326CFA5AE5403EF8808DE3C8A52AEC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203588.jpgsave_picture_203588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203588.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:275082B11082B69DE203A360B4487B21D1AE6431
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203589.jpgsave_picture_203589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203589.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FireAlpaca 2.11.8 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203590.jpgsave_picture_203590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203590.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Faro - Mosaic Of Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203592.jpgsave_picture_203592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203592.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:8E0A324D2D47C6C42FD9F23A86776A050426731A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203593.jpgsave_picture_203593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203593.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:924F509A41E89D62AA8AD31259D1CC2C509620D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203594.jpgsave_picture_203594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203594.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:BFEE4E1887CD2B5D7F985645F76814E5CE496789
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203595.jpgsave_picture_203595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203595.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B01FAB393773ED455DEEB84D63DFAFC976041102
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203596.jpgsave_picture_203596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203596.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3B767A52144616CE398D3CCB1DD11A7D6176A55F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203597.jpgsave_picture_203597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203597.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:25B2240B1EF8A97F5E6DF3C3F007882A8E78AB8E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203598.jpgsave_picture_203598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203598.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpgsave_picture_203599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203600.jpgsave_picture_203600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203600.jpg" />
 </div>
 
 

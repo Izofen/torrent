@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29345.jpgsave_picture_29345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29345.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29346.jpgsave_picture_29346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29346.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29347.jpgsave_picture_29347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29347.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29348.jpgsave_picture_29348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29348.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Build 17026604/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29349.jpgsave_picture_29349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29349.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D672413B58051335D91ECEBDC8BC672B833A293D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29350.jpgsave_picture_29350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29350.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29351.jpgsave_picture_29351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29351.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29352.jpgsave_picture_29352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29352.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29353.jpgsave_picture_29353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29353.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29354.jpgsave_picture_29354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29354.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:794FF6D47A00B9D3467B9FFB8A821851B52F6D01
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29355.jpgsave_picture_29355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29355.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29356.jpgsave_picture_29356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29356.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC. Нас уже 7.7 миллиардов человек. Дальше - бо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29357.jpgsave_picture_29357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29357.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29358.jpgsave_picture_29358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29358.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:43AFF60481798A490A5F09F601E413F7644B2579
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29359.jpgsave_picture_29359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29359.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Top 50 Achtziger Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29360.jpgsave_picture_29360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29360.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Stand Up And Shout - A Tribute To Ronnie James Dio (2015) [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29361.jpgsave_picture_29361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29361.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7DB99F3428671AD462059B95B9ED5F0B3C757C48
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29362.jpgsave_picture_29362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29362.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:072078E3D920FA90871C7B5FD23C2319AD559451
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29363.jpgsave_picture_29363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29363.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29364.jpgsave_picture_29364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29364.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CD9EE58E54E3595997BDDCB555F3F78F3914B404
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29365.jpgsave_picture_29365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29365.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29366.jpgsave_picture_29366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29366.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ QOwnNotes 25.1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29367.jpgsave_picture_29367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29367.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:596FB044920A43227FD5F96B7FF5BED602769A49
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29368.jpgsave_picture_29368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29368.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29369.jpgsave_picture_29369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29369.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:C6A284A3052D8D0B56F42F55F0FF2BFCF5A12F81
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29370.jpgsave_picture_29370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29370.jpg" />
 </div>
 
 

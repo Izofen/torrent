@@ -6,7 +6,7 @@ Firefox Browser 122.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121538.jpgsave_picture_121538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121538.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6A9B6D047D85386495C7738275ECEEE88B58D421
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121539.jpgsave_picture_121539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121539.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BB3AE08043BEE740058C27A3540E3254790DEA83
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121540.jpgsave_picture_121540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121540.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2AF2B8F9239383518A45F577C8D06EF4AA37F2BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121541.jpgsave_picture_121541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121541.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:86382A03E842E9FFBC3B39E63E89AF5A86F027AB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121542.jpgsave_picture_121542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121542.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6E3E44C25623695ED252BA724D2B4F460BEC76D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121543.jpgsave_picture_121543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121543.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F8D04828F17DF15E8E13410091D7EA0C16575A16
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121544.jpgsave_picture_121544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121544.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:01F92DA3BFD303AC41E8E143B493314EF66A637F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121545.jpgsave_picture_121545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121545.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E4653F20C5429F31AC65075A03E45CA766EFA2FA
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121546.jpgsave_picture_121546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121546.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:530EA58A32A9BAC20591717E76CC21B1B3DEF5E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121548.jpgsave_picture_121548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121548.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:50134169D77C9F2F2D2AAFEBCF48894747C0B9D2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121549.jpgsave_picture_121549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121549.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Imagine 1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121550.jpgsave_picture_121550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121550.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:545669EE6FD00776C22C358195D5C81BA541D026
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121551.jpgsave_picture_121551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121551.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ TweakPower 2.049 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121552.jpgsave_picture_121552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121552.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121553.jpgsave_picture_121553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121553.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Malwarebytes Windows Firewall Control 6.9.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121554.jpgsave_picture_121554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121554.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Ori Uplift - Uplifting Only Episode 661 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121555.jpgsave_picture_121555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121555.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:782104B868A73A1885F57CC2A87B759857B7C461
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121556.jpgsave_picture_121556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121556.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121557.jpgsave_picture_121557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121557.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:AB3D962F4071AD6B5E48EC8FD8F0D0438C7D033A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121558.jpgsave_picture_121558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121558.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MEDUZA - Live @ La Torre Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Tech House, M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121559.jpgsave_picture_121559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121559.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5555058404B56A1E7266031C45A8A7790B34AA44
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121560.jpgsave_picture_121560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121560.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Black Hole Trance Music 10-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121561.jpgsave_picture_121561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121561.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Black Hole House Music 10-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121563.jpgsave_picture_121563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121563.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:EDAE34293015ED2BA7BAFC0FDFF621E0DAE1A692
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121564.jpgsave_picture_121564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121564.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121565.jpgsave_picture_121565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121565.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dorling Kindersley | Как работает наука. Наглядные фа
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187699.jpgsave_picture_187699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:292C7D5B3323A4098CA279CDBE0D7FF05AB61B26
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187700.jpgsave_picture_187700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adguard 7.11.2 (7.11.4104.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187701.jpgsave_picture_187701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187701.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 117.0.5938.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187702.jpgsave_picture_187702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187702.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6A55175095FA27BAF47C8B7FCA7D942C40682A45
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187703.jpgsave_picture_187703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187703.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187704.jpgsave_picture_187704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187704.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WinToUSB Technician 7.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187705.jpgsave_picture_187705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187705.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Bartender 4 4.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187708.jpgsave_picture_187708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187708.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1AD7C2C52B704040103B5BE51633B3AAE3484891
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187709.jpgsave_picture_187709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187709.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C6759321133AB54B533C59B295511229C0D6E6E6
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187710.jpgsave_picture_187710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187710.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:77C50D005D49F74E18BB19249ED52FBB2FDA543F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187711.jpgsave_picture_187711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187711.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D6D2F35B4AE709C5229DD50601D586757F8D4F6B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187712.jpgsave_picture_187712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187712.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6E76D7DB649F0006F2BA2A4AB93F23C7BC1E1CA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187713.jpgsave_picture_187713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187713.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:76197B458EF91F8F67B1F82F9BD3A94E675E7448
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187714.jpgsave_picture_187714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187714.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ OneCommander Pro 3.52.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187715.jpgsave_picture_187715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187715.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187716.jpgsave_picture_187716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187716.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187717.jpgsave_picture_187717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187717.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187718.jpgsave_picture_187718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187718.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ WinCatalog 2024.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187719.jpgsave_picture_187719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187719.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:BE38804E2E73C4FA4D1595195F01B3EABE85BF6F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187720.jpgsave_picture_187720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187720.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Designlectures, Ольга Косырева | Коллекционный диз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187721.jpgsave_picture_187721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187721.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ CCleaner 6.06.10144 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187722.jpgsave_picture_187722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187722.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Soft Organizer Pro 9.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187723.jpgsave_picture_187723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187723.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1898BC12FC06F6A296EC3251F82076FCBB98066B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187724.jpgsave_picture_187724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187724.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A2D660A5B920EDEA3ED7B0766634A4D053E84258
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187725.jpgsave_picture_187725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187725.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Find Same Images OK 5.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187726.jpgsave_picture_187726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187726.jpg" />
 </div>
 
 

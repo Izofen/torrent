@@ -6,7 +6,7 @@ SequoiaView 1.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197811.jpgsave_picture_197811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197811.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ jv16 PowerTools 8.1.0.1564 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpgsave_picture_198577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ ThisIsWin11 1.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpgsave_picture_198614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpgsave_picture_199794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Reg Organizer 9.89 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpgsave_picture_199797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpgsave_picture_199970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ WindowManager 10.23.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpgsave_picture_201856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ NirLauncher Package 1.30.21 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpgsave_picture_201871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Reg Organizer 9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpgsave_picture_202215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Total Uninstall 7.3.1 Professional Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpgsave_picture_202655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Total Uninstall 7.3.1 Professional Edition [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202702.jpgsave_picture_202702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202702.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WinExt Pro 30.0 (ключ COMSS) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202704.jpgsave_picture_202704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202704.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202716.jpgsave_picture_202716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202716.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Airytec Switch Off 3.5.0.950 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpgsave_picture_204187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpgsave_picture_205671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ LiveTcpUdpWatch 1.51  Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207907.jpgsave_picture_207907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207907.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Task Manager DeLuxe 4.8.0.0 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpgsave_picture_208908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by JooSeng [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208977.jpgsave_picture_208977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208977.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ TaskSchedulerView 1.73 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpgsave_picture_209154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ ReviverSoft Driver Reviver 5.42.2.10 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpgsave_picture_209604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209955.jpgsave_picture_209955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209955.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ CPUID HWMonitor Pro 1.52.0 (x64) Portable by FC Portables [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpgsave_picture_211018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Glary Utilities Pro 6.33.0.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpgsave_picture_212271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ W10Privacy 5.3.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpgsave_picture_212273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Revo Uninstaller Free 2.6.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpgsave_picture_212408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PrivaZer Pro 4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213421.jpgsave_picture_213421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213421.jpg" />
 </div>
 
 

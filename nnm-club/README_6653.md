@@ -6,7 +6,7 @@ YT Downloader 9.2.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224699.jpgsave_picture_224699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 116.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224707.jpgsave_picture_224707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224707.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224759.jpgsave_picture_224759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224759.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224766.jpgsave_picture_224766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224766.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A2195668545B1D3FB7C60F5B46DDBFA65722C061
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224771.jpgsave_picture_224771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224771.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9AFDA63CD2A5729C390079548F6D06C6B385CA34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224778.jpgsave_picture_224778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224778.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224785.jpgsave_picture_224785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224785.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ StaxRip 2.25.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224789.jpgsave_picture_224789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224789.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0797901B8A85F3FF1BB2D688E93ED8BBD1EB4E02
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224795.jpgsave_picture_224795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224795.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224804.jpgsave_picture_224804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224808.jpgsave_picture_224808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224808.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Things 3 v.3.17.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224817.jpgsave_picture_224817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224817.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Topaz Video AI for Mac 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224823.jpgsave_picture_224823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224823.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:31A1EA9C6FAEDFD0C1EC05C5E3D4D695C7E4DE0F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224828.jpgsave_picture_224828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224828.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224838.jpgsave_picture_224838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224845.jpgsave_picture_224845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224845.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5E3CCFF761234B396DA52DA07523C4D89536CECA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224852.jpgsave_picture_224852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224852.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Stefan Kaiser - 6 Albums (2018-2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224860.jpgsave_picture_224860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224860.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224867.jpgsave_picture_224867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224867.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224879.jpgsave_picture_224879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224879.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224888.jpgsave_picture_224888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224888.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Divisiv - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224897.jpgsave_picture_224897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224897.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224938.jpgsave_picture_224938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224938.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Live Wallpaper & Themes 4K Pro 17.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224948.jpgsave_picture_224948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224948.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:91C0350BE1166B61FBA395DC8BE0832F2CF48ABF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224959.jpgsave_picture_224959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224959.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Dynamic Wallpaper Engine 15.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224965.jpgsave_picture_224965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224965.jpg" />
 </div>
 
 

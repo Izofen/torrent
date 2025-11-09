@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147842.jpgsave_picture_147842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147842.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:50869D307B76BDE54CEAE1DD6E9C99A3D4CD89B1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147844.jpgsave_picture_147844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147844.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AADA1203DA4C6B4F86A9DBC034589E637CD3F217
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147845.jpgsave_picture_147845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147845.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Grand Theft Auto: Vice City (2003) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147846.jpgsave_picture_147846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147846.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Program4Pc Photo Editor 7.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147847.jpgsave_picture_147847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147847.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B1853FE8160EC57E75102B799634A68D9259383F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147848.jpgsave_picture_147848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147848.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B1853FE8160EC57E75102B799634A68D9259383F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147849.jpgsave_picture_147849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147849.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8DACB110557D8928733A34C6EC71C1C338C33F2D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147851.jpgsave_picture_147851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147851.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ TechTool Pro 15 v15.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147852.jpgsave_picture_147852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147852.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Path of Exile (2013) [Ru/Multi] (3.5.1) License
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147853.jpgsave_picture_147853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147853.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ XMind Pro 11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147854.jpgsave_picture_147854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147854.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7A6970D62E237D50BD3D0B1D6C6E50F100A43C05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147855.jpgsave_picture_147855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147855.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F9391D2076A766A57312FFDD0B3E38A774CACBE4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147857.jpgsave_picture_147857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147857.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9AF84B31D8D4A7CFCB28C963BF3411F7AFE27003
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147859.jpgsave_picture_147859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147859.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:390BE127F1651B8D4F02C57AAB43A667194DEE0D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147860.jpgsave_picture_147860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147860.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tipard DVD Creator for Mac 3.2.38 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147861.jpgsave_picture_147861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147861.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1AD985D1C973362B7BA4601561CEBC886FE8724A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147862.jpgsave_picture_147862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147862.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:8EF4A4DF01742D607B8ABE7B29CCC9F1FB0D20F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147863.jpgsave_picture_147863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147863.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147864.jpgsave_picture_147864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147864.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpgsave_picture_147865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147866.jpgsave_picture_147866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147866.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Selection Project OST (2021) [FLAC|tracks] <4CD+OP+ED+OST+Character Song>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147867.jpgsave_picture_147867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147867.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Notebooks – Write and Organize 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147868.jpgsave_picture_147868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147868.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FCA5B8D2CA98CEED046E52B10F5EDD6719CC3AA6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147870.jpgsave_picture_147870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147870.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:65C6C5D3C2D194010262B455B45A9456F4737168
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147871.jpgsave_picture_147871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147871.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Maxx - To The Maxximum (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Euro Hou
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147872.jpgsave_picture_147872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147872.jpg" />
 </div>
 
 

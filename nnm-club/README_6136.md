@@ -6,7 +6,7 @@ CPUID HWMonitor 1.52.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192915.jpgsave_picture_192915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:40ED40ED854FFD8B8A0DB825CAE712EA10F6E769
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192916.jpgsave_picture_192916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192916.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A1294605106D7926CE99B94488BACFB27902E4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192917.jpgsave_picture_192917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192917.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192918.jpgsave_picture_192918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192918.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:11FA63D23C59B24BA83010243533284988C1F697
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192919.jpgsave_picture_192919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192919.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192920.jpgsave_picture_192920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192920.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192921.jpgsave_picture_192921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192921.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:17F7E69C794613C29F208AAC6B57C1143F0A48A6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192922.jpgsave_picture_192922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192922.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192923.jpgsave_picture_192923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192923.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192924.jpgsave_picture_192924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192924.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2979DCD36A731B629749141D57CB2873A726D36B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192925.jpgsave_picture_192925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192925.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192926.jpgsave_picture_192926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192926.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Faith in Jane - Axe to Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192927.jpgsave_picture_192927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192927.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D3AE5AAF087D4CC21E9DCC07AD79B9F90370BDF0
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192928.jpgsave_picture_192928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192928.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192929.jpgsave_picture_192929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192929.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Orianthi - Rock Candy (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192930.jpgsave_picture_192930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192930.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:04F007231BEB09653383664452F3BC995D90C0E9
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192931.jpgsave_picture_192931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192931.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192932.jpgsave_picture_192932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192932.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192933.jpgsave_picture_192933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192933.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Total Commander 11.01 (02.09.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192934.jpgsave_picture_192934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192934.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:5C493C1C4051D01D28DE29BDB791F97DC619C710
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192935.jpgsave_picture_192935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192935.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192936.jpgsave_picture_192936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192936.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:501523777E7A55599E40834868D497868FD41C68
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192937.jpgsave_picture_192937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192937.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:727B923ECD69287D55E8F764FD2B6B3A75FB6F75
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192938.jpgsave_picture_192938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192938.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ StartAllBack 3.6.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192939.jpgsave_picture_192939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192939.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:1E4F48972828D5A4D7C101ED4943DAB397A9B95A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192940.jpgsave_picture_192940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192940.jpg" />
 </div>
 
 

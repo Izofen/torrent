@@ -6,7 +6,7 @@ ON1 NoNoise A 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211913.jpgsave_picture_211913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211913.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211914.jpgsave_picture_211914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211914.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211916.jpgsave_picture_211916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211916.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Chillout Spring Gems 2023: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211918.jpgsave_picture_211918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211918.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B87D2CA6115AD379323BFC109A64000E0716181B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211921.jpgsave_picture_211921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211921.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:32C6749B234CFB0F2CBB55F3304C42111FBC22EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211922.jpgsave_picture_211922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211922.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Christine and the Queens - PARANOIA, ANGELS, TRUE LOVE (2023) [FLAC 24/176.4|Los
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211926.jpgsave_picture_211926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211926.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ MacCleaner 3 PRO 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211928.jpgsave_picture_211928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211928.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ IObit Uninstaller Pro 12.5.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211931.jpgsave_picture_211931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211931.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Alice Cooper - Killer (1971) 2 CD, Expanded and Remastered, 2023, Rhino - Warner
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211933.jpgsave_picture_211933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211933.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpgsave_picture_211934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Konstantin Klashtorni - Best So Far (Chillaxing Jazz Kollektion) (2023) Compilat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211937.jpgsave_picture_211937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211937.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Trance Anthems (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211940.jpgsave_picture_211940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211940.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:4C85318DD25821A699B538270ACF80D73A67F0FF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211943.jpgsave_picture_211943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211943.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:20ED977FA967F6AFECD272893B016DEAF416AF7D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211946.jpgsave_picture_211946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211946.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ OCCT 12.0.7 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211947.jpgsave_picture_211947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211947.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ JixiPix Chromatic Edges 1.0.26 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpgsave_picture_211950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Zoner Photo Studio X 19.2303.2.463 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211951.jpgsave_picture_211951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211951.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:2EC97A77FBA09AAA281A9788EB983BCED8B81382
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211952.jpgsave_picture_211952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211952.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Autorun Organizer 5.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211956.jpgsave_picture_211956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211956.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ IObit Driver Booster Pro 10.5.0.139 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211958.jpgsave_picture_211958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211958.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:827A2424D5AF2D0AA200A3952C8C4882E0D08627
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211961.jpgsave_picture_211961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211961.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:12E6521B76B7408DFDD26D7AAB20DDE37CFEC292
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211962.jpgsave_picture_211962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211962.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A19C6F4565FD65BD220A34E4ED56FC1C807A5A9D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211964.jpgsave_picture_211964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211964.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5D056C82B4459A167121E20654D31D49EB249176
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211965.jpgsave_picture_211965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211965.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AIMP 5.11 Build 2432 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211967.jpgsave_picture_211967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211967.jpg" />
 </div>
 
 

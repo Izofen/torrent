@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36677.jpgsave_picture_36677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Autumn Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36678.jpgsave_picture_36678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36678.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4ACD9154BDE3F6430F5587F18A413CD591662A97
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36679.jpgsave_picture_36679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36679.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:F6865EEFB971AB4613EE70C237FEA1BC063819AD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36680.jpgsave_picture_36680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36680.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Impellitteri - War Machine (2024) [FLAC|Lossless|tracks + .cue] <Heavy, Power, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36681.jpgsave_picture_36681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36681.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Jackie DeShannon - The Sherry Lee Show (2023) [MP3|320 Kbps] <Country, Soft>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36682.jpgsave_picture_36682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36682.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36683.jpgsave_picture_36683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36683.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:F01932BCCB9607F5EC6FC443117CFCE05E0FDA42
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36684.jpgsave_picture_36684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36684.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ FastFlix 5.8.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36685.jpgsave_picture_36685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36685.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Ultimaker Cura 5.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36686.jpgsave_picture_36686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36686.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F9F5F37E9752E77828C10C8BB04D4DE460EE3746
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36687.jpgsave_picture_36687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36687.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E5A32E9E95A280C5653DCD8B382AD8EE93459323
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36688.jpgsave_picture_36688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36688.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:4DFA5660E89D254B03F2F4248109008C1B66978D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36689.jpgsave_picture_36689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36689.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36690.jpgsave_picture_36690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36690.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:84EF63F199F998F7A5E31903224D1EA97A4E16E2
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36691.jpgsave_picture_36691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36691.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:84EF63F199F998F7A5E31903224D1EA97A4E16E2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36692.jpgsave_picture_36692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36692.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ UltraSearch Professional 4.6.0.1091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36693.jpgsave_picture_36693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36693.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36694.jpgsave_picture_36694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36694.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36695.jpgsave_picture_36695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36696.jpgsave_picture_36696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36696.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36697.jpgsave_picture_36697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36697.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:C695919EA92FEB12DCF7C7740E1161293D76B1DE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36698.jpgsave_picture_36698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36698.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Display Driver Uninstaller 18.0.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36699.jpgsave_picture_36699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36699.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|image + .cue] 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36700.jpgsave_picture_36700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36700.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ WizFile 3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36701.jpgsave_picture_36701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36701.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F23D718D883FFC71076CF1BAC39B87983E34A976
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpgsave_picture_36702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpg" />
 </div>
 
 

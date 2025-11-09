@@ -6,7 +6,7 @@ Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69591.jpgsave_picture_69591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69591.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69602.jpgsave_picture_69602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69602.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Irony Of Fate - Equinox (2025) [MP3|320 Kbps] <Melodic Death Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69615.jpgsave_picture_69615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69615.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lizzy Morisson - Succubi Smile (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69627.jpgsave_picture_69627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69627.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dream Theater - Old Bridge, New Jersey (1996) 2 x CD, Reissue, Special Edition, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69630.jpgsave_picture_69630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69630.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69679.jpgsave_picture_69679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69679.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Surmachina - Хождение за три моря (2025) [MP3|~245 Kbps (V0)] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69691.jpgsave_picture_69691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69691.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Avatar Of Hate - Necrotic Awakening (2025) [MP3|320 Kbps] <Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69694.jpgsave_picture_69694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69694.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Roadrunner United - The Concert (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69695.jpgsave_picture_69695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69695.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Disturbed - The Sickness (2000) Reissue, 2025, Reprise Records, 25th Anniversary
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69701.jpgsave_picture_69701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69701.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69728.jpgsave_picture_69728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69728.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69740.jpgsave_picture_69740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69740.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69742.jpgsave_picture_69742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69742.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69745.jpgsave_picture_69745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69745.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lightning Swells Forever - Delirium (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69746.jpgsave_picture_69746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69746.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lumen - Три пути. 20 лет (2025) Live [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69752.jpgsave_picture_69752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69752.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Delain - Dance With The Devil (2024) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69765.jpgsave_picture_69765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69765.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mercury Tide - Walls Of Confusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69821.jpgsave_picture_69821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69821.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpgsave_picture_69832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69855.jpgsave_picture_69855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69855.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69863.jpgsave_picture_69863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69863.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpgsave_picture_69869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Vapors - Wasp in a Jar (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69895.jpgsave_picture_69895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69895.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Red Eye - III (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69897.jpgsave_picture_69897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69897.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Fun Mode - Падший ангел, vol.1 / Vol.2 (2023-2025) [MP3|320 Kbps] <Al
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69906.jpgsave_picture_69906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69906.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:218BF8C7AAD70C99D3340545619B256230BF19DF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69914.jpgsave_picture_69914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69914.jpg" />
 </div>
 
 

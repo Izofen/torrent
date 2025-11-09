@@ -6,7 +6,7 @@ Affinity Photo 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61753.jpgsave_picture_61753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E5805D8DBC8C67C3D544E7A8FCC44B6BEE646E4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61754.jpgsave_picture_61754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61754.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6DD9B9B1C2D086E7013D11ADE3322FFF03496EC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61755.jpgsave_picture_61755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61755.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:206C46D67F8F8F1659A2D812BA8C86FD967BF45B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61756.jpgsave_picture_61756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61756.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61757.jpgsave_picture_61757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61757.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Internet Download Manager 6.42 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61758.jpgsave_picture_61758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61758.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Snappy Driver Installer Origin R762 | Драйверпаки 24.03.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61759.jpgsave_picture_61759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61759.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:93575A340DEFCE7D714E0C71FEBC0C68700F61BB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61760.jpgsave_picture_61760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61760.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:93575A340DEFCE7D714E0C71FEBC0C68700F61BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61761.jpgsave_picture_61761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61761.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:90744C46B9D23D6E3B3EA3621EF8D96F29F76C04
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61762.jpgsave_picture_61762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61762.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61763.jpgsave_picture_61763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61763.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:18626E8AB5591D5C558AE0F44A9EB30F4419ED9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61764.jpgsave_picture_61764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61764.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B4517250FE1C9C05A4280D317A7664C70E5B692E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61765.jpgsave_picture_61765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61765.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:61EB5A96DDCC1CDCBECA3BF134984AC3412DCA42
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61766.jpgsave_picture_61766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61766.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XMind Pro 2024 24.01.14362 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61767.jpgsave_picture_61767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61767.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61768.jpgsave_picture_61768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61768.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpgsave_picture_61769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:B2E7C68C1D8066F8FDBC36B65886DF52334C3A0B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61770.jpgsave_picture_61770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61770.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3D5E28B3784307CAC08098AE630BE3E4EAE252CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61771.jpgsave_picture_61771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61771.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Samsung SSD Magician Tool 8.1.0.800 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61772.jpgsave_picture_61772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61772.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repa
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61773.jpgsave_picture_61773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61773.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:AB8ED00A3929D94CDA7710202B2DB1A9050A9F02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61774.jpgsave_picture_61774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61774.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:92F8F7C6746C3782316521A225D4E95E26957D52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61775.jpgsave_picture_61775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61775.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EDC193DD4474F676B935D97AF8B54F8A4799680B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61776.jpgsave_picture_61776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61776.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:2231ABCC999D8C2172D9EDD2F2E21A9327599E83
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61777.jpgsave_picture_61777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61777.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:14D9A730EB80D13F86BFA15A3F1B5A273E965F6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61778.jpgsave_picture_61778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61778.jpg" />
 </div>
 
 

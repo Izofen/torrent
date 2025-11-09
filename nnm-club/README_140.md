@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3690.jpgsave_picture_3690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3690.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7085C33D8E8439FC07D293F71C00D4B26FC88C07
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3691.jpgsave_picture_3691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3691.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Connor Helm - They Call Me Copperhead (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3692.jpgsave_picture_3692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3692.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:01F21AC6C0A59526A661337834429B9B7CCE927F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3693.jpgsave_picture_3693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3693.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D360D49830C279DAB6AF8C7D67F480E8D24763F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3694.jpgsave_picture_3694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3694.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Another Saturday Night: Rock Until Dawn (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3695.jpgsave_picture_3695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3695.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Blue Submarine - Reimagine (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3696.jpgsave_picture_3696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3696.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:26CD19F254E50664CA401BA3B2464445C31351A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3697.jpgsave_picture_3697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3697.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stan Bush - Born For Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3698.jpgsave_picture_3698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3698.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3699.jpgsave_picture_3699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3699.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3700.jpgsave_picture_3700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3700.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:89E637B24746B9CB7DF2BAC6FB3262D96AA24CB8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3701.jpgsave_picture_3701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3701.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Degreed - The Leftovers, Vol. 1 (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3702.jpgsave_picture_3702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3702.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:B60012B386F4DB359E7F017D613CB9EF03196B21
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3703.jpgsave_picture_3703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3703.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:510B3371CDF07C5474160B6EEEF23A2B157DC236
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3704.jpgsave_picture_3704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3704.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kirk Fletcher - Keep On Pushing (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3705.jpgsave_picture_3705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3705.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Denise Gordon & R&B Caravan - A Night in Vienna (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3706.jpgsave_picture_3706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3706.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Steelpreacher - Gimme Some Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3707.jpgsave_picture_3707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3707.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Erick Willis - Day & Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3708.jpgsave_picture_3708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3708.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jesse Dayton, Ian Moore, Johnny Moeller - Texas Headhunters (2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3709.jpgsave_picture_3709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3709.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Claudio Oliveira - Take Over (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3710.jpgsave_picture_3710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3710.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Jay Willie, Bobby T Torello - Still Raisin' Cane (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3711.jpgsave_picture_3711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3711.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Jimi 'Prime Time' Smith - It's My Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3712.jpgsave_picture_3712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3712.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0A76E909A4D829D56D4B2A81B6CEE569180BF4AD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3713.jpgsave_picture_3713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3713.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:F2B933314022E2A156C16021C8A346550EDBAFBB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3714.jpgsave_picture_3714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3714.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:A0C9209C1806A0DC50061E40BEDFD6216EEF313A
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3715.jpgsave_picture_3715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3715.jpg" />
 </div>
 
 

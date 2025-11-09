@@ -6,7 +6,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154501.jpgsave_picture_154501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EFA32CA65CDC14FC37EF8279E83138B14715A5B6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154502.jpgsave_picture_154502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154502.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop 2023: Adobe Camera 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154503.jpgsave_picture_154503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154503.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Calibre - Grow (2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154504.jpgsave_picture_154504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154504.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AAct Network 1.0.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154505.jpgsave_picture_154505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154505.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Opera One 105.0.4970.13 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154506.jpgsave_picture_154506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154506.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D642944562DDC2EC7F664ED94047FA63CEB0CD78
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154507.jpgsave_picture_154507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154507.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9250D9D753538ACC43E2EC89FF877F93C6E57374
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154508.jpgsave_picture_154508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154508.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:64C9390B65B1D1378ED38DA993058DE152275B2D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154509.jpgsave_picture_154509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154509.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1149FED8BED12C67322C9972DE1091B99E4856D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154510.jpgsave_picture_154510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154510.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154511.jpgsave_picture_154511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154511.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5407.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154512.jpgsave_picture_154512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154512.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Nero Burning ROM & Nero Express 2020 22.0.1008 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154513.jpgsave_picture_154513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154513.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154514.jpgsave_picture_154514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154514.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Smart Driver Manager Pro 7.1.1100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154515.jpgsave_picture_154515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154515.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:2734F9BC913499CE05603A6CD9743EC345706BC9
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154516.jpgsave_picture_154516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154516.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:6415B1B888A1B1718AC4A148F5707F19A0418F55
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154517.jpgsave_picture_154517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154517.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Disco Electronica Vol.36 (2018) [MP3|320 Kbps] <Deep House, Funky, Nu Disco
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154518.jpgsave_picture_154518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154518.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:349F7A2C3187C8B2959E263096BD7C46D708D4A0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154519.jpgsave_picture_154519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154519.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:CD93AC1E6C9A0E4E3C614B46E081B63B986A5DEB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154520.jpgsave_picture_154520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154520.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Kdenlive 23.08.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154521.jpgsave_picture_154521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154521.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154523.jpgsave_picture_154523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154523.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1140898A1613E1E8E979B1F7C9B6D7C9E19B97B9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154524.jpgsave_picture_154524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154524.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:11531771B3AF23C9AEC93B9BC9475C393E530586
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154525.jpgsave_picture_154525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154525.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:84B1E139E5A14446A2FF8B726C703E0CA85BC4BF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154526.jpgsave_picture_154526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154526.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154527.jpgsave_picture_154527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154527.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108033.jpgsave_picture_108033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108034.jpgsave_picture_108034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108034.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpgsave_picture_108035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpgsave_picture_108036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108037.jpgsave_picture_108037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108037.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108038.jpgsave_picture_108038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108038.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:E05AF4CC26C7258BA50444BAE2C5A129823F8928
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108039.jpgsave_picture_108039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108039.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:C1FBB5F48DBAB3A7F61D9D00EA4EE0079365C8BD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108040.jpgsave_picture_108040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108040.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:81B03351779F03C527F03931812CEE09584F2272
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108041.jpgsave_picture_108041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108041.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:DFC75974E257E3FCDF84C04B819C1DA2E1FAF33F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108042.jpgsave_picture_108042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108042.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Photo Studio PRO 2.7.5.2705 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108043.jpgsave_picture_108043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108043.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6DF9A1122AF83252DBF06FF7D26E91EE96754C0B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108044.jpgsave_picture_108044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108044.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108045.jpgsave_picture_108045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108045.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108046.jpgsave_picture_108046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108046.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:435278BB18A7BDB7468C3D55929A98AFE41E7324
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108047.jpgsave_picture_108047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108047.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Opera GX 109.0.5097.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108048.jpgsave_picture_108048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108048.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Firefox Browser 127.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108049.jpgsave_picture_108049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108049.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Carmen - The Albums: 1973-1975 (3CD Boxset) (2024) Remaster, 2024,  Esoteric [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108050.jpgsave_picture_108050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108050.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Borne of Ash - From the Dark, They Came (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108051.jpgsave_picture_108051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108051.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - DJ Hits Vol. 50 (Limited Edition) (1996) [OGG Vorbis|480 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108052.jpgsave_picture_108052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108052.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - DJ Hits 49 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108053.jpgsave_picture_108053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108053.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - DJ Hits 51 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108054.jpgsave_picture_108054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108054.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:2B32D208289451345BD9EC684584F2BA780EAC70
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108055.jpgsave_picture_108055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108055.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0CBC56B078482A440624135222D213F016869422
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108056.jpgsave_picture_108056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108056.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7846CC9D1B6D01F63370DD3623DE2B8B16078793
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108057.jpgsave_picture_108057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108057.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Draw.io 24.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108058.jpgsave_picture_108058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108058.jpg" />
 </div>
 
 

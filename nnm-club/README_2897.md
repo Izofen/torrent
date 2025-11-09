@@ -6,7 +6,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85145.jpgsave_picture_85145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85145.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7FAC0C22FBE2C85B6C31866AA56E582E258C2388
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85146.jpgsave_picture_85146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85146.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:E6355AC2072DBD14C528ABC65B93BF619B116C73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85147.jpgsave_picture_85147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85147.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E6355AC2072DBD14C528ABC65B93BF619B116C73
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85149.jpgsave_picture_85149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85149.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:CB4188FE4A0CA22B3BCA4A4283BA6D1C0ED9E4B6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85150.jpgsave_picture_85150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85150.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85151.jpgsave_picture_85151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85151.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85155.jpgsave_picture_85155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85155.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85156.jpgsave_picture_85156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85156.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7C2D3987DCB12A45C02C2F819EA2607ACD3F557E
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85157.jpgsave_picture_85157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85157.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:722E0501B6B7B1C560387C4D843C7121F932397C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85158.jpgsave_picture_85158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85158.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C9A2E8385727760E2EC38550A880F923859C3AD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85161.jpgsave_picture_85161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85161.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Autodesk AutoCAD Electrical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85163.jpgsave_picture_85163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85163.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ AutoCAD® Electrical – это AutoCAD® для проектировщиков 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85164.jpgsave_picture_85164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85164.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85165.jpgsave_picture_85165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85165.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:E1662BAA294D2D9C2995D5E4A3EB5B070133B55A
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85166.jpgsave_picture_85166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85166.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:E1662BAA294D2D9C2995D5E4A3EB5B070133B55A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85167.jpgsave_picture_85167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85167.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Autodesk AutoCAD Electrical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85169.jpgsave_picture_85169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85169.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ AutoCAD® Electrical – это AutoCAD® для проектировщиков 
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85173.jpgsave_picture_85173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85173.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85175.jpgsave_picture_85175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85175.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Windows Longhorn SkinPack 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85176.jpgsave_picture_85176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85176.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Longhorn - это как бы кодовое название Windows Vista во
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85177.jpgsave_picture_85177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85177.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Zолушка (2012) DVDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85178.jpgsave_picture_85178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85178.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AF1947D7395B261740D3C9513AFAF6CDBCD4A4C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85179.jpgsave_picture_85179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85179.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:AF1947D7395B261740D3C9513AFAF6CDBCD4A4C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85180.jpgsave_picture_85180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85180.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:57F37BF4ACDBBEAA6A7B24EFC31AB8E53853AB36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85182.jpgsave_picture_85182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85182.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Zолушка (2012) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85183.jpgsave_picture_85183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85183.jpg" />
 </div>
 
 

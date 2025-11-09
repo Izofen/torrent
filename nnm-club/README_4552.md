@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142446.jpgsave_picture_142446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142446.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ AIMP 4.00 Build 1683 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142447.jpgsave_picture_142447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142447.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Task Calendar 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142448.jpgsave_picture_142448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142448.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpgsave_picture_142450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - 5 Years of Hoofbeats Music (2021) [AAC|~335 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142451.jpgsave_picture_142451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142451.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ CorelDRAW Graphics Suite 2019 21.3.0.755 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142452.jpgsave_picture_142452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142452.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dism++ 10.1.21.1B Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142454.jpgsave_picture_142454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142454.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142455.jpgsave_picture_142455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142455.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpgsave_picture_142456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:62F8A192B476E35CFC75C4BCFA0862A5C0293BA4
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142457.jpgsave_picture_142457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142457.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:404F1AD9574BFB37C62AF7619AC74C3E883804D7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142459.jpgsave_picture_142459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142459.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142461.jpgsave_picture_142461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142461.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:47416C99B43E7A57C41F298B641BA39CA357A26C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142463.jpgsave_picture_142463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142463.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpgsave_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142465.jpgsave_picture_142465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142465.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Pi V/A (2021) [AAC|~328 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142466.jpgsave_picture_142466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142466.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:503F0C3EC4846B9E9576257A77B508DC3B0661DE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142469.jpgsave_picture_142469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142469.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:4FAB71C15E73589535635047FD9AFAB0603EEB01
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142470.jpgsave_picture_142470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142470.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Sensual Winter Chill, Vol. 2 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142471.jpgsave_picture_142471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142471.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142472.jpgsave_picture_142472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Basilisk 2018.12.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142474.jpgsave_picture_142474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142474.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:806EA8EB795A82CA1281FE8764873BE22C126A67
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142475.jpgsave_picture_142475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142475.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142476.jpgsave_picture_142476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142476.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ CleanMyMac 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142477.jpgsave_picture_142477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142477.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpgsave_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142480.jpgsave_picture_142480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142480.jpg" />
 </div>
 
 

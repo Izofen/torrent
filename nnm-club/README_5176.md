@@ -6,7 +6,7 @@ Skype 8.92.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161322.jpgsave_picture_161322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161322.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:03B798DB4F18046BC406C31822D0E6B1818C86BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161323.jpgsave_picture_161323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161323.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TweakNow WinSecret Plus! 4.9.12 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161324.jpgsave_picture_161324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161324.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Color Wheel 4.9 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161325.jpgsave_picture_161325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161325.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Comodo Dragon 108.0.5359.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161326.jpgsave_picture_161326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161326.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Light? - Standard of Ridiculous Accident (2022) [FLAC|Lossless|image + .cue] <In
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161327.jpgsave_picture_161327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161327.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ O&O Defrag Professional 25.2 Build 7405  RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161328.jpgsave_picture_161328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161328.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:63F2B678546484D9168F7408F35B4A06EEA3E434
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161329.jpgsave_picture_161329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161329.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Dream Theater - The Number of the Beast (2002) Reissue, Remastered, Special Edit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161330.jpgsave_picture_161330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161330.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Special D. - You (2023 mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161331.jpgsave_picture_161331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161331.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:83FE805B5992142213CA35B3FDD52FAC2BBDD973
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161332.jpgsave_picture_161332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161332.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:83FE805B5992142213CA35B3FDD52FAC2BBDD973
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161333.jpgsave_picture_161333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161333.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B60D003285B46121252AC6705639028495F4D78A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161334.jpgsave_picture_161334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161334.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3CC458DF18914F9C9BF9CE4ECB5DD96E64AE58BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161335.jpgsave_picture_161335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161335.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0080A83DE4D7D073BCDE123C9F8FF937A8CBB4D1
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161336.jpgsave_picture_161336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161336.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:057E1D2A4F0A2EDE7AFAF476A9C8FFD4C1B3477D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161337.jpgsave_picture_161337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161337.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Reternity - A Test of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161338.jpgsave_picture_161338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161338.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9A8B1371E5427FB53572D220F91F4E99B1D0A86B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161339.jpgsave_picture_161339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161339.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:4752DEC7464C81F4D231EBD196F85C1FC580A44D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161340.jpgsave_picture_161340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161340.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google анонсировала выход ОС Android 12 Go. Об этом с�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161341.jpgsave_picture_161341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161341.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Opera GX 93.0.4585.78 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161342.jpgsave_picture_161342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161342.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2E930E410E14A6A5B1D11268C36632825E201764
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161343.jpgsave_picture_161343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161343.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:ABBF0E56B2EA875824A937749FBE70422EBED9D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161344.jpgsave_picture_161344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161344.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F42D96524A22E54A344F5D7B71A75F466B60D368
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161345.jpgsave_picture_161345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161345.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:3125808EB13527A8CE70688E74EEA5D888F3E4A2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161347.jpgsave_picture_161347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161347.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Aiseesoft Screen Recorder 2.6.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161348.jpgsave_picture_161348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161348.jpg" />
 </div>
 
 

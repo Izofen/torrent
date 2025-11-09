@@ -6,7 +6,7 @@ Guild Of Ages - One (1998) [FLAC|Lossless|image + .cue] <Progressive & Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244449.jpgsave_picture_244449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244449.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244450.jpgsave_picture_244450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244450.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Whitney Houston - Don't Cry For Me (2023) The Remixes [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244451.jpgsave_picture_244451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244451.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Notes from the Depth, Vol. 8 (2019) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244452.jpgsave_picture_244452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244452.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Dancefloor Clubbing (2016) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244453.jpgsave_picture_244453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244453.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:17551023AD8EE15F52A4B58BFB5D678F94EAB170
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244454.jpgsave_picture_244454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244454.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:C73A045848FCAD558B4267F5EA88A5F048C55BF6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244456.jpgsave_picture_244456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244456.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:90AB150B421ECBBA47BB5B5C5F47E48A952E0904
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244457.jpgsave_picture_244457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244457.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Wastewalker - Funeral Winds (2016) [MP3|320 Kbps] <Technical Melodic Death Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244458.jpgsave_picture_244458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244458.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8EAFE11206145CA838CD40B854E903D31A779B8E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244459.jpgsave_picture_244459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244459.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:2BDE0213769C5CBF52DEBAEA6945C4F25C92EA5E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244460.jpgsave_picture_244460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244460.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A04D2BB4210E6AA04FFF79F04701F7FDAC6165CD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244461.jpgsave_picture_244461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244461.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Notes from the Depth, Vol. 7 (2019) [AAC|~306 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244462.jpgsave_picture_244462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244462.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:24F63FD57CD3640AE46FCEC55329D85107826890
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244463.jpgsave_picture_244463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244463.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244464.jpgsave_picture_244464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244464.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Blur n Bokeh 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244465.jpgsave_picture_244465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244465.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Introdance: European EDM Mix (2016) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244466.jpgsave_picture_244466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244466.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Martin Hiska - Blue Times (2022) [AAC|~360 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244467.jpgsave_picture_244467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244467.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Witch Piss - Witch Piss (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244468.jpgsave_picture_244468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244468.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:023CF1118C312925A571FDCDC32FD8F6454240E9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244469.jpgsave_picture_244469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244469.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:870A355C33175EE883A372F0F0340CEA0EEAFFD9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244470.jpgsave_picture_244470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244470.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244471.jpgsave_picture_244471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244471.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244472.jpgsave_picture_244472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244472.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244473.jpgsave_picture_244473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244473.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244474.jpgsave_picture_244474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244474.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244475.jpgsave_picture_244475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244475.jpg" />
 </div>
 
 

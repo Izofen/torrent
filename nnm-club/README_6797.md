@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233864.jpgsave_picture_233864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233864.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:86240F8A53CDC6E9099963D4B1ACFF4B078BDB1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233865.jpgsave_picture_233865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233865.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233867.jpgsave_picture_233867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233867.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:153F5A916A863D9606BB60365E6FE011E4EFCDDD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233868.jpgsave_picture_233868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233868.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233869.jpgsave_picture_233869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233870.jpgsave_picture_233870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233870.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Hex A.D. - Astro Tongue in the Electric Garden (2020) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233871.jpgsave_picture_233871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233871.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Carpenter Brut - Leather Terror (2022) [FLAC|24/44.1|WEB-DL|tracks] <Darksynth, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233872.jpgsave_picture_233872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233872.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233874.jpgsave_picture_233874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233874.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233875.jpgsave_picture_233875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233875.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Kadavermarch - Into Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233876.jpgsave_picture_233876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233876.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ TransData: Internet Data Speed 2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233877.jpgsave_picture_233877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233877.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ W10Privacy 3.8.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233878.jpgsave_picture_233878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233878.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:5A947CC5F6F7D5D94D2B385D569EF7699EDAD1C3
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233879.jpgsave_picture_233879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233879.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ EazyDraw 10.12.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233880.jpgsave_picture_233880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233880.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpgsave_picture_233882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233882.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:589C577A676C22BA7CF5538116587E0FA30EAC6D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233883.jpgsave_picture_233883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233883.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233884.jpgsave_picture_233884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233884.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A0567F8D789FEE14535EEA46C8251847F9AF9BE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233885.jpgsave_picture_233885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233885.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A22FEDF3858C7E241B508E3FBE4F4A8DCEEBA9C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233886.jpgsave_picture_233886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233886.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Necronomicon - Constant to Death (2023) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233887.jpgsave_picture_233887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233887.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Shatter - 2 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233889.jpgsave_picture_233889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233889.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:2B2BE8E91802B58A3A8F58157AA6C5310B4123BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233890.jpgsave_picture_233890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233890.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Music News vol.264 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233891.jpgsave_picture_233891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233891.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ OCCT 12.0.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233892.jpgsave_picture_233892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233892.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233893.jpgsave_picture_233893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233893.jpg" />
 </div>
 
 

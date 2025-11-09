@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166243.jpgsave_picture_166243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166244.jpgsave_picture_166244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166244.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Rock For The Ages (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166245.jpgsave_picture_166245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166245.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hides 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166246.jpgsave_picture_166246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166246.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DCA65D0FD99193CAB7FA58729A74A0AC08FF8271
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166247.jpgsave_picture_166247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166247.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166248.jpgsave_picture_166248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166248.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ SimpleMind − Mind Mapping 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166249.jpgsave_picture_166249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166249.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:575D4584DBAFFB57FA9BC95DBACDADE373197401
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166250.jpgsave_picture_166250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166250.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166251.jpgsave_picture_166251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166251.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ ApolloOne - Photo Video Viewer 3.1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166252.jpgsave_picture_166252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166252.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ TinkerTool System 7 v7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166253.jpgsave_picture_166253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166253.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0285E890C383F3CB66F611E4FABA14017A108985
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166254.jpgsave_picture_166254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166254.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ iSnow 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166255.jpgsave_picture_166255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166255.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ GeoGebra 6.0.810.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166256.jpgsave_picture_166256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166256.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166257.jpgsave_picture_166257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166258.jpgsave_picture_166258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166258.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:4865E4DE190CC2B173D705499347782F4CE8389C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166259.jpgsave_picture_166259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166259.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Acon Digital Acoustica Premium Edition 7.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166260.jpgsave_picture_166260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166260.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166261.jpgsave_picture_166261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166261.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:03A94C7EB7D09A13DF2B89CE3F4F4C3545A4C474
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166262.jpgsave_picture_166262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166262.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ AnyTrans for iOS 8.8.0.20201214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166263.jpgsave_picture_166263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166263.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F52801A2CD63C2F39EA91D7F1538EDB645C5615C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166264.jpgsave_picture_166264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166264.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166265.jpgsave_picture_166265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166265.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:2C4902F9CF0644C8A45DB75C14632F2001C81E84
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166266.jpgsave_picture_166266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166266.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166267.jpgsave_picture_166267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166267.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166268.jpgsave_picture_166268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166268.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111595.jpgsave_picture_111595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111595.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Skype 8.117.0.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111596.jpgsave_picture_111596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111596.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Soft Cell - Torch E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111597.jpgsave_picture_111597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111597.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111598.jpgsave_picture_111598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111598.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:9BAE155354D2F8D7024CC6420C6DC009DB0BC4A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111599.jpgsave_picture_111599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111599.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111600.jpgsave_picture_111600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111600.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111601.jpgsave_picture_111601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111601.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:BAB6E554A0A20CD14FD5EDB09CB32AD960A82CDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111602.jpgsave_picture_111602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111602.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:CF2C46CC10EDDAE9994B671808D65AB6E97A45E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111603.jpgsave_picture_111603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111603.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:AC05BD4818D5877EF107BD2295033D25D038D1D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111604.jpgsave_picture_111604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111604.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpgsave_picture_111605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111606.jpgsave_picture_111606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111606.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:6CA97D7FD9F538C3B1CE4A7D4D64A8304364B6A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111607.jpgsave_picture_111607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111607.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:6CA97D7FD9F538C3B1CE4A7D4D64A8304364B6A8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111608.jpgsave_picture_111608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111608.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Lolly Allen - Coming Home (2016) 2019, OA2 Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111609.jpgsave_picture_111609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111609.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:B5C2BFFC297AA5B215A0FACF399A3AABD6A171DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111610.jpgsave_picture_111610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111610.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:EE5F78D089697978985C17EC6DF983410247C986
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111611.jpgsave_picture_111611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111611.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111612.jpgsave_picture_111612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111612.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Asomvel - Born To Rock 'n' Roll (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111613.jpgsave_picture_111613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111613.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Topaz Gigapixel AI 7.1.1 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111614.jpgsave_picture_111614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111614.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8E276B94A6C4961B73F1E8F1659E8087A9CBB88F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111615.jpgsave_picture_111615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111615.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ O&O Defrag Professional 28.0 Build 10010 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111616.jpgsave_picture_111616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111616.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F9E7CB331E62B94012972400D09E765248A12506
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111617.jpgsave_picture_111617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111617.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Google Chrome 123.0.6312.123 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111618.jpgsave_picture_111618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111618.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FontViewOK 8.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111619.jpgsave_picture_111619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111619.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111620.jpgsave_picture_111620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111620.jpg" />
 </div>
 
 

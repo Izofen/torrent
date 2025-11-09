@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124469.jpgsave_picture_124469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124469.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5A6820E48CA33E7FF42704C171A8AECA2A58A0F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124470.jpgsave_picture_124470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124470.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BCCF620FCC0BE5FD96C96E8BB6BD93B50802A642
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124471.jpgsave_picture_124471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124471.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D47C1DC3CD518E360A5786D7EC1BB40882361780
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124472.jpgsave_picture_124472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124472.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C994535AED2FC9865BA1DF9DF66781DFCB8A59CA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124473.jpgsave_picture_124473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124473.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E98FFCAC41E01974CEFEAB46AC06C95ECC7E135F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124474.jpgsave_picture_124474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124474.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4832AF5C12C3AC869BD2F83A83BC121B96A675ED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124475.jpgsave_picture_124475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124475.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8FBAE0835971DC7D7A0DBF8A44D70C5E6CFB9C68
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124476.jpgsave_picture_124476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124476.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:82A6B960AA88067C43491FEA29A190EEE6FAC425
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124477.jpgsave_picture_124477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124477.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:14D96DCC5B62B20541ED9C25A42641F4775C4899
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124478.jpgsave_picture_124478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124478.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:010DD5ED692069091E25702C8FF70A70BBCBD8D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124479.jpgsave_picture_124479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124479.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C9FBE47F9639357E2880BDB517031E15D93AFBD0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124480.jpgsave_picture_124480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124480.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:967C105FC2D6368EA960F46E128A09C1D827ED01
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124481.jpgsave_picture_124481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124481.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6C05EE72EC25F679977618D783328A4E84C210D6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124482.jpgsave_picture_124482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124482.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:345C86BAC5D9E507B644B9A3F2466471CC8629B9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124483.jpgsave_picture_124483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124483.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:64B3FFCB0F8848F0C44309DBD1E5E709DA45675A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124484.jpgsave_picture_124484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124484.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3B5A379B5AAB5F9E677092963B5A20D3BDA99D67
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124486.jpgsave_picture_124486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124486.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124487.jpgsave_picture_124487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124487.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124488.jpgsave_picture_124488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124488.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124489.jpgsave_picture_124489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124489.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Wucan - Axioms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124490.jpgsave_picture_124490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124490.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124491.jpgsave_picture_124491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124492.jpgsave_picture_124492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124492.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:593B0E1B2980E5B42608DE99ACB83C07D12F8094
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124493.jpgsave_picture_124493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124493.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Strangers - Boundless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124494.jpgsave_picture_124494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124494.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6F390E2E93D8BE10628A733C5218D50B274FC0A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124495.jpgsave_picture_124495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124495.jpg" />
 </div>
 
 

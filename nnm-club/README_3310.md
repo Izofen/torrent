@@ -6,7 +6,7 @@ VA - 9 Years, Pt. 1 (2024) [MP3|320 Kbps] <Progressive House, Organic House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106421.jpgsave_picture_106421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Photo Supreme 2024.2.2.6590 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106422.jpgsave_picture_106422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106422.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Dance Zone Level 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106423.jpgsave_picture_106423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106423.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpgsave_picture_106424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106425.jpgsave_picture_106425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106425.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:44796AE074CA1AB8E967E72E23E5A39508C6C809
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106426.jpgsave_picture_106426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106426.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EFF909C4CD011F9846C0BF6C213AFA7A65E72113
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106427.jpgsave_picture_106427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106427.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:B071E1CFA425231902DB3B0F3382756463B69911
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106428.jpgsave_picture_106428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106428.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4EBF1B6F78E7E3F1904633720466849D84CF3862
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106429.jpgsave_picture_106429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106429.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ R-Wipe & Clean 20.0.2465 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106430.jpgsave_picture_106430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106430.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ R-Studio Network 9.4 Build 191340 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106431.jpgsave_picture_106431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106431.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:B7D71CE3D0A3CA367564F5DC9A8D896422A4F4F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106432.jpgsave_picture_106432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106432.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106433.jpgsave_picture_106433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106433.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpgsave_picture_106434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ R-Studio Network / Technician 9.4 Build 191340 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106435.jpgsave_picture_106435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106435.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:22FFC69D916EC634C877375AACDA596C02355E22
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106436.jpgsave_picture_106436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106436.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106437.jpgsave_picture_106437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106437.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpgsave_picture_106438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106439.jpgsave_picture_106439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106439.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F566DCACDDF4FA3CB664F09E781EEAF9D7A26C67
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106440.jpgsave_picture_106440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106440.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106441.jpgsave_picture_106441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106441.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9E0921BCA5CCE1685F788B0CCB435E8AD0A1C0A1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106442.jpgsave_picture_106442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106442.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Space 92 - Live @ Musée Aeroscopia Toulouse, France 2024-06-01 (2024-06-01) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106443.jpgsave_picture_106443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106443.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D6F8D7C05480A401E8E72D4C59C6E6644D2EE89D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106444.jpgsave_picture_106444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106444.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Exposure X7 7.2.0.25 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106445.jpgsave_picture_106445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106445.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:CCE18FC8848FFCFC999AE24FD834E1E443447A1B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106446.jpgsave_picture_106446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106446.jpg" />
 </div>
 
 

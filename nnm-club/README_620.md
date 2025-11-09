@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16433.jpgsave_picture_16433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2FC9983F1044A67016962BC8A4E83A069A428647
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16434.jpgsave_picture_16434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16434.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4637D37DA9B0398D1D23BD88654CBF950AA23134
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16435.jpgsave_picture_16435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16435.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Little Brave (2025) [Ru/En] (1.0.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16436.jpgsave_picture_16436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16436.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16437.jpgsave_picture_16437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16437.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16438.jpgsave_picture_16438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16438.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16439.jpgsave_picture_16439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16439.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:91FE318D173B649604338D22ABB6644EBA678DD5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16440.jpgsave_picture_16440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16440.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Rimini Summer Party, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16441.jpgsave_picture_16441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16441.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16442.jpgsave_picture_16442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16442.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16443.jpgsave_picture_16443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16443.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:04C0E65EFEE4F75EFA20892EDE9E1BD9225D3309
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16444.jpgsave_picture_16444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16444.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16445.jpgsave_picture_16445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16445.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16446.jpgsave_picture_16446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16446.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16447.jpgsave_picture_16447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16447.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A2BCCDB88A70CC863F5025D2FD140D2D26A73102
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16448.jpgsave_picture_16448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16448.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16449.jpgsave_picture_16449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:541311272EBB0DBABD2357A19CC16934207D9297
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16450.jpgsave_picture_16450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16450.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16451.jpgsave_picture_16451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16451.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16452.jpgsave_picture_16452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16452.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16454.jpgsave_picture_16454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Мир природы. Смертоносные змеи Индии / BBC: 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16455.jpgsave_picture_16455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16455.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:50893FB3C4F3C4487D7028C2C6E02BD951EF421C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16456.jpgsave_picture_16456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16456.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:A0ECDB97DD61DD297722AB385F5356D0832E8CF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16457.jpgsave_picture_16457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16457.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16458.jpgsave_picture_16458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16458.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16459.jpgsave_picture_16459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16459.jpg" />
 </div>
 
 

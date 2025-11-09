@@ -6,7 +6,7 @@ VA - Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113559.jpgsave_picture_113559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113559.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Tranquil Horizons: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113560.jpgsave_picture_113560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113560.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9EC8F69E86E063EECAAD169836094F556DF18493
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113561.jpgsave_picture_113561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113561.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A6193406FF42FA33E8B77C12E593B28B7F1F7A8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113562.jpgsave_picture_113562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113562.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Navicat for PostgreSQL on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113563.jpgsave_picture_113563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113563.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:849D1BEA9B8387B39AF9CF457098AF683AE8AC33
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpgsave_picture_113564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113565.jpgsave_picture_113565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113565.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:B51625200BF6FD45BA69AC665C29B6CDDD832E16
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113566.jpgsave_picture_113566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113566.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpgsave_picture_113567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ CudaText 1.210.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113568.jpgsave_picture_113568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113568.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7D444B3BD84275F10D4113C2253C14A1AAF4493C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113569.jpgsave_picture_113569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113569.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Alfred PowerPack 5.5 Release Candidate [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113570.jpgsave_picture_113570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113570.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpgsave_picture_113571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:8C77DC329D6362CAB98D68F297861606B1447455
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113572.jpgsave_picture_113572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113572.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:D52D94B9EA0DF94E0D0972F2FCBE8C384E6148BE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113573.jpgsave_picture_113573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113573.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:0DA4EB7D8D39C95E10FDBDE3F5BBEFBA8AAA93F5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113574.jpgsave_picture_113574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113574.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jack Fossett - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113575.jpgsave_picture_113575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113575.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DFBE934C6517C4E78C5D933365B3DB17063DEEC1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113576.jpgsave_picture_113576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113576.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113577.jpgsave_picture_113577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Microsoft .NET 6.0.28 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113578.jpgsave_picture_113578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113578.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113579.jpgsave_picture_113579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113579.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:2DDEF374E03F2B05A9DAF01E6715EE53B9ACA752
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113580.jpgsave_picture_113580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113580.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Perfectly Clear WorkBench 4.6.0.2642 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113581.jpgsave_picture_113581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113581.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sterling Angel - Collection (2008-2023) [MP3|320 Kbps] <Downtempo, Chillout, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113582.jpgsave_picture_113582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113582.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:BAE0432457C4F9FB0332E5E44C7C13BBC2D7356C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113583.jpgsave_picture_113583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113583.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:899FAA8310C7A1A685F3195493F321508BD21A80
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113584.jpgsave_picture_113584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113584.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123015.jpgsave_picture_123015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123016.jpgsave_picture_123016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123016.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123018.jpgsave_picture_123018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123018.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123142.jpgsave_picture_123142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123142.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123163.jpgsave_picture_123163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123163.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123165.jpgsave_picture_123165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123165.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123192.jpgsave_picture_123192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123840.jpgsave_picture_123840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123840.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123850.jpgsave_picture_123850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123850.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123866.jpgsave_picture_123866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123866.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123867.jpgsave_picture_123867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123893.jpgsave_picture_123893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123894.jpgsave_picture_123894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123894.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124119.jpgsave_picture_124119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124119.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:80FD9E9AD5C36EF161C3628E097F7946E24164A1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124125.jpgsave_picture_124125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124125.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124706.jpgsave_picture_124706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124722.jpgsave_picture_124722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124722.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124819.jpgsave_picture_124819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpgsave_picture_124938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124947.jpgsave_picture_124947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124950.jpgsave_picture_124950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124952.jpgsave_picture_124952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpgsave_picture_124979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpgsave_picture_125277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125791.jpgsave_picture_125791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125791.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:28435017E565D60AA8C11867C6FB4FA4B8C09AE4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125793.jpgsave_picture_125793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125793.jpg" />
 </div>
 
 

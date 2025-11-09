@@ -6,7 +6,7 @@ Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpgsave_picture_102758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpgsave_picture_102759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102760.jpgsave_picture_102760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102760.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102761.jpgsave_picture_102761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102762.jpgsave_picture_102762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102762.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpgsave_picture_102763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102764.jpgsave_picture_102764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102764.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102765.jpgsave_picture_102765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102765.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102766.jpgsave_picture_102766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102766.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102767.jpgsave_picture_102767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102767.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|im
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102768.jpgsave_picture_102768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102768.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102769.jpgsave_picture_102769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102769.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpgsave_picture_102770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102771.jpgsave_picture_102771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102771.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102772.jpgsave_picture_102772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102773.jpgsave_picture_102773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpgsave_picture_102774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpgsave_picture_102775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Wes
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102776.jpgsave_picture_102776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102776.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102777.jpgsave_picture_102777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102777.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102778.jpgsave_picture_102778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102778.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102779.jpgsave_picture_102779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102779.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102780.jpgsave_picture_102780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102780.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102781.jpgsave_picture_102781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102781.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Uni Debess - Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102782.jpgsave_picture_102782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102782.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ The Coffee Sergeants - Racing Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102783.jpgsave_picture_102783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102783.jpg" />
 </div>
 
 

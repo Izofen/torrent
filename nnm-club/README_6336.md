@@ -6,7 +6,7 @@ Winaero Tweaker 1.52 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198424.jpgsave_picture_198424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198424.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ADEB0857A2CEBB1B9506F27089429CB4FD061E12
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198426.jpgsave_picture_198426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198426.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Rock & Blues part 20 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198427.jpgsave_picture_198427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198427.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1A4682D995F67BAF9262ED4EB177B07FA7890D46
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198428.jpgsave_picture_198428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198428.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198430.jpgsave_picture_198430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198430.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Rock & Blues part 19 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198431.jpgsave_picture_198431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198431.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:CF70D6F32C8811F6F3E3BE2226ED6873B6553DFB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198432.jpgsave_picture_198432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198432.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3C45A51444DB8772A6F2C4BB929F2EF86517A7C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198433.jpgsave_picture_198433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198433.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ FastStone Capture 10.0 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198434.jpgsave_picture_198434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198434.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CrossOver 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198435.jpgsave_picture_198435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198435.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:03FC91C4AD66CD09BC08226A0C1BD0FD008B7242
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198436.jpgsave_picture_198436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198436.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A317F7FCD4F63DAC3657CF8DFF701B2A1295688A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198437.jpgsave_picture_198437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198437.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OCCT 12.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198438.jpgsave_picture_198438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198438.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:192DC6314DCD3A190A83D283242875FB29EF8250
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198439.jpgsave_picture_198439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198439.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A60C7E545C9BB376F260A895BED5359C418D23EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198440.jpgsave_picture_198440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198440.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:23C52C77F9219654C9C041DF44550BD88C69B116
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198442.jpgsave_picture_198442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198442.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [EN / RU, EN 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198443.jpgsave_picture_198443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198443.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198444.jpgsave_picture_198444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198444.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B7F1AA8043CCE6691B55E57E3B11579ADFCF7C14
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198445.jpgsave_picture_198445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198445.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198446.jpgsave_picture_198446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198446.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ uTorrent Pack 1.2.3.69 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198449.jpgsave_picture_198449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198449.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:505E5A628AF4C73FD6E1737600D0E7DEB679C9CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198450.jpgsave_picture_198450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198450.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Notepad++ 8.5.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198451.jpgsave_picture_198451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198451.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ant Download Manager Pro 2.10.2 Build 85987 RePack (& Portable) by xetrin [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198452.jpgsave_picture_198452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198452.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Wolfram Mathematica 13.2.1 [x86_x64] (.sh)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198454.jpgsave_picture_198454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198454.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpgsave_picture_198455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpg" />
 </div>
 
 

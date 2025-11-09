@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78553.jpgsave_picture_78553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78553.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3D67C39027F41C2106D4E2A65405025EF3D9B850
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78554.jpgsave_picture_78554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78554.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Animals as Leaders - 2 Albums (2009, 2011) [FLAC|Lossless]<Progressive/Math Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78555.jpgsave_picture_78555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78555.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Timely, Atlas Comics | Коллекция комиксов [1940-1950] [CBR, CBZ
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78558.jpgsave_picture_78558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78558.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:ADB5BDBBC347141AF8BAEFD1D066637641F4612A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78565.jpgsave_picture_78565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78565.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:59BCFA8F2C7676CAEC3CAEA4CFD0D628398F8E65
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78569.jpgsave_picture_78569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78569.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B2C26C7F4CD127E25A4D7E156A4B4724CC7283EB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78574.jpgsave_picture_78574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78574.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:B2C26C7F4CD127E25A4D7E156A4B4724CC7283EB
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78577.jpgsave_picture_78577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78577.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:6B73D0D6DA43A6698EE0CE10F0965E81BE48D9EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78584.jpgsave_picture_78584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78584.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Daum PotPlayer 1.5.32007 Stable & Portable by SamLab + 164 Skins / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78590.jpgsave_picture_78590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78590.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Daum PotPlayer - мультимедийный проигрыватель, ана
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78593.jpgsave_picture_78593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78593.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AVG Anti-Virus Pro 2012 SP1 RC ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78596.jpgsave_picture_78596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78596.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Kaspersky World 1.3.0.11 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78602.jpgsave_picture_78602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78602.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Kaspersky World 1.3.0.11 [Multi/Rus]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78613.jpgsave_picture_78613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78613.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78614.jpgsave_picture_78614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78614.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78627.jpgsave_picture_78627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78627.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CD1BFFB90CDD1F33E10FBB4875E5C43C61FD57BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78629.jpgsave_picture_78629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78629.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:DB199A63AF1B5A42B889C59DD133C9CEB66A162F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78633.jpgsave_picture_78633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78633.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:6ED712304C91059BE1FF0684B408B5B8AFF05FCB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78637.jpgsave_picture_78637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78637.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WinZip 16.0.9715r Pro Final / Офрелиз Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78639.jpgsave_picture_78639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78639.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinZip — самая первая и одна из самых популярн�
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78642.jpgsave_picture_78642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78642.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinZip — самая первая и одна из самых популярн�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78645.jpgsave_picture_78645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78645.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D35D814AE80D7E7090DDADEE12223594BCEB4115
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78648.jpgsave_picture_78648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78648.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ WinDoZa Live CD & USB by Core-2 11.2.12 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78651.jpgsave_picture_78651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78651.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Super Boot DVD by bucefal82 v.1.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78652.jpgsave_picture_78652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78652.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Super Boot DVD by bucefal82 v.1.0
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78653.jpgsave_picture_78653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78653.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236142.jpgsave_picture_236142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1DCEB80EF75F59BC4F6D7DB11F13797C3639945E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236143.jpgsave_picture_236143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236143.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sandboxie 5.64.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236144.jpgsave_picture_236144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236144.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DCD1DD5C0AEC8E1241A1F980FBD4D4C542F7F83D
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236145.jpgsave_picture_236145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236145.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ TimeTable 3 v3.4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236146.jpgsave_picture_236146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236146.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Eric Alexander Quartet - Sunday In New York (2006) Venus Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236148.jpgsave_picture_236148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236148.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7A39F570DE0BBBA954135385D2F3F9E07CD90947
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236149.jpgsave_picture_236149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236149.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:45BC1C6E543E9927A692F361BA7C48549E3AF1F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236151.jpgsave_picture_236151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236151.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6A083EDDB3C01F5225327B88BAAB4EA7AE4D0738
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236152.jpgsave_picture_236152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236152.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Horizon's End - The Great Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236153.jpgsave_picture_236153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236153.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Summer 2023: Best Of Deep House (2023) CD, Compilation [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236154.jpgsave_picture_236154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236154.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:15D0CB7F47112880FC41C3F0372DBCEC35E97500
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236155.jpgsave_picture_236155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236155.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0B8229C80852D43D1EC507A7FFBC124A83138BAC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236157.jpgsave_picture_236157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236157.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:31FC93D85363A18A8E9298075BC53A2CB1C522DC
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236158.jpgsave_picture_236158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236158.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:89DF0FD4C12DF6B12A2ED7194CA5B71A7EBBE789
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236160.jpgsave_picture_236160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236160.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ondfodt - Det osterbottniska Morkret (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236161.jpgsave_picture_236161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236161.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ iShowU Instant (Advanced) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236162.jpgsave_picture_236162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236162.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ HeavyDrunk - You Don't Know Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236163.jpgsave_picture_236163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236163.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B26474AE37A155C895B324AAD796981B1CB7450D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236166.jpgsave_picture_236166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236166.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F5AFE1FAC50ABDB6C577DCB8F9C241A780879F97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236167.jpgsave_picture_236167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236167.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mystic Prophecy - Hellriot (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236168.jpgsave_picture_236168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236168.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Eddie Gomez Trio - Palermo (2007) Jazz Eyes [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236169.jpgsave_picture_236169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236169.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Default Folder X 5.5.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236170.jpgsave_picture_236170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236170.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - 33-45 Rpm, Vinyl-Struck Vol. 4 (2023) [MP3|320 Kbps] <Jackin House, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236172.jpgsave_picture_236172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236172.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:8A588BB51B1075FBD9A9279D53011E919025502A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236173.jpgsave_picture_236173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236173.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:BA1B483CD9C41459FF79B85AF00C27B1AF0245F8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236175.jpgsave_picture_236175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236175.jpg" />
 </div>
 
 

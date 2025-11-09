@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1115) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152157.jpgsave_picture_152157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A1302CE1F979620C25BC9483D0B0019CD59CC7E5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152158.jpgsave_picture_152158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152158.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3DB939064C601B37A1E531881D317CD71F728481
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152159.jpgsave_picture_152159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152159.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MAGIX Vegas Pro 19.0 Build 458 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152161.jpgsave_picture_152161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152161.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Gears 5 (2019) [Ru/Multi] (1.1.97.0/dlc) License CODEX [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152162.jpgsave_picture_152162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152162.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:EAB83BF7C91861930CDBFD37F5848DAE6929BEE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152163.jpgsave_picture_152163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152163.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Loopmasters - Bass Master 1.1.2 VSTi (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152164.jpgsave_picture_152164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152164.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Slimjet 25.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152167.jpgsave_picture_152167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152167.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B4FAFFCFDE2CADD0EF7061512D459BF783B5A7B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152168.jpgsave_picture_152168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152168.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ FanControl V142 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152170.jpgsave_picture_152170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152170.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:598FE77815402077703A4AFC23916B9E8EA09107
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpgsave_picture_152171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152172.jpgsave_picture_152172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152172.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:51A42A8FF17F17ED5DCC5914833635278A9BEEF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152173.jpgsave_picture_152173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152173.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Orianthi - Best Of Orianthi... Vol. 1 (2014) Robo Records, UICO-1273, Japan [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152174.jpgsave_picture_152174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152174.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kaspersky Software Updater 1.5.1.202 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152175.jpgsave_picture_152175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152175.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C2A66D99006184ABB8D6E60B417160358D88E2F5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152177.jpgsave_picture_152177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152177.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152178.jpgsave_picture_152178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152178.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ FastStone Image Viewer 6.1 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152179.jpgsave_picture_152179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152179.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4B79FA5C6A31221D7A5A2963F8A86F23023CFA3D
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152180.jpgsave_picture_152180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152180.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D345F77010CCCD64FBEA1CE313DDE60B7E47713A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152181.jpgsave_picture_152181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152181.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:7C301C863772F6C6756DD7E13AE782C857C1D515
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152183.jpgsave_picture_152183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152183.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:242AF17E92E38FAE6C7E55E42B3031DB58F93C1D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152185.jpgsave_picture_152185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152185.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:24F886FB30A534D2168136874E09F96F0A7ECFD8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152187.jpgsave_picture_152187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152187.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:9DEA1EDDF954C6A55FE00323FA7357F9B1CF7A36
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152188.jpgsave_picture_152188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152188.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ CHIP - DVD приложение к журналу CHIP №1 (Январь 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152189.jpgsave_picture_152189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152189.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:BBEF88EE8DD2441394ADE19A71D56E58ACAD8F75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152190.jpgsave_picture_152190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152190.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165253.jpgsave_picture_165253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinTools.net Premium / Professional / Classic 23.11.1 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165254.jpgsave_picture_165254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Privacy Eraser Free 5.6.0 Build 3756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165255.jpgsave_picture_165255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165255.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ iTrash 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165256.jpgsave_picture_165256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165256.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WinTools.net 23.11.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165257.jpgsave_picture_165257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165257.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Scrivener 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165258.jpgsave_picture_165258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165258.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C6C801BED8FE5750F25BA5F780E676552DFD558C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165259.jpgsave_picture_165259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165259.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7C0F2678C5FE2DF7A4D2575FE23707621372120B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165260.jpgsave_picture_165260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165260.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Skype 8.67.0.96 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165261.jpgsave_picture_165261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165261.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DMG Canvas 3 v3.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165262.jpgsave_picture_165262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165262.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:44D0301B6F7DC20C2391C47A204A35697DA956BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165263.jpgsave_picture_165263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165263.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1C4BB108BC2F29B3C470DBB5DCAC5D6B01A1A4EC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165264.jpgsave_picture_165264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165264.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:85C41894F24227E73619092A789E8CF8935DE718
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165265.jpgsave_picture_165265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165265.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165266.jpgsave_picture_165266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165266.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Tinderbox 9 v.9.5.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165267.jpgsave_picture_165267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165267.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Disturbed - Asylum (2010) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165268.jpgsave_picture_165268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165268.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ HDCleaner 1.321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165269.jpgsave_picture_165269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165269.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:285FD68501F55C776C3B991FED7D39C39FD3182C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165270.jpgsave_picture_165270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165270.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TagScanner 6.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165271.jpgsave_picture_165271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165271.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cobra Cult - Second Gear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165272.jpgsave_picture_165272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165272.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Glenn Frey - No Fun Aloud (1982) [FLAC|Lossless|tracks + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165273.jpgsave_picture_165273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165273.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:739A3DC20AB32272A7B9F234B03F4B80C1DE8666
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165274.jpgsave_picture_165274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165274.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:ADFBC0CD04F9ABB075D5BFCC1D059033AA4E7818
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165275.jpgsave_picture_165275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165275.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:E670D3AF750442301D184E69A35CA0FE1B742B3E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165276.jpgsave_picture_165276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165276.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165277.jpgsave_picture_165277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165277.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:010E41BD42B9BF1DEE3A8D39D278B30F07ED71A4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165278.jpgsave_picture_165278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165278.jpg" />
 </div>
 
 

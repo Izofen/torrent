@@ -6,7 +6,7 @@ Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43147.jpgsave_picture_43147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43147.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43164.jpgsave_picture_43164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43164.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43165.jpgsave_picture_43165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43165.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43246.jpgsave_picture_43246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43246.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lakeview - Lakeview (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43250.jpgsave_picture_43250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43250.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Evil Impulse - Evil Impulse (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43338.jpgsave_picture_43338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43338.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Corporal Shred - Thrashtosterone (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43349.jpgsave_picture_43349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43349.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43350.jpgsave_picture_43350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43350.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43359.jpgsave_picture_43359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43359.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Robert Plant - Manic Nirvana (1990) [FLAC|Lossless|image + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43376.jpgsave_picture_43376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43376.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bad Attitude - Right From The Start (1988-1991) Compilation, Reissue, 2024, FnA 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43473.jpgsave_picture_43473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43473.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:50DCC8EF31BA8DB45F2110359ED80F14E0D05393
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43655.jpgsave_picture_43655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43655.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D79EE1896A782552F46BD4C4E0492A1F19065141
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43661.jpgsave_picture_43661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43661.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Chelsea Smiles - Nowhere Ride E.P. (2005) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43668.jpgsave_picture_43668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43668.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:903715D702E0D64A0E1FE725B4EB5C3CEC8B05CE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43673.jpgsave_picture_43673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43673.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:8545BECDDF464C12CF5119B2150D43E1CAEF9C07
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43690.jpgsave_picture_43690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43690.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43758.jpgsave_picture_43758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43758.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43760.jpgsave_picture_43760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43760.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ In Extremo - Wolkenschieber (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43763.jpgsave_picture_43763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43763.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Timeless Fairytale - A Story to Tell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43768.jpgsave_picture_43768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43768.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The The - Ensoulment (2024) [MP3|320 Kbps] <Pop Rock, Alternative, Indie>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43769.jpgsave_picture_43769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43769.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Nail - The Nail (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43771.jpgsave_picture_43771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43771.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43772.jpgsave_picture_43772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43772.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Stryper - When We Were Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43775.jpgsave_picture_43775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43775.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Oceans Of Slumber - Where Gods Fear To Speak (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43777.jpgsave_picture_43777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43777.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:52BCA6368390838EB2FA37503D13B728FED1E662
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43861.jpgsave_picture_43861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43861.jpg" />
 </div>
 
 

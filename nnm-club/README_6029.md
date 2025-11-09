@@ -6,7 +6,7 @@ FileZilla Server 1.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189673.jpgsave_picture_189673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 117.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189674.jpgsave_picture_189674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189674.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Find Same Images OK 5.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189675.jpgsave_picture_189675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189675.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ XY VPN - Security Proxy VPN 4.7.120 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189676.jpgsave_picture_189676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189676.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189677.jpgsave_picture_189677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189677.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0029FD0301C352BB6D9A4999ABB67FF008AF930F
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189678.jpgsave_picture_189678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189678.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D4F24196B11346A803D786D82FA11FD6AE5AD1F9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189679.jpgsave_picture_189679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189679.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AIMP 5.10 Build 2412 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189680.jpgsave_picture_189680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189680.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Opera One 102.0.4880.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189681.jpgsave_picture_189681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189681.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:862725423E7CBF7A34942C49212543EE299B6CD7
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189683.jpgsave_picture_189683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189683.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC 2.0|24/96|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189685.jpgsave_picture_189685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189685.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:87E06E8641E52E9CDF20E9BAE7CE5917392E13AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189687.jpgsave_picture_189687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189687.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PDF to Word&Document Converter 6.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189688.jpgsave_picture_189688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189688.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9885364B6767B2BE8A6B32F8EA03353EA7CAA327
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189689.jpgsave_picture_189689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189689.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:181CE0C798A0A585D359B5FD7B5CBD256F33DE82
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189690.jpgsave_picture_189690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189690.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:39ED631EEE9AACE27F3E6F54341F595E07BDCE48
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189691.jpgsave_picture_189691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189691.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189692.jpgsave_picture_189692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189692.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Moon+ Reader Pro 8.4 (804001) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189693.jpgsave_picture_189693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189693.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A3D881CC3A24558D79CDF340DADA0F9A4A78DF77
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189694.jpgsave_picture_189694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189694.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Light Image Resizer 6.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189695.jpgsave_picture_189695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189695.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ApowerREC 1.5.9.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189696.jpgsave_picture_189696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189696.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Infuse PRO 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189697.jpgsave_picture_189697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189697.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:985ECFF59149A4E52E414903E5920069F8B7E32B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189698.jpgsave_picture_189698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189698.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A1FCEAA9F72E512DE4F2CAF16FF18022504B7DB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189699.jpgsave_picture_189699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189699.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:41249C001995016F6338F0A401BADFE4F9F979A8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189700.jpgsave_picture_189700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189700.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:CFB881E3B33DF32BFDE1FB56A0C1E2F3040DCF0C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189701.jpgsave_picture_189701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189701.jpg" />
 </div>
 
 

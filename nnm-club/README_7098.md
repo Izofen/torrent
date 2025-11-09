@@ -6,7 +6,7 @@ VA - The Best of Maretimo Lounge Radio, Vol. 1 (2020) [AAC|~334 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243446.jpgsave_picture_243446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243446.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spotify 1.2.8.907 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243447.jpgsave_picture_243447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 011 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243448.jpgsave_picture_243448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243448.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:296BCC6447EECDEDBE37C6E68CA2482646988D37
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243449.jpgsave_picture_243449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243449.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:99BEAF72C8A3B416B4A1557731121AFBFEF208C8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243450.jpgsave_picture_243450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243450.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Peggy Lee - The Lost '40s & '50s Capitol Masters (1944 - 1952) 2CD, 2008, Collec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243451.jpgsave_picture_243451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243451.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Good NightOwl - Capital (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243452.jpgsave_picture_243452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243452.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - 20 Years Sprout Music (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243454.jpgsave_picture_243454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243454.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ EF Commander 2023.04+ + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243455.jpgsave_picture_243455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243455.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ PDF-XChange PRO 9.3.360.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243456.jpgsave_picture_243456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243456.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Art Files 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243457.jpgsave_picture_243457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243457.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243458.jpgsave_picture_243458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243458.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243459.jpgsave_picture_243459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243459.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:E650B7F4F259069202087F0889F9B392B3B59F45
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243460.jpgsave_picture_243460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243460.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:970BC837ABA2276C8CEC0E6654CCF5C4418EED19
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243461.jpgsave_picture_243461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243461.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:D18B0212D6FBDB722DDC32B1A611076CFCA4ABA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243463.jpgsave_picture_243463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243463.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Soulver 3.1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243464.jpgsave_picture_243464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243464.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:EC398AEF24C0071CF099DAF529C344F1AF526CF3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243465.jpgsave_picture_243465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243465.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Red Harvest - Internal Punishment Programs (2004) [APE|Lossless|image + .cue] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243466.jpgsave_picture_243466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243466.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243467.jpgsave_picture_243467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243467.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:986274408676585AF189FE7978EFEFA060CAB784
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243468.jpgsave_picture_243468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243468.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243469.jpgsave_picture_243469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243469.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Advanced SystemCare Pro 15.3.0.227 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243470.jpgsave_picture_243470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243470.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Amadeus Pro 2.6.2 (2228) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243471.jpgsave_picture_243471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243471.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Blood God & Debauchery - Demons Of Rock 'n' Roll (2022) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243472.jpgsave_picture_243472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243472.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:B98F034C35377A156BFAEA7730781270D4428773
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243474.jpgsave_picture_243474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243474.jpg" />
 </div>
 
 

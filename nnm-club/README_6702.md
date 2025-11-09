@@ -6,7 +6,7 @@ AccuBattery Pro 2.1.0 Mod by Dymonyxx [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230407.jpgsave_picture_230407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46BC6DE9C1CB6EB03B143FC1507DF673C9D962E6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230409.jpgsave_picture_230409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230409.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:27BC8D9236311D2B40C1E3A200DA22211B04D39C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230410.jpgsave_picture_230410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230410.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:68F067F10D65674C35EFB1456F10563AA6CB4CD1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230411.jpgsave_picture_230411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230411.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6F830FE7FE154E3D835F651A7F9371CF743AD6FA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230416.jpgsave_picture_230416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230416.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9993DA65045AE2369636751265316101FE9099C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230417.jpgsave_picture_230417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230417.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Firefox Browser 114.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230418.jpgsave_picture_230418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230418.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:BC934092A43DA1357BAB999DB23AC9534FE84CD6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230420.jpgsave_picture_230420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230420.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D15ED6F4F75B6DC43D25CADE2A25CA4AD091C6D6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230421.jpgsave_picture_230421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230421.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A6AA5FCA9CC9B7E98825DEBD9A7F8FF70839ED43
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230424.jpgsave_picture_230424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230424.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Opera GX 99.0.4788.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230425.jpgsave_picture_230425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230425.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3490686FEE0FB531CF8E5DDE98296E8861761B14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230427.jpgsave_picture_230427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230427.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Wondershare PDFelement 9.5.9.2289 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230430.jpgsave_picture_230430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230430.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A9774350DB403F9AD58144C5536A8E7A33CB23A3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230431.jpgsave_picture_230431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230431.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:18806AE218851B9348BCCBD81AF9A806E1D31C50
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230432.jpgsave_picture_230432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230432.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F032F625EA68EE502CBD197D40A59D601EE940DF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230434.jpgsave_picture_230434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230434.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:EAB69F4789E74D00F5E930786F32103F700BFEC9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230437.jpgsave_picture_230437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230437.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dругой Ветер - В темноте (2025) [MP3|320 Kbps] <Rock, Alternat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230438.jpgsave_picture_230438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230438.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E266690DEEF98D62A0FE7838F97ED450347CAC6B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230440.jpgsave_picture_230440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230440.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8038942B7485D22E31A8246611932C24BD6D6F3E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230441.jpgsave_picture_230441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230441.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Duolingo: изучай языки 5.112.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230443.jpgsave_picture_230443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230443.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3428B83D637D348479C9E9A44507905FA11382FF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230445.jpgsave_picture_230445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230445.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Adobe Bridge 2023 13.0.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230446.jpgsave_picture_230446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230446.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:58C0252764309A4B5B759C076A998587C976E37E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230447.jpgsave_picture_230447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230447.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Road Trip Country Rock (2023) [MP3|320 Kbps] <Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230448.jpgsave_picture_230448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230448.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Michael Jackson - Number Ones (2003) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230449.jpgsave_picture_230449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230449.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134987.jpgsave_picture_134987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134987.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134989.jpgsave_picture_134989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134989.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gilrs Wallpaper Collection (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134990.jpgsave_picture_134990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134990.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134991.jpgsave_picture_134991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134991.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134992.jpgsave_picture_134992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PhotoRoom 4.7.5 (1178) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134993.jpgsave_picture_134993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134993.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sexy Girls Wallpapers (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134994.jpgsave_picture_134994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134994.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Find Any File (FAF) 2.4.2 beta1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134995.jpgsave_picture_134995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134995.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134997.jpgsave_picture_134997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134997.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Infested - 1000 Doors (2009) [MP3|320 кб/с]<Technical Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134998.jpgsave_picture_134998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134998.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134999.jpgsave_picture_134999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134999.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Gilrs Wallpaper Collection (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135000.jpgsave_picture_135000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135000.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Blaze - Silicon Messiah (2000) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135001.jpgsave_picture_135001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135001.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sexy Girls Pack Wallpapers (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135002.jpgsave_picture_135002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135002.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PhotoRoom 4.7.5 (b1178) Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135003.jpgsave_picture_135003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135003.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Steel Rath - Prayers of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135005.jpgsave_picture_135005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135005.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135006.jpgsave_picture_135006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135006.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MInstAll v.25.11.2023 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135007.jpgsave_picture_135007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135007.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ System software for Windows v.3.5.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135008.jpgsave_picture_135008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135008.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Daemonicus - Deadwork (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135009.jpgsave_picture_135009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135009.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Remnant II (2) (2023) [Ru/Multi] (396.261/dlc) Repack DjDI [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135010.jpgsave_picture_135010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135010.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135011.jpgsave_picture_135011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135011.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:F1040BC22E59B529AE8D7F64A6527CFDA5B16B2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135012.jpgsave_picture_135012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135012.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Chton - The Devil Builds (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135014.jpgsave_picture_135014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135014.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:2EF231991AAB32C7D118440327D9D5A1A1270F50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135015.jpgsave_picture_135015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135015.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Microsoft Activation Scripts (MAS) 2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135018.jpgsave_picture_135018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135018.jpg" />
 </div>
 
 

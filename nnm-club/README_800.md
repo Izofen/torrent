@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21128.jpgsave_picture_21128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21128.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9779083FD2980D72BF72F4106065051562184343
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21129.jpgsave_picture_21129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21129.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Best Of The 90s (2016) 2 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21130.jpgsave_picture_21130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21130.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0F2D8D123A2A1E8A6CDDCFB0F7753001B9306CBE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21131.jpgsave_picture_21131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21131.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NieR:Automata Ver1.1a 2 | Ниер: Автомата [ТВ-2] [2024, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21132.jpgsave_picture_21132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21132.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21133.jpgsave_picture_21133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21133.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:984BE0B5AC187223DC1E27D41F8F48D2D4FE6357
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21134.jpgsave_picture_21134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21134.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:50A4C4559406CBEB59BC77833F8250BC56209F00
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21135.jpgsave_picture_21135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21135.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ MediaHuman YouTube to MP3 Converter 3.9.10.0 (1604) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21136.jpgsave_picture_21136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21136.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21137.jpgsave_picture_21137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21137.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21138.jpgsave_picture_21138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21138.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:1479D49152296C87E92B4717CB17EC5EEA793283
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21139.jpgsave_picture_21139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21139.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tor Browser Bundle 14.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21140.jpgsave_picture_21140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21140.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21141.jpgsave_picture_21141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21141.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21142.jpgsave_picture_21142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21142.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C7B4F78E8808C460C0CD934185B4DE541266B8B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21143.jpgsave_picture_21143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21143.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:0FAED14085B2EC4E0452BE1CCC4DF1C553B85EA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21144.jpgsave_picture_21144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21144.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21145.jpgsave_picture_21145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21145.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:A2D0CE82CFD6FB23D9FB35A37D7B14F50CAED231
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21146.jpgsave_picture_21146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21146.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:250262E0A25BD56FEC320457E85F8E0667965737
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21147.jpgsave_picture_21147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21147.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Space for Sale (2025) [Ru/Multi] (2024.11.25.10.55/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21148.jpgsave_picture_21148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21148.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21149.jpgsave_picture_21149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21149.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:1EFA3C8EFA37D2F18C45F8E9A5B003C678D2A376
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21150.jpgsave_picture_21150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21150.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:5875CF39E8EC44903249CF86C41D6FD4ABC3A766
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21151.jpgsave_picture_21151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21151.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpgsave_picture_21152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21153.jpgsave_picture_21153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21153.jpg" />
 </div>
 
 

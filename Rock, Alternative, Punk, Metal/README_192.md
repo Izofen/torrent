@@ -6,7 +6,7 @@ Night's Edge - Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125412.jpgsave_picture_125412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125412.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Borgne - Titania (2012) Compilation [FLAC|Lossless|image + .cue] <Industrial Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125413.jpgsave_picture_125413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125413.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Demolish - Remembering the Cabalisticae Laments (2005) Compilation [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125415.jpgsave_picture_125415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125415.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Borgne - Royaume des Ombres (2012) [FLAC|Lossless|image + .cue] <Industrial Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125417.jpgsave_picture_125417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125417.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Prematory - Corrupting Influence (2014) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125418.jpgsave_picture_125418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125418.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Borgne - Entraves de l'Ame (2010) [FLAC|Lossless|image + .cue] <Industrial Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125419.jpgsave_picture_125419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125419.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Borgne - IV (2009) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125420.jpgsave_picture_125420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125420.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:9D6D0323158A91AACD12007C6BD43A3041DBB2A8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125421.jpgsave_picture_125421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125421.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E6FA0CE3975D2304018EA02F14C956F5949E7C4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpgsave_picture_125429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eutectica - [In]human (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpgsave_picture_125432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Souls Of Steel - Songs of Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpgsave_picture_125433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Demon - Breakout (1987) Japanese Edition, Reissue, Remastered, 2020, Rubicon Mus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125434.jpgsave_picture_125434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125434.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ordahlia Nera - Mask of Broken Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125437.jpgsave_picture_125437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125437.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Scarlett O'Hara - Overthrown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125439.jpgsave_picture_125439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125439.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Demolish - The Unique Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125440.jpgsave_picture_125440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125440.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - All New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125455.jpgsave_picture_125455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125455.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rainbow - Essential (2014) Universal Music Group Studios - 5348106 [FLAC 24/44.1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125474.jpgsave_picture_125474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125474.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpgsave_picture_125561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Thread - Thread (1995) 2xCD, Reissue, Remastered, 2023, Escape Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpgsave_picture_125566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpgsave_picture_125567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpgsave_picture_125581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Ru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125586.jpgsave_picture_125586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125586.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125593.jpgsave_picture_125593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125593.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125653.jpgsave_picture_125653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125653.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125702.jpgsave_picture_125702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125702.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ EverLevel - Future (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125708.jpgsave_picture_125708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125708.jpg" />
 </div>
 
 

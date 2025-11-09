@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48873.jpgsave_picture_48873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 128.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48874.jpgsave_picture_48874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48874.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Mega Hits Sommer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48875.jpgsave_picture_48875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48875.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C805617CAC56924A45556D48BB0CB57A7B1E0A98
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48876.jpgsave_picture_48876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48876.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - EDM Summer Splash (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48877.jpgsave_picture_48877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48877.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ KMPlayer 2024.7.24.12 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48878.jpgsave_picture_48878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48878.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Wise Care 365 Pro 6.7.5.650 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48879.jpgsave_picture_48879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48879.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ TikTok 35.6.3 Mod by Dmitry Nechiporenko + Plugin 1.45 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48880.jpgsave_picture_48880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48880.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Skype 8.124.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48881.jpgsave_picture_48881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48881.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F4C5AD7D232AE3C705214C2351DF0D35C1B42A9F
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48882.jpgsave_picture_48882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48882.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ PDF-XChange Editor Plus 10.3.1.387 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48883.jpgsave_picture_48883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48883.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48884.jpgsave_picture_48884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48884.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48885.jpgsave_picture_48885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48885.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48886.jpgsave_picture_48886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48886.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ DefenderKiller 12.3 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48887.jpgsave_picture_48887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48887.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48888.jpgsave_picture_48888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48888.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48889.jpgsave_picture_48889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48889.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Memento Database Pro 5.4.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48890.jpgsave_picture_48890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48890.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:17127E5D7CB6F551D02C5D9202CE0B7FE7514069
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48891.jpgsave_picture_48891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48891.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:F966ADB007BB4137F0ECF8723D14E1D853342D1A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48892.jpgsave_picture_48892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48892.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48893.jpgsave_picture_48893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48893.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Riviera: The Promised Land (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48894.jpgsave_picture_48894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48894.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48895.jpgsave_picture_48895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48895.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48896.jpgsave_picture_48896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48896.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:9C99E30F2B2DCAB18269457EC7ACB8E6E6F03ACF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48897.jpgsave_picture_48897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48897.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48898.jpgsave_picture_48898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48898.jpg" />
 </div>
 
 

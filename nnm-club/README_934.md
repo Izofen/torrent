@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24623.jpgsave_picture_24623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E6F24F073392677629F503F82A3AFD9663547C60
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24624.jpgsave_picture_24624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24624.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1E5FD748F37EFC75310767CB70C189625049F53F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24625.jpgsave_picture_24625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24625.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24626.jpgsave_picture_24626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24626.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24627.jpgsave_picture_24627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24627.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C30CA0BF91DEA5D3BD8AC065262BFD4B90D5951C
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24628.jpgsave_picture_24628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24628.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpgsave_picture_24629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24630.jpgsave_picture_24630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24630.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24631.jpgsave_picture_24631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24631.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpgsave_picture_24632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24633.jpgsave_picture_24633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24633.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24634.jpgsave_picture_24634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24634.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpgsave_picture_24635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FxSound Pro 1.1.31.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24636.jpgsave_picture_24636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24636.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1D7653F59700DCE09056781D8C9C3530D1FCBA2E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24637.jpgsave_picture_24637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24637.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:52C5E0A269264FF63C8F520AA48BE08F7CCFCE81
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24638.jpgsave_picture_24638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24638.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:23E942BF4892C47FECF7C4EDA9FF57CEE6E61FA9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24639.jpgsave_picture_24639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24639.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24640.jpgsave_picture_24640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24640.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24641.jpgsave_picture_24641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24641.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24642.jpgsave_picture_24642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24642.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9AE273271FA47C645395BD000815910B46F922ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24643.jpgsave_picture_24643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24643.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0A479818E5217FEA07F0AC2D759AD4EAB87186A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24644.jpgsave_picture_24644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24644.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:B00B9B3C396BAE911C1CAF0748B4C973DA8C09D8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24645.jpgsave_picture_24645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24645.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpgsave_picture_24646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24647.jpgsave_picture_24647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24647.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B5ECCD0C56420E6432B8C6738415BECF3D5CC2C8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24648.jpgsave_picture_24648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24648.jpg" />
 </div>
 
 

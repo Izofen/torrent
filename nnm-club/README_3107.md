@@ -6,7 +6,7 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpgsave_picture_100018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpgsave_picture_100022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpgsave_picture_100024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100025.jpgsave_picture_100025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100025.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Weapons Wallpapers
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100027.jpgsave_picture_100027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100027.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100029.jpgsave_picture_100029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100029.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100031.jpgsave_picture_100031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100031.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100033.jpgsave_picture_100033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100033.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100039.jpgsave_picture_100039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100039.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Wallpaper Sexy Girls 0.9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100050.jpgsave_picture_100050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100050.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:DCFDD5759A5E90C9F486EC625AFA07E82A1B523F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100055.jpgsave_picture_100055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100055.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mendozza - Mendozza (2012) [MP3|192 кб/с]<Sludge Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100056.jpgsave_picture_100056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100056.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100059.jpgsave_picture_100059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100059.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100062.jpgsave_picture_100062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100062.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpgsave_picture_100063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Lions Breed - Damn The Night (1985) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100064.jpgsave_picture_100064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100064.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:EC1A2C39E942C163CC77703A0375B2A592C95143
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100065.jpgsave_picture_100065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100065.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:466B67990642EEAD3CFF580DE5A84F31B03D81AA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100069.jpgsave_picture_100069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100069.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9AE6CED25FC37C5F3A0D31142E85EF236886343D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100071.jpgsave_picture_100071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bongripper - Satan Worshipping Doom (2010) [FLAC|Lossless]<Instrumental Doom Slu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100075.jpgsave_picture_100075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100075.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Silana - Мы стали ветром (2012) [H.264/720р] WEBRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100077.jpgsave_picture_100077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100077.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Elegy - Optics EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100081.jpgsave_picture_100081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100081.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Wallpaper Sexy Girls 0.10
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100083.jpgsave_picture_100083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100083.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Velocidad Absurda - Reborn For The Extermination (2011) [MP3|320 кб/с]<Brutal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100088.jpgsave_picture_100088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100088.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Ludicra - The Tenant (2010) [MP3|320 кб/с]<Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100089.jpgsave_picture_100089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100089.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Mixed Wallpapers 0.8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100093.jpgsave_picture_100093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100093.jpg" />
 </div>
 
 

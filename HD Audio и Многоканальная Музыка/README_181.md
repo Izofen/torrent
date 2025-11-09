@@ -6,7 +6,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124866.jpgsave_picture_124866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124866.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124886.jpgsave_picture_124886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124886.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125002.jpgsave_picture_125002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125002.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125005.jpgsave_picture_125005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125005.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125014.jpgsave_picture_125014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125014.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125023.jpgsave_picture_125023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125023.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpgsave_picture_125045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125282.jpgsave_picture_125282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125282.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpgsave_picture_125286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125289.jpgsave_picture_125289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125289.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AC8FBFA7C51DC4BF8B555FA7C697569A9D8370DF
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125291.jpgsave_picture_125291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125291.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125304.jpgsave_picture_125304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125304.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125410.jpgsave_picture_125410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125410.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125430.jpgsave_picture_125430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125430.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125431.jpgsave_picture_125431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125431.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpgsave_picture_125459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Mildreda - Blue-Devilled (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125460.jpgsave_picture_125460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125460.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125478.jpgsave_picture_125478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125478.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpgsave_picture_125707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125755.jpgsave_picture_125755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125755.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Testament - Para Bellum (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125784.jpgsave_picture_125784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125784.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Greyhaven - Keep It Quiet (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Chaot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125888.jpgsave_picture_125888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125888.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125889.jpgsave_picture_125889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125889.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpgsave_picture_126074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpgsave_picture_126075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpgsave_picture_126076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpg" />
 </div>
 
 

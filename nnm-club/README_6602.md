@@ -6,7 +6,7 @@ FileZilla Server 1.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211968.jpgsave_picture_211968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211968.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Smart Driver Manager Pro 6.4.974 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211971.jpgsave_picture_211971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211971.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D8E619E48BDAEEC5D871FB6AD385402F4C68AFB3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211972.jpgsave_picture_211972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211972.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wise Care 365 Pro 6.5.4.626 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211975.jpgsave_picture_211975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211975.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser 114.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211977.jpgsave_picture_211977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211977.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C27552D880EC6C380A203FF25CCE94D697A84A42
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211981.jpgsave_picture_211981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211981.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:00682B623FE1492EE346954DF4F7829C51D48DC7
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211982.jpgsave_picture_211982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211982.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ App Cleaner & Uninstaller Pro 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211983.jpgsave_picture_211983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211983.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Autorun Organizer 5.37 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211985.jpgsave_picture_211985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211985.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0DFC628A5F6AC090C7BF065DDC1DAD8A1AF6241A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211988.jpgsave_picture_211988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211988.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Extreme - Six (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Funk Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211989.jpgsave_picture_211989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211989.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DxO PureRAW 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211992.jpgsave_picture_211992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211992.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:16BD00493E6EA242CE64306011C7B1FC84B3CBE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211993.jpgsave_picture_211993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211993.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Wise Care 365 Pro 6.5.5.627 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211996.jpgsave_picture_211996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211996.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ TweakNow WinSecret Plus! 4.7.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211998.jpgsave_picture_211998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211998.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wondershare PDFelement 9.5.10.2296 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211999.jpgsave_picture_211999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211999.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Brave Browser 1.52.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212002.jpgsave_picture_212002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212002.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Brave Browser 1.52.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212003.jpgsave_picture_212003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212003.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ HWiNFO 7.47 Build 5125 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212005.jpgsave_picture_212005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212005.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ FBackup 9.8.774 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212008.jpgsave_picture_212008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212008.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:CD7A9C670EB20964C004C188C6DC18F854860595
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212010.jpgsave_picture_212010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212010.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ DxO FilmPack 6 ELITE Edition 6.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212013.jpgsave_picture_212013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212013.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A8714B759361B86020D7FA77024F42F10255F680
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212015.jpgsave_picture_212015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212015.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ White Spirit - Right or Wrong (2022) Special Edition, 2023, Malcolm Pearson [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212017.jpgsave_picture_212017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212017.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Skype 8.98.0.402 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212019.jpgsave_picture_212019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212019.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ DxO PhotoLab 6 ELITE Edition 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212022.jpgsave_picture_212022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212022.jpg" />
 </div>
 
 

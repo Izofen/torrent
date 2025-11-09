@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75691.jpgsave_picture_75691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75691.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75698.jpgsave_picture_75698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75698.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75700.jpgsave_picture_75700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75700.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3E6B8C6CA36E5CECAD9E092FB8C10F385F3B0591
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75701.jpgsave_picture_75701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75701.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3C48CBDA3F50B0B9D248C8C490384B014FB8792C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75702.jpgsave_picture_75702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75702.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3C48CBDA3F50B0B9D248C8C490384B014FB8792C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75708.jpgsave_picture_75708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75708.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Trojan Remover 6.8.2 Build 2600 [Ml]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75711.jpgsave_picture_75711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75711.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Dubstep Light vol. 4 (2012) [MP3|320 kbps]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75718.jpgsave_picture_75718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75718.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ The Misadventures of P.B. Winterbottom [Wineskin] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75722.jpgsave_picture_75722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75722.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ SPRay [Wii] [NTSC] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75727.jpgsave_picture_75727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75727.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Windows DesktopPack 11.10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75730.jpgsave_picture_75730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75730.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Windows DesktopPack - это комплект свободного/беспла�
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75733.jpgsave_picture_75733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75733.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A1C2A682389759834EB8BACB11378F018AD20620
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75735.jpgsave_picture_75735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75735.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75736.jpgsave_picture_75736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75736.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ DeviceLock 7.1.32972 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75740.jpgsave_picture_75740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75740.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ DeviceLock - обновленная версия программы, котор�
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75743.jpgsave_picture_75743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75743.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DB0DBF796E8B6F47FCEFF1DEFDCEEF16DAFC9FF9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75751.jpgsave_picture_75751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75751.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Windows 7х86 Ultimate AUZsoft Black v.4.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75754.jpgsave_picture_75754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75754.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LiveCD ESET NOD32 Rus 08.02.12 4.0.63.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75755.jpgsave_picture_75755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75755.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ TrustPort Antivirus 12.0.0.4857 AIO Pack ML/Rus (обновляемая)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75756.jpgsave_picture_75756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75756.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TrustPort Antivirus 12.0.0.4857 AIO Pack ML/Rus (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75761.jpgsave_picture_75761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75761.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ TrustPort Antivirus 12.0.0.4857 AIO Pack ML/Rus (обновляемая)
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75765.jpgsave_picture_75765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75765.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Surf's Up [XBOX360] [Ru] [GOD] [Freeboot] (2007)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75769.jpgsave_picture_75769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75769.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:ECE687F47B51F2582A8B3FA465C972631600AE4D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75773.jpgsave_picture_75773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75773.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:CD2AA5957C90C887879BA7284DCB4F838A734D4A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75776.jpgsave_picture_75776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75776.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:CD2AA5957C90C887879BA7284DCB4F838A734D4A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75781.jpgsave_picture_75781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75781.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Steel Inferno - Rush Of Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102862.jpgsave_picture_102862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102862.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3785F5C10143B50B71B8A230E0F2E3E47385BEC5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102863.jpgsave_picture_102863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102863.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102864.jpgsave_picture_102864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102864.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102865.jpgsave_picture_102865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102865.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102866.jpgsave_picture_102866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102866.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102867.jpgsave_picture_102867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102867.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Armin van Buuren - A State Of Trance 1201 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102868.jpgsave_picture_102868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102868.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102869.jpgsave_picture_102869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102869.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102870.jpgsave_picture_102870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102870.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:04A885D116AD947F9150F8E75CBB3201A50FA9B1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102871.jpgsave_picture_102871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102871.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102872.jpgsave_picture_102872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102872.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:86CD8DAF16C79BF04DCAAAB2DCC933523CED809C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102873.jpgsave_picture_102873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102873.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0419C3061BE23D724D0A967F49AD9E69FC7D4C97
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102874.jpgsave_picture_102874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102874.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102875.jpgsave_picture_102875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102875.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102876.jpgsave_picture_102876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102876.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:6677432116B9820FA57C2A7A677F7A36FC97A7F8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102877.jpgsave_picture_102877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102877.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:03E31875B83254EC712E5F2C599BA195EFA39BBB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102878.jpgsave_picture_102878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102878.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B82E797DC3E93F2195BF33B95411875B87EADCDF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102879.jpgsave_picture_102879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102879.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102880.jpgsave_picture_102880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102880.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102881.jpgsave_picture_102881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102881.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102882.jpgsave_picture_102882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102882.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102883.jpgsave_picture_102883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102883.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102884.jpgsave_picture_102884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102884.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Departure Chandelier - Satan Soldier Of Fortune (2024) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102885.jpgsave_picture_102885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102885.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:E7F6FC547255747369AC47F7348B749C88C85E9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102886.jpgsave_picture_102886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102886.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102887.jpgsave_picture_102887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102887.jpg" />
 </div>
 
 

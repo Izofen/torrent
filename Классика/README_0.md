@@ -6,7 +6,7 @@ VA - Classical Music Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33058.jpgsave_picture_33058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33058.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Great Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34084.jpgsave_picture_34084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34084.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johannes Brahms - Brahms at Bedtime: A Sleepytime Serenade (1996) CD, Compilatio
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34378.jpgsave_picture_34378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34378.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35221.jpgsave_picture_35221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35221.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Andre Rieu & Johann Strauss Orchestra - The Sound of Heaven (2024) [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35228.jpgsave_picture_35228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35228.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Famous Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35725.jpgsave_picture_35725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35725.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36239.jpgsave_picture_36239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36239.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Piano and Violin Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36669.jpgsave_picture_36669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36669.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|image + .cue] 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36700.jpgsave_picture_36700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36700.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wolfgang Amadeus Mozart - The Horn Concertos - Oboe Concerto (2001) [FLAC|Lossle
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37459.jpgsave_picture_37459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37459.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40159.jpgsave_picture_40159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40159.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40192.jpgsave_picture_40192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40192.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40865.jpgsave_picture_40865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40865.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - The 50 Most Essential Autumn Classics (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41700.jpgsave_picture_41700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41700.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42724.jpgsave_picture_42724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42724.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42955.jpgsave_picture_42955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42955.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43154.jpgsave_picture_43154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43154.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Greatest Violin Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43793.jpgsave_picture_43793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43793.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Classical Music with Violin and Piano (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43795.jpgsave_picture_43795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43795.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Relax with Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44008.jpgsave_picture_44008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44008.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - 50 Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44104.jpgsave_picture_44104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44104.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Chopin: Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44496.jpgsave_picture_44496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44496.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Iconic Pieces of Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45035.jpgsave_picture_45035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45035.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Classical Winter (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45143.jpgsave_picture_45143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45143.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - The Best of Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45252.jpgsave_picture_45252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45252.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Piano and Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45446.jpgsave_picture_45446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45446.jpg" />
 </div>
 
 

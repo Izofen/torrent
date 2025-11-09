@@ -6,7 +6,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002,  Brea
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249577.jpgsave_picture_249577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:09A62B52CED8DF56282B1DA1B52B79812A5C82A0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249578.jpgsave_picture_249578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249578.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5EFC1D415D9434BCA49D9BC17A92E2F6D09624B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249579.jpgsave_picture_249579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249579.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249580.jpgsave_picture_249580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249580.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:EFD559D8F215CA5A48AF2943D256645BE96FC334
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249581.jpgsave_picture_249581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249581.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sigil 1.9.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249582.jpgsave_picture_249582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249582.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Nik Collection 4 by DxO 4.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249583.jpgsave_picture_249583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249583.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:66F3E301EBEC5B6909245599D2629E8F7834627A
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249584.jpgsave_picture_249584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249584.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Java SE Development Kit 8.0.341 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249585.jpgsave_picture_249585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249585.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AB1349C16A905256F613015B6D45F8324A0E74AA
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249586.jpgsave_picture_249586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249586.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:8D46025C5A7D4C2ECD8253F7C0925211C0D8C402
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249587.jpgsave_picture_249587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249587.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Topaz Photo AI 1.2.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249588.jpgsave_picture_249588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249588.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:2CCEF2AED1B5D73554601E3E5A2B582D72AA44DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249589.jpgsave_picture_249589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249589.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Movavi Picverse Photo Editor 1.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249590.jpgsave_picture_249590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249590.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Comodo Dragon 103.0.5060.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249591.jpgsave_picture_249591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249591.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ SoftPerfect RAM Disk 4.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249592.jpgsave_picture_249592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249592.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ M83 - Fantasy (2023) [FLAC|Lossless|WEB-DL|tracks] <electronic pop, synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249593.jpgsave_picture_249593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249593.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E5C7B8D6E554BD11D052B7E5E7F395AC57AEAFDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249594.jpgsave_picture_249594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249594.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E5C7B8D6E554BD11D052B7E5E7F395AC57AEAFDE
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249595.jpgsave_picture_249595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249595.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C559EBC73262C5C32EC3938FE8C37A4904D77960
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249596.jpgsave_picture_249596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249596.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ HitPaw Video Converter 2.4.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249597.jpgsave_picture_249597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249597.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Alyse Wax | Артбук по фильмам Оно / The World of IT (2019) [CB
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249598.jpgsave_picture_249598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249598.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:92AD94DDDC8E39C552846AF0249BBC06333CD544
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249599.jpgsave_picture_249599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249599.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8A380BE28303A21A5ACACEA5B6A8405300000AE5
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249600.jpgsave_picture_249600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249600.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:B2FF9B7AD8CDA57A83690FD15B8BAC234800CEB3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249601.jpgsave_picture_249601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249601.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F7E2A5059BEE6288DF6FA0039773E1048A42FE4D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249602.jpgsave_picture_249602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249602.jpg" />
 </div>
 
 

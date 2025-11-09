@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187673.jpgsave_picture_187673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Rem
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187674.jpgsave_picture_187674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:95DD56C160D1B5089EBE19F225669505BDA5F3DD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187675.jpgsave_picture_187675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187675.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E48D1B89A91992C3A33C72847E3EA694D1571DE4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187676.jpgsave_picture_187676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187676.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187677.jpgsave_picture_187677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187677.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:011456333FC31F26F80EBFAB30A885C9433D76D5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187678.jpgsave_picture_187678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187678.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:DB4FEBED4088F1D41940505526CCC144396965AE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187679.jpgsave_picture_187679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187679.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Domestika, Ruth Wilshaw | Fantasy Landscapes with Watercolor & Gouache (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187680.jpgsave_picture_187680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187680.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C754219BFA5BB487BD19D52A183B8084E3D393A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187681.jpgsave_picture_187681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187681.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Spotify 1.2.20.1210 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187682.jpgsave_picture_187682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187682.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:598451163D440CDE8D2D7C906DF383EAB700F76E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187683.jpgsave_picture_187683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187683.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Run-Command 6.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187684.jpgsave_picture_187684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187684.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:177E3A5A9D90EB268ADE0901FFF4FB1B0476F7CA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187685.jpgsave_picture_187685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187685.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:18E94D757CEFDD5B16B06D1D9E51E112D3A7E55E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187686.jpgsave_picture_187686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187686.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187687.jpgsave_picture_187687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187687.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187688.jpgsave_picture_187688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187688.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Files Inspector Pro 3.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187689.jpgsave_picture_187689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187689.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ K-Lite Codec Pack Update 17.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187690.jpgsave_picture_187690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187690.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dorling Kindersley | Как работает тело. Наглядные фак
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187691.jpgsave_picture_187691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187691.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AIDA64 Extreme Edition 6.92.6603 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187692.jpgsave_picture_187692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187692.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dorling Kindersley | Как работают технологии. Нагляд�
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187693.jpgsave_picture_187693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187693.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187694.jpgsave_picture_187694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187694.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187695.jpgsave_picture_187695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187695.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7F8B4FD2A506E05CD54A18D474978A1D8DEE303C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187696.jpgsave_picture_187696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187696.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187697.jpgsave_picture_187697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187697.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4E9B729CFA41400B8024169EDA7C9C59086E207B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187698.jpgsave_picture_187698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187698.jpg" />
 </div>
 
 

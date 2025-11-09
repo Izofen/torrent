@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117001.jpgsave_picture_117001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117001.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpgsave_picture_117005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpgsave_picture_117006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpgsave_picture_117008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpgsave_picture_117011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpgsave_picture_117023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117026.jpgsave_picture_117026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117026.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpgsave_picture_117028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117038.jpgsave_picture_117038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117038.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117062.jpgsave_picture_117062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117062.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117137.jpgsave_picture_117137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117137.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpgsave_picture_117142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpgsave_picture_117149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117162.jpgsave_picture_117162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117162.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117167.jpgsave_picture_117167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117167.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpgsave_picture_117173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117173.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpgsave_picture_117176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117176.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117196.jpgsave_picture_117196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117196.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpgsave_picture_117204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117215.jpgsave_picture_117215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117215.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpgsave_picture_117217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpgsave_picture_117218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpgsave_picture_117224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117287.jpgsave_picture_117287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117287.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117363.jpgsave_picture_117363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117363.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117364.jpgsave_picture_117364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117364.jpg" />
 </div>
 
 

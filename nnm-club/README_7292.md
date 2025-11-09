@@ -6,7 +6,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249629.jpgsave_picture_249629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249629.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F33305AC5BD00291E3E0C882DF48BD56E399F17A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249630.jpgsave_picture_249630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249630.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GForce Software Minimonsta2 1.0.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249631.jpgsave_picture_249631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249631.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249632.jpgsave_picture_249632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249632.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PhotoLine 23.53 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249633.jpgsave_picture_249633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249633.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249634.jpgsave_picture_249634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249634.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Files Inspector Pro 3.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249635.jpgsave_picture_249635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249635.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ R-Drive Image System Recovery Media Creator Technician 7.1 Build 7104 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249636.jpgsave_picture_249636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249636.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F77FB62EAF159C3A4AA7F8F9CF67462FF22E0DC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249637.jpgsave_picture_249637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249637.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Google Chrome 103.0.5060.134 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249638.jpgsave_picture_249638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249638.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249639.jpgsave_picture_249639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249639.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249640.jpgsave_picture_249640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249640.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A077EF506AC6428A6EC17E7332D5D1C26AAB5C6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249641.jpgsave_picture_249641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249641.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249642.jpgsave_picture_249642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249642.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ultimaker Cura 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249643.jpgsave_picture_249643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249643.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Arthur Adams - Kick up Some Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249644.jpgsave_picture_249644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249644.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Google Chrome 103.0.5060.134 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249645.jpgsave_picture_249645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249645.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:1476E87F564B175B9772B0313D52A1089DDA7BC4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249646.jpgsave_picture_249646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249646.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249647.jpgsave_picture_249647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249647.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MAGIX Vegas Pro 19.0 Build 532 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249648.jpgsave_picture_249648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249648.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WellBad - Bad Habits (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249649.jpgsave_picture_249649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249649.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:B2B98A6DAA08DB8EE3FB62A6811B7EEA5D547B39
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249650.jpgsave_picture_249650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249650.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:8F7AC215B5597B2CF2F5CE730E251004BDE9E1C5
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249651.jpgsave_picture_249651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249651.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Romantic Collection: Golden 50s (2000) [OGG Vorbis|480 Kbps] <Jazz, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249652.jpgsave_picture_249652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249652.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:B92931280A813A7F9E6EB16EA7396C891DF0AD2A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249653.jpgsave_picture_249653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249653.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Visual Studio 2022 Enterprise 17.5.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249654.jpgsave_picture_249654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249654.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128651.jpgsave_picture_128651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1C4B1B32F77FB7ACFD894F1EAB9143C00513E110
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128652.jpgsave_picture_128652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F608DC7604AA1C8E924B50C87E1FF9809F33DE90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128653.jpgsave_picture_128653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:35CC0F6767E34996F2639EF082AD7CC7F9987E4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128654.jpgsave_picture_128654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128654.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128655.jpgsave_picture_128655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128655.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128656.jpgsave_picture_128656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128656.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128657.jpgsave_picture_128657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128658.jpgsave_picture_128658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128658.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0F65263350B8611F7B2AAB6695FF9D8A1C7AD7F5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128659.jpgsave_picture_128659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128659.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1DBF095C1AB861831993D88735D37ADFD5F0BFE1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128660.jpgsave_picture_128660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128660.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpgsave_picture_128661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FBECBDA1FEA0FA714CC20479D9BA76D64821F1ED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128662.jpgsave_picture_128662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128662.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Catfish John Tisdell - Win or Lose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128663.jpgsave_picture_128663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128663.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:69B937350418321385CE7E7EE44D3D7031CF0867
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128664.jpgsave_picture_128664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128664.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Black Barrel & The Bad Men - Bad Men, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128665.jpgsave_picture_128665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128665.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bidu Sous - On the Blues Road (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128666.jpgsave_picture_128666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128666.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Ben Hemming - The Meaning Of All Things (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128667.jpgsave_picture_128667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128667.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ BB & the Bullets - High Tide (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128668.jpgsave_picture_128668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128668.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:FEFCF7316072C627843A6DB622A18A75BF9B31E0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128669.jpgsave_picture_128669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128669.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:10138635D28DFDC789DB1E1498743EA90DF6C983
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128670.jpgsave_picture_128670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128670.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:D872FE1418BBF583EDC52951F96798DCFE640F68
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128671.jpgsave_picture_128671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128671.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:93C0EFB159B8A27FF6EDAD85C91E439CABF7204B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128672.jpgsave_picture_128672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128672.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:5350D2B6213D9FA50BB536845E8E84D7D16ED01D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128673.jpgsave_picture_128673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128673.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A5CEA7D303C2628DF3827ACA6A0AE0232D143470
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128674.jpgsave_picture_128674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128674.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Soul Browser 1.3.92 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128677.jpgsave_picture_128677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128677.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128678.jpgsave_picture_128678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128678.jpg" />
 </div>
 
 

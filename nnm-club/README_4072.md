@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126447.jpgsave_picture_126447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:988C7EDB8512EF502459CE39EDD37AA86567AFB0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126448.jpgsave_picture_126448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - A Very Metal Christmas II (2023) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126449.jpgsave_picture_126449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126449.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2DD91E271401270930D8AC05412E43DD99BBF7F8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126450.jpgsave_picture_126450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126450.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:674F1101FFA15E38D63B6154B488AC183C67588E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126451.jpgsave_picture_126451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126451.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:24E5DC344D5C12BD818EAD17DA1F214761998005
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126452.jpgsave_picture_126452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126452.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Lane 8 - Winter 2023 Mixtape (2023-12-20) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126453.jpgsave_picture_126453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126453.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Kalamity Kills - Kalamity Kills (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126454.jpgsave_picture_126454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126454.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Chromium 120.0.6099.130 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126455.jpgsave_picture_126455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126455.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:D45CE0BD1F2B7492579E62E740566F2D565E93C6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126456.jpgsave_picture_126456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126456.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D7259213EFC8B902BD101F41ABB9FED9F0E664CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126457.jpgsave_picture_126457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126457.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ JetBrains RubyMine 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126458.jpgsave_picture_126458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126458.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Xodo PDF - Ридер и Редактор 8.9.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126459.jpgsave_picture_126459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126459.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:D0F7A70B9012A3FE264BE749B4CE38ECF0B717F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126460.jpgsave_picture_126460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126460.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126461.jpgsave_picture_126461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126461.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126462.jpgsave_picture_126462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126462.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126463.jpgsave_picture_126463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126463.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:17CC7073532BCCE625A12A9F186C3E405142B077
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126464.jpgsave_picture_126464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126464.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F602CEDB98E3E1B6A143829FCD764A572303F441
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126465.jpgsave_picture_126465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126465.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126466.jpgsave_picture_126466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126466.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Opera GX 105.0.4970.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126467.jpgsave_picture_126467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126467.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126468.jpgsave_picture_126468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126468.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:483918EBE2537287F14FEA80478DDF57A5F556D4
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126469.jpgsave_picture_126469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126469.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:76460BD0E48BFD5F6153A53F6FFD91D83D808D3A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126470.jpgsave_picture_126470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126470.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Elysian Fields - Femmes, Family and Mars (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126471.jpgsave_picture_126471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126471.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Blank & Jones - Chilltronica EP 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126472.jpgsave_picture_126472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126472.jpg" />
 </div>
 
 

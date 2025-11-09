@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27000.jpgsave_picture_27000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27000.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - All Stars 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27001.jpgsave_picture_27001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27001.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0174A28DA2BCBAEF5F56AC466A7E46701834FFEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27002.jpgsave_picture_27002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27002.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1ADD6102BC73D764E3305C1EE4FE2CD619753648
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27003.jpgsave_picture_27003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27003.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27004.jpgsave_picture_27004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27004.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Majin and the Forsaken Kingdom (2010) [PS3] [USA] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27005.jpgsave_picture_27005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27005.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B59AE502847C6BFAE05C96F0F12694C3CECADEE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27006.jpgsave_picture_27006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27006.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CE7C06D6E668B902CED80001F77B4703842B5027
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27007.jpgsave_picture_27007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27007.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8793C573B5F5243013C1F9D4ED79B80B074FF872
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27008.jpgsave_picture_27008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27008.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [USA] 4.25 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27009.jpgsave_picture_27009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27009.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B9E0B1BF1421770F53EEA870B194E22173E4E140
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27010.jpgsave_picture_27010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27010.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ DuckTales: Remastered (2013) [PS3] [USA] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27011.jpgsave_picture_27011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27011.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F091C46FE76B4684FB765DE20A7B1BD51F4C1081
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27012.jpgsave_picture_27012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27012.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FreeFileSync 14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27013.jpgsave_picture_27013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27013.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27014.jpgsave_picture_27014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27014.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Al
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27015.jpgsave_picture_27015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27015.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27016.jpgsave_picture_27016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27016.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E7EF6AC7A94E61BB4F4D96E5C1069D18B685DAD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27017.jpgsave_picture_27017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27017.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:C64914BAB8F17487FA3C1D72FFA5BADE20743EC7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27018.jpgsave_picture_27018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27018.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27019.jpgsave_picture_27019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27019.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:6372D86D5C829DF8A5B8A0D23D1E1DECF1D50EDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27020.jpgsave_picture_27020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27020.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F2A08ABE230BECD55DB4BF2B8BB3B94C63914AC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27021.jpgsave_picture_27021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27021.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4DFD3A224DADEDDD65B87A3C97303D36F1B26E28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27022.jpgsave_picture_27022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27022.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Grimvalor v1.2.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27023.jpgsave_picture_27023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27023.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:BD8605A1D86F714737BF276BEA336A7E58883E75
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27024.jpgsave_picture_27024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27024.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27025.jpgsave_picture_27025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27025.jpg" />
 </div>
 
 

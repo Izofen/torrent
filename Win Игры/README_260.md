@@ -6,7 +6,7 @@ Detectives United 6: Beyond Time / Союз детективов 6: Вне вр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185179.jpgsave_picture_185179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpgsave_picture_185634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpgsave_picture_185761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpgsave_picture_185765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpgsave_picture_185849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185880.jpgsave_picture_185880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185880.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185899.jpgsave_picture_185899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185899.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186079.jpgsave_picture_186079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186079.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186080.jpgsave_picture_186080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186080.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186081.jpgsave_picture_186081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186081.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpgsave_picture_186144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186148.jpgsave_picture_186148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186148.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186156.jpgsave_picture_186156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186156.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Erannorth Renaissance (2024) [En] (1.0.03) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186310.jpgsave_picture_186310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186310.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186390.jpgsave_picture_186390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186390.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186509.jpgsave_picture_186509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186509.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186525.jpgsave_picture_186525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186525.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Knight Cats: Leaves on the Road / Коты-рыцари: Листья на до�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186537.jpgsave_picture_186537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186537.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186545.jpgsave_picture_186545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186545.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Summum Aeterna (2023) [Ru/Multi] (1.0.004) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186660.jpgsave_picture_186660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186660.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186664.jpgsave_picture_186664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186664.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186686.jpgsave_picture_186686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186686.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186969.jpgsave_picture_186969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186969.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpgsave_picture_187037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpgsave_picture_187047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpgsave_picture_187051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpg" />
 </div>
 
 

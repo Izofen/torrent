@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102611.jpgsave_picture_102611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102634.jpgsave_picture_102634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102634.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102643.jpgsave_picture_102643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102643.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EDF4B334578DAA89B7D9451E46410B15B42D8BA6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102659.jpgsave_picture_102659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102659.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:7F1B09B8EDF3C2D4F8E6907E4ACEA5E1341C48BD
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102668.jpgsave_picture_102668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102668.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102675.jpgsave_picture_102675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102675.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:65F34B096340FA4D09901AC7F65740C2F29FC1D2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102681.jpgsave_picture_102681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102681.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:9A68592F41413963F4D0E490E4F2792B78697726
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102682.jpgsave_picture_102682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102682.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:9E49F28493C797898E53BAD0233D3DAC36D0ACF3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102686.jpgsave_picture_102686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102686.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:A98A7CA79E37285A6FD017249643ECB234D0C928
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102689.jpgsave_picture_102689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102689.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:4FFB076BA39CA16E9645F1C2EB18DFD3D692F667
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102690.jpgsave_picture_102690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102690.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:37240AC586BAE95CFEA139F7CCCE401F9F2656AA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102691.jpgsave_picture_102691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102691.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:CD998219EB5E38F2FCA3CF3C920B983D5F06AABF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102692.jpgsave_picture_102692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102692.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ R-Wipe & Clean 20.0.2529 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102693.jpgsave_picture_102693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102693.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:40936DBA9104593F762CB81735431EAA1DA433D2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102694.jpgsave_picture_102694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102694.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpgsave_picture_102695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102696.jpgsave_picture_102696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102696.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:EAD5ECEDBB0766E10A45B7D1132FB81501E51D96
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102697.jpgsave_picture_102697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102698.jpgsave_picture_102698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102698.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102699.jpgsave_picture_102699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102699.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:72E39620C708B6F3F7BBEEDDC3D829AAADABAB5C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102700.jpgsave_picture_102700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102700.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102701.jpgsave_picture_102701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102701.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RegCool 2.019 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102702.jpgsave_picture_102702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102702.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpgsave_picture_102703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102704.jpgsave_picture_102704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102704.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102705.jpgsave_picture_102705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102705.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_765.jpgsave_picture_765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:19E8A86D595F0F5641D52E1E53F7183170F392DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_766.jpgsave_picture_766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_766.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Musical kaleidoscope part 54 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_767.jpgsave_picture_767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_767.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Anything and everything assorted part 2 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_768.jpgsave_picture_768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_768.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1C06425F1341206B3E6EB085C046C800D6BB9BDB
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_769.jpgsave_picture_769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_769.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:52B2C7FECC4FBCF41F6A9BBA50829CF86C8E1A3B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_770.jpgsave_picture_770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_770.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:575653D2B902CCB8571B6B6DA78A767D42642BCA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_771.jpgsave_picture_771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_771.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:74CAF3F3C3A335341CA71FEC13BCD9A33087C0C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_772.jpgsave_picture_772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_772.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1256660923D807FCEC124FAAC63AA2FCA8FDF5F8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_773.jpgsave_picture_773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_773.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FA10F2B1222CC181C7F5D69E0589E219309DB06F
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_774.jpgsave_picture_774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_774.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Summer Sunset (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_775.jpgsave_picture_775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_775.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C8218F38EA6ECE0F0BEC5FD0C97468692CBD05D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_776.jpgsave_picture_776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_776.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_777.jpgsave_picture_777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_777.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_778.jpgsave_picture_778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_778.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Trancendence, Vol. 04 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_779.jpgsave_picture_779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_779.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:FC3F0F5E480419A495CD2DB0B747D72EC67F9446
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_780.jpgsave_picture_780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_780.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F9D6CE70052C33EFCBC0AFC54A54F970F60F4C45
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_781.jpgsave_picture_781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_781.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:56FC0D9578196C032FDFEE442E0BCC230A95819A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_782.jpgsave_picture_782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_782.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2442E449187D490A940CBDC6DD204A5532F5A165
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_783.jpgsave_picture_783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_783.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:08C67C122E8A0D27563E4B54883F43E4B1AA29A1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_784.jpgsave_picture_784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_784.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C5FA37935FEB5E141276811D0384D2D77C39BC25
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_785.jpgsave_picture_785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_785.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:BC9C47B4EE0AC326178D008D6B7269824635EFBB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_786.jpgsave_picture_786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_786.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:6ABB0526FA99979969E6AA9FF978CDA893C565FA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_787.jpgsave_picture_787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_787.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BA812E7F86240C12F4CC1DDBD727C71520464C80
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_788.jpgsave_picture_788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_788.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sardø - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_789.jpgsave_picture_789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_789.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:25BA095056000687C98600A3823AD8BAAC0126A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_790.jpgsave_picture_790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_790.jpg" />
 </div>
 
 

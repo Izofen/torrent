@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpgsave_picture_194331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Radio Tapok - Эпоха Империй (2023) [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194936.jpgsave_picture_194936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194936.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpgsave_picture_194960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - A Tribute To Ария. XXV (2010) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195067.jpgsave_picture_195067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195067.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sinead O'Connor - 2 Альбома (2011-2012) [FLAC|Lossless/tracks+.cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195090.jpgsave_picture_195090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195090.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:88C54F6A55ACC42DF1F4D9CF20D68F75E1A6E019
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195677.jpgsave_picture_195677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195677.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Amorphis - 15 Studio Albums (1992-2021) 24xCD [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195725.jpgsave_picture_195725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195725.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:E46DE516239000741E5D42DEAC36D67A8605F547
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195851.jpgsave_picture_195851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195851.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Avenged Sevenfold - Life Is But A Dream... (2023) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196206.jpgsave_picture_196206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196206.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:FBAF1AA9102749F5F59CFEB30804521E037076C2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196259.jpgsave_picture_196259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196259.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196533.jpgsave_picture_196533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196533.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:439CC8A0114F68FB4B250FB75517E09E9554D7CB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196638.jpgsave_picture_196638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196638.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Jimmy Barnes - 23 Albums (1984 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196641.jpgsave_picture_196641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196641.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Sons Of Apollo | The Winery Dogs - 6 albums, 10 CD (2013-2023) [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196672.jpgsave_picture_196672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196672.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6C57521BB3A91E585558C1B18114D3943F5DE1C7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196686.jpgsave_picture_196686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196686.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Pink Floyd - The Dark Side Of The Moon - Live At Wembley 1974 (2023) Japanese Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196775.jpgsave_picture_196775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196775.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:E134B8EC06A30D368ABBB1735A822E8B5BA8B3DF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196946.jpgsave_picture_196946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196946.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rammstein - Sehnsucht (1997) 2023 Anniversary Edition - Remastered [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197229.jpgsave_picture_197229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197229.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Falkirk - The Day Will Come (2001) [WavPack|Lossless|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197237.jpgsave_picture_197237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197237.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Elegant Weapons - Horns for a Halo (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197429.jpgsave_picture_197429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197429.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ben Harper - 17 альбомов (1994 - 2018) [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197592.jpgsave_picture_197592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197592.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Chris Rea - The Best of Chris Rea (1998) [FLAC|Lossless|tracks + .cue] <Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197670.jpgsave_picture_197670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197670.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:9DDF4FEA070D319D28DFCB168177D5B19EDDC382
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198079.jpgsave_picture_198079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198079.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mark Knopfler - The Studio Albums 2009-2018 (2022) 6CD Box-Set, Reissue, Remaste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198462.jpgsave_picture_198462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198462.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Brett Walker - Highlights From The Last Parade (2023) 2xCD, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198517.jpgsave_picture_198517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198517.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D41538D06C115E673C300B0BD2BDA8FDAB6261A5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198644.jpgsave_picture_198644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198644.jpg" />
 </div>
 
 

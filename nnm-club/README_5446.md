@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168508.jpgsave_picture_168508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168508.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:69C66156FA35C2D5C758172124B158A079004AD4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168509.jpgsave_picture_168509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168509.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:29E857C5FD0C568DFF8552910CFEA497316941F7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168510.jpgsave_picture_168510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168510.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Microsoft Activation Scripts (MAS) 2.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168511.jpgsave_picture_168511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168511.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1BAC4140046ECAA2039B2F3F8AC592C3709ABEFF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168512.jpgsave_picture_168512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168512.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Velvet Sunset: Chillout Balearic (2019) [MP3|320 Kbps] <Chillout, Balearic,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168513.jpgsave_picture_168513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168513.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ A.R.G. - Entrance (1989) Remaster 2012 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168514.jpgsave_picture_168514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168514.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168515.jpgsave_picture_168515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168515.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:5D1733892FAA2C7EC7AC65ED37C1E5D68DE8C388
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168516.jpgsave_picture_168516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168516.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:A9F4FEECD1CED05CA7C38A4609A53E1A62B367AD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168517.jpgsave_picture_168517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168517.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:E58891839C2E5206B793AA9037C5E082624EF8FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168518.jpgsave_picture_168518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168518.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:0025311C5AE8E16196952DB465E4C48B8327F18C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168519.jpgsave_picture_168519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168519.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ XnViewMP for Mac 0.99.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168520.jpgsave_picture_168520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168520.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ UltraUXThemePatcher 4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168521.jpgsave_picture_168521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168521.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:D1829E7FB513F24BBCC4845A04F87CEE2878DF05
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168522.jpgsave_picture_168522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168522.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Discovery. Загадки высадки на Луну / Truth Behind the Moon L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168523.jpgsave_picture_168523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168523.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:73247AABA8F42ADD324A1B1759FF261B78BB58AD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168524.jpgsave_picture_168524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168524.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168525.jpgsave_picture_168525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168525.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:C11D8514D2057FDDD2CDF97169151DB6ECE9189E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168526.jpgsave_picture_168526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168526.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Conqueror's Blade (2019) [Ru] (2.12.19) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168527.jpgsave_picture_168527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168527.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:64A22D55E3FEEC2597323F5D975E7B866EECA62C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168528.jpgsave_picture_168528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168528.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:AAB3146D8D85028D7A06C6A540C18A6EDE798BEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168529.jpgsave_picture_168529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168529.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:EB866C6ADADC977DF0AB56BDF856D61A2CD30E76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168530.jpgsave_picture_168530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168530.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168531.jpgsave_picture_168531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168531.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:A4148CE434EC7CD9BCE95439FBEA55568F033264
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168532.jpgsave_picture_168532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168532.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168533.jpgsave_picture_168533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168533.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpgsave_picture_134020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpgsave_picture_134241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpgsave_picture_134343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpgsave_picture_134355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:954922C35F3EAB21BC86AB5666EAA35B208690A8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134577.jpgsave_picture_134577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134577.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stay Away - СССР 2077 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134589.jpgsave_picture_134589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134589.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:0D29AB3645330CCAB040848B8ED0AEDBCC3AE5DC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpgsave_picture_134606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpgsave_picture_134623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BE5E3378724EB967704168598A13B6B4B8506195
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpgsave_picture_134816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpgsave_picture_135269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135269.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:C69DBB65EAD5931612904AB8936AE3D63FC092EF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpgsave_picture_136644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E3BDDB89736B7D4B84882A4438D439423EEE3D4E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137140.jpgsave_picture_137140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137140.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:BA798DFD06A62C56F95F5B3E2E6D57BFA224D753
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpgsave_picture_137366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:A0F6FC4B9D357D55D384658B8D602328D8C2D82E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpgsave_picture_137691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Rakoth - Superstatic Equilibrium (1998) 2xCD, Reissue, Remastered, 2020, OldWise
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpgsave_picture_138065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:B0F05722D9BBA62E229AE8FA4E07F94DBFEE9B75
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpgsave_picture_139011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpgsave_picture_140138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpgsave_picture_140927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ HMR - Ад Уже Здесь (2016) [FLAC|lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140981.jpgsave_picture_140981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140981.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:F1F27E7150B977CA6F83915E414D61ACA0849CBB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141112.jpgsave_picture_141112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141112.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:BD99172C31182E64B584FA15BF5DD29D6321A890
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpgsave_picture_141671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:6361198C43A250B66091329BAA28B1750A841A24
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141731.jpgsave_picture_141731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141731.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpgsave_picture_142177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:895D7459731F8E8773B68FB883EA58E4062EE5F4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpgsave_picture_142600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpgsave_picture_143853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpgsave_picture_143901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
 </div>
 
 

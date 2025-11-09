@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231515.jpgsave_picture_231515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231515.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soft Organizer Pro 9.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231516.jpgsave_picture_231516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231516.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Disaver - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231518.jpgsave_picture_231518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231518.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2EBE74E37A5BEF3B5C78545E655F27B8BF3B23F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231519.jpgsave_picture_231519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231519.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:65CF62948F485E36A766837767A2905CA6280BED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231520.jpgsave_picture_231520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231520.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Demolizer - Post Necrotic Human (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231521.jpgsave_picture_231521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231521.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:D91EF3446E14AFF617C5FDBC39746C4D45F385AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231522.jpgsave_picture_231522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231522.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4194856BC6BB7331AA92196F1213454A85B3A780
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231523.jpgsave_picture_231523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231523.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Zenith Passage - Datalysium (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231525.jpgsave_picture_231525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231525.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Music News vol.267 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231527.jpgsave_picture_231527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231527.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Collapsed Minds - Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <MDM (Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231528.jpgsave_picture_231528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231528.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Overlay 4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231529.jpgsave_picture_231529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231529.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Shining of Kliffoth - Suicide Kings (1999) EP [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231530.jpgsave_picture_231530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231530.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Weirdream - Beyond the Mirror (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231531.jpgsave_picture_231531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231531.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231532.jpgsave_picture_231532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231532.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ HitPaw Photo Object Remover for Mac 1.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231533.jpgsave_picture_231533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231533.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231535.jpgsave_picture_231535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231535.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ruadh - 1296 (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Folk, Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231537.jpgsave_picture_231537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231537.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FE6533B1F75A21BBA77F14D7F7774404E846522E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231538.jpgsave_picture_231538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231538.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dead Souls - No Hope For Tomorrow (2022) [MP3|320 Kbps] <Thrash Metal, Heavy Met
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231539.jpgsave_picture_231539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231539.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Warfare - Respiro Venganza (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231540.jpgsave_picture_231540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231540.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VueScan Pro 9.8.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231541.jpgsave_picture_231541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231541.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ OCCT 12.0.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231542.jpgsave_picture_231542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231542.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Rising Steel - Beyond the Gates of Hell (2022) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231544.jpgsave_picture_231544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231544.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Vision Deprived - Self Elevating, Deep Inside the Void (2023) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231545.jpgsave_picture_231545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231545.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Sororicide & Strigaskor Nr. 42 & In Memoriam - Apocalypse (1992) Split, Alda Mus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231546.jpgsave_picture_231546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231546.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76740.jpgsave_picture_76740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76740.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76741.jpgsave_picture_76741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76741.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76743.jpgsave_picture_76743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76743.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:29C0FCB0988296B846C729ED09D90B6A7F490A7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76747.jpgsave_picture_76747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76747.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:DC52ACD44210B49B6D87115335794A64689A1539
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76748.jpgsave_picture_76748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76748.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76749.jpgsave_picture_76749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76749.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76752.jpgsave_picture_76752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76752.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76753.jpgsave_picture_76753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76753.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76756.jpgsave_picture_76756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76756.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76762.jpgsave_picture_76762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76762.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Meat Loaf - американский рок-певец, кино- и театр�
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76764.jpgsave_picture_76764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76764.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76767.jpgsave_picture_76767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76767.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Pink выступила в Австралии на концерте в подд�
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76769.jpgsave_picture_76769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76769.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76771.jpgsave_picture_76771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76771.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:E37A1AFBA2BB2F2FF0E9DA7E0AFC96EB9627E2CD
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76777.jpgsave_picture_76777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76777.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5E854AB636980580E5F97B099D6C11D80A55C3DA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76794.jpgsave_picture_76794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76794.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Markus Schulz pres. - Los Angeles '12 (17.02.2012) [MP3|320 kbps]<Trance, Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76798.jpgsave_picture_76798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76798.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:09BC6C84BF9B0B4AF15FA07F36482C956702DE1E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76800.jpgsave_picture_76800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76800.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76802.jpgsave_picture_76802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76802.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76804.jpgsave_picture_76804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76804.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Zen Pinball  - это  симулятор пинболла, в  котором  
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76806.jpgsave_picture_76806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76806.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C15303510B805533872A95C825916B86F32D623A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76810.jpgsave_picture_76810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76810.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:C15303510B805533872A95C825916B86F32D623A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76817.jpgsave_picture_76817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76817.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:315FCD8A4D693A1450CF272BE08F0AE2CFC755A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76819.jpgsave_picture_76819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76819.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:D7CD7202DFB6A5175F802914B0BDB76D4B151C8A
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76823.jpgsave_picture_76823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76823.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:03BD685982067AF846A08ECF4C971CF7CD7ECF0D
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76824.jpgsave_picture_76824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76824.jpg" />
 </div>
 
 

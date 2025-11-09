@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131168.jpgsave_picture_131168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Spirits Burning & Michael Moorcock - The End Of All Songs - Part 1 (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131169.jpgsave_picture_131169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131169.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:139097406F26B7BB353D242DC4E484DB73246CF8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131170.jpgsave_picture_131170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131170.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Suzie Mork - Wearin' the Blues (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131171.jpgsave_picture_131171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131171.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Speedtest от Ookla 5.2.4 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131173.jpgsave_picture_131173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131173.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EA2A17E02BD96F80AF0CADE337A59249BB33181C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131174.jpgsave_picture_131174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131174.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Mos Eisley Spaceport - Further (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131175.jpgsave_picture_131175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131175.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131177.jpgsave_picture_131177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131177.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:583ED21A48CA723ECCB549B7FF6E77F2A3480969
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131178.jpgsave_picture_131178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131178.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The Bat! Professional 5.3.6 Christmas edition [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131180.jpgsave_picture_131180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131180.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131181.jpgsave_picture_131181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131181.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tariot - Drag Me To Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131183.jpgsave_picture_131183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131183.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpgsave_picture_131186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ F1 2012 [Ru+multi] [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131187.jpgsave_picture_131187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131187.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131188.jpgsave_picture_131188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131188.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sons Of Eternity - End Of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131189.jpgsave_picture_131189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131189.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131190.jpgsave_picture_131190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131190.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Prog Mountain - Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131191.jpgsave_picture_131191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131191.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Lyr - Lyr (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131192.jpgsave_picture_131192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131192.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Damanek - Making Shore (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131193.jpgsave_picture_131193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131193.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131194.jpgsave_picture_131194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131194.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131195.jpgsave_picture_131195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131195.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpgsave_picture_131197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Bat! Professional 5.3.6 Christmas edition RePack (& portable) by KpoJIuK [MU
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131198.jpgsave_picture_131198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131198.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131199.jpgsave_picture_131199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131199.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ magnet:?xt=urn:btih:CCAF402B9ED500A08E7E455D83E2EB665DB756C3
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131200.jpgsave_picture_131200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131200.jpg" />
 </div>
 
 

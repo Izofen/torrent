@@ -6,7 +6,7 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131064.jpgsave_picture_131064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131064.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131181.jpgsave_picture_131181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131181.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131194.jpgsave_picture_131194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131194.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131221.jpgsave_picture_131221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131221.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131272.jpgsave_picture_131272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131272.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ SGS Taipings (2023) [Ru/Multi] (23.07.21) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpgsave_picture_131301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131334.jpgsave_picture_131334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131334.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Раз
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131361.jpgsave_picture_131361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131361.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131551.jpgsave_picture_131551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131551.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131666.jpgsave_picture_131666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131666.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpgsave_picture_131711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Little Inferno [En] (RePack) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131793.jpgsave_picture_131793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131793.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Basement Collection [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131885.jpgsave_picture_131885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131885.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131921.jpgsave_picture_131921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131921.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131930.jpgsave_picture_131930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131930.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Big Adventure: Trip to Europe 6 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132037.jpgsave_picture_132037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132037.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132161.jpgsave_picture_132161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132161.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpgsave_picture_132182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132182.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132330.jpgsave_picture_132330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132330.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132823.jpgsave_picture_132823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132823.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpgsave_picture_132824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132858.jpgsave_picture_132858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132858.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpgsave_picture_132863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpgsave_picture_132864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132872.jpgsave_picture_132872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132872.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132887.jpgsave_picture_132887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132887.jpg" />
 </div>
 
 

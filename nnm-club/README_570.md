@@ -6,7 +6,7 @@ Pretenders - The Singles (1987) [MP3|320 Kbps] <New-Wave, Pop-Rock, Reggae-Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15131.jpgsave_picture_15131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15131.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15132.jpgsave_picture_15132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15132.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15133.jpgsave_picture_15133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15133.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15134.jpgsave_picture_15134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15134.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:BA237399C86138818405B8F34AB6D719A71D4558
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15135.jpgsave_picture_15135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15135.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15136.jpgsave_picture_15136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15136.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15137.jpgsave_picture_15137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15137.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15138.jpgsave_picture_15138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15138.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15139.jpgsave_picture_15139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15139.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cytotoxin - Biographyte (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15140.jpgsave_picture_15140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15140.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15141.jpgsave_picture_15141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15141.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15142.jpgsave_picture_15142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15142.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15143.jpgsave_picture_15143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15143.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15144.jpgsave_picture_15144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15144.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15145.jpgsave_picture_15145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15145.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15146.jpgsave_picture_15146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15146.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15147.jpgsave_picture_15147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15147.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:21667D99954C3A7BA17BE907A9E573F9436D60F2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15148.jpgsave_picture_15148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15148.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:38F6ECEE509249FE3E115C0A221DB55BD6E67C33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15149.jpgsave_picture_15149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15149.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Musical kaleidoscope part 42 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15150.jpgsave_picture_15150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15150.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:FCE370F8AD3FDDD4D9B135C8B42EACBCCA47B16F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15151.jpgsave_picture_15151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15151.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F1E889FE4F24A472370F5D73AF995772BAF5DC51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15152.jpgsave_picture_15152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15152.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Paul McCartney - Flowers In The Dirt (1989) Japanese Edition, SHM-CD, Reissue, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15153.jpgsave_picture_15153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15153.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:B39C288FBACD601373508F690F36EC7ADCD19A1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15154.jpgsave_picture_15154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15154.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:052741BEE5B659F297CAF13E3A4F24E95243898E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15155.jpgsave_picture_15155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15155.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:4486386104371511D604DBD12E653A49A04DCC4D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15156.jpgsave_picture_15156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15156.jpg" />
 </div>
 
 

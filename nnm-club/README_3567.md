@@ -6,7 +6,7 @@ Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpgsave_picture_113117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpgsave_picture_113118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113119.jpgsave_picture_113119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113119.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpgsave_picture_113120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113121.jpgsave_picture_113121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113121.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpgsave_picture_113122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Codepoint for Mac 1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113123.jpgsave_picture_113123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113123.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113124.jpgsave_picture_113124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113124.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113125.jpgsave_picture_113125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113125.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SiteSucker Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113126.jpgsave_picture_113126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113126.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113127.jpgsave_picture_113127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113127.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hype 4 Pro v.4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113128.jpgsave_picture_113128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113128.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113129.jpgsave_picture_113129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113129.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113130.jpgsave_picture_113130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113130.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113131.jpgsave_picture_113131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113131.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PullTube 1.8.5.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113132.jpgsave_picture_113132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113132.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113133.jpgsave_picture_113133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113133.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AudFree Audio Capture for Mac 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113134.jpgsave_picture_113134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113134.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113135.jpgsave_picture_113135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113135.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Cardhop 2.2.17 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113136.jpgsave_picture_113136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113136.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ TunesKit Audio Capture 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113137.jpgsave_picture_113137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113137.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Lipz - Scaryman (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113138.jpgsave_picture_113138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113138.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113139.jpgsave_picture_113139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113139.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SiteSucker 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113140.jpgsave_picture_113140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113140.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ EdgeView 4 v.4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113141.jpgsave_picture_113141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113141.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Benny Golson - I Remember Miles (1992) 1996, Evidence [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113142.jpgsave_picture_113142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113142.jpg" />
 </div>
 
 

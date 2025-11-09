@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105979.jpgsave_picture_105979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105979.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105980.jpgsave_picture_105980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105980.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Surf - Rock & Pop (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Surf>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105981.jpgsave_picture_105981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105981.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105982.jpgsave_picture_105982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105982.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mike Sponza - Sounds Like Sunday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105983.jpgsave_picture_105983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105983.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:21044E61C9C8309FB2A39E3E454D6AD2ACB475DA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105984.jpgsave_picture_105984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105984.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105985.jpgsave_picture_105985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105985.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105986.jpgsave_picture_105986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105986.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Fab Manzini Music - Chapter One (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105987.jpgsave_picture_105987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105987.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hall Aflame - Amplifire (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105988.jpgsave_picture_105988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105988.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Band of the Underhand - A Cheap Ride To Heaven (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105989.jpgsave_picture_105989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105989.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0763B423D7BE702D0073DA431FD8D652FCB70B2C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105990.jpgsave_picture_105990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105990.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8B175DF05014B679EE9E29461017A5F5A45C84F9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105991.jpgsave_picture_105991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105991.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Chris Connor - A Portrait Of Chris (1960) 2012, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105992.jpgsave_picture_105992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105992.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Crusade - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105993.jpgsave_picture_105993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105993.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Fractured Truth - Radiopaque (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105994.jpgsave_picture_105994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105994.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Skullboogey - Dirty Bones Rolling (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105995.jpgsave_picture_105995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105995.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Art Sherrod Jr - Feels So Good (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105996.jpgsave_picture_105996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105996.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Rathole - Out of Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105997.jpgsave_picture_105997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105997.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Photo Supreme 2024.2.2.6605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105998.jpgsave_picture_105998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105998.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:462CC3CB6B1D0395359BC42872523B2860464788
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105999.jpgsave_picture_105999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105999.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Paradise Ibiza Summer 2024: Best of Deep & Tropical House (2024) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106000.jpgsave_picture_106000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106000.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:9D3D88D8D4232A5DB0D4AF5A1376F99D0DBA3D42
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106001.jpgsave_picture_106001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106001.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Chris Slade Timeline - Timescape (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106002.jpgsave_picture_106002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106002.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Serious Noise Maker - Take Me to the Show (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106003.jpgsave_picture_106003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106003.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Sonic Scope - Tales of Shangri-La (2024) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106004.jpgsave_picture_106004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106004.jpg" />
 </div>
 
 

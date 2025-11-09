@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159342.jpgsave_picture_159342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159342.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4514C5682A8F2AB27960275CF51E8833871FF2BF
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159343.jpgsave_picture_159343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Heaven's Guardian - Chronos (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Male Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159344.jpgsave_picture_159344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159344.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VivaVideo Video Editor v9.12.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159345.jpgsave_picture_159345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159345.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:343C6226673EEB2EF13AAE8D926639B4BC08FDAA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159346.jpgsave_picture_159346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159346.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Seal 1.11.0-rc.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159347.jpgsave_picture_159347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159347.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2C3BE52F8BD7B35C75555233E5B4A6DD219976DC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159348.jpgsave_picture_159348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159348.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PhoneClean Pro 5.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159349.jpgsave_picture_159349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159349.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Stacey Kent - Summer Me, Winter Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159350.jpgsave_picture_159350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159350.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ MediaInfo 22.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159351.jpgsave_picture_159351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159351.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:25BE31F3C4BD9AA38A497C63479250AF6B2A1893
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159352.jpgsave_picture_159352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159352.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:88FBF65E0486A3633FDD1D025DC444711E7401B1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159353.jpgsave_picture_159353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159353.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:0ADD5179651D34ACE93FB7B8A0E7070A21A0A1D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159354.jpgsave_picture_159354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159354.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:D39F445D9849FD98D45D75A6EB1307BD80D52454
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159355.jpgsave_picture_159355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159355.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Спринт (11.11.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159356.jpgsave_picture_159356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159356.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2C0E07F2282AD710B0B6D651FA39FD541F759405
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159357.jpgsave_picture_159357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159357.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159358.jpgsave_picture_159358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159358.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:EA6FD9CD304BF3303C2822DF6854A20D95A34C1F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159359.jpgsave_picture_159359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159359.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D2AA67853DD8194554C92F4D612C17DDC2EA2CD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159360.jpgsave_picture_159360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159360.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:00FD5949C68C9C3091E3EFC1A24BAA99D8872B4F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159361.jpgsave_picture_159361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159361.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Unzip Expert-Zip file tool 1.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159362.jpgsave_picture_159362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159362.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F4D7815D280718534578500D8E27875CE5896306
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159363.jpgsave_picture_159363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159363.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B242B901271790DBB4DFDCA680E6D2C8B575631E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159364.jpgsave_picture_159364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159364.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159365.jpgsave_picture_159365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159365.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Wrath Of God - Blood Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159366.jpgsave_picture_159366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159366.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:05DF9AA30F9F2ECCB02EC8478B08BA0B323DB30A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159367.jpgsave_picture_159367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159367.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ray Charles - Mister Genius (1948 - 1960) 3CD, 2011, Le Chant du Monde [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142481.jpgsave_picture_142481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142481.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4F277B4E765143D761066C27B920591EA2427EAE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142482.jpgsave_picture_142482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142482.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142484.jpgsave_picture_142484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142484.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - The Hoofbeats Music Family Album (2021) [AAC|~338 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142486.jpgsave_picture_142486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142486.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IDAGIO - Classical Music v1.6.8 Premium [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142487.jpgsave_picture_142487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142487.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142488.jpgsave_picture_142488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142488.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F96DFA0BF740CDA70D19955F0E9BB0F1FD372F3D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142490.jpgsave_picture_142490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142490.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:514AD5B808F39B7AFCE39E449FE4D63B7489370C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142491.jpgsave_picture_142491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142491.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ XoBrooklynne - My Crown: The Album (2021) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142492.jpgsave_picture_142492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142492.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:35963D59113B5ADCDB83488595A17C82CD3F3332
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142493.jpgsave_picture_142493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142493.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:F0D79F6E703A4BFDB586005EB596CF9CCA3EA9A3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142494.jpgsave_picture_142494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142494.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:BCDD7E074C1E586AA425C9B0E50BB6A939C28C6D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142495.jpgsave_picture_142495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142495.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142497.jpgsave_picture_142497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142497.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142498.jpgsave_picture_142498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142498.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142499.jpgsave_picture_142499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142499.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:CDE365A06BBAF150365BC37A4E1D0DA488C7A1C8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142500.jpgsave_picture_142500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142500.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:1C7A5154E8CFBEF8A15C502606290954F457B163
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142501.jpgsave_picture_142501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142501.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:E45AC20186598A452EB7C67BF9CC87782934A531
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142502.jpgsave_picture_142502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142502.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ MediaHuman YouTube Downloader 3.9.9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142503.jpgsave_picture_142503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142503.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:37E8B6B6FBBF58250C7EAC0DE30C6CE375789B4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142504.jpgsave_picture_142504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142504.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:EFB1DC0A3F2E21C5174C1182D69A9D471C4FFC1F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142506.jpgsave_picture_142506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142506.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142508.jpgsave_picture_142508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142508.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Firetask | Task List & Planner 4.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142509.jpgsave_picture_142509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142509.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0B032B2036F95AC3516BA0189455FB2DA5AEA95D
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142510.jpgsave_picture_142510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142510.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - 4 Years of Hoofbeats Music (2020) [AAC|~334 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142511.jpgsave_picture_142511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142511.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:875FC793AA2889B55B28CC44E88466F8B00FBE2A
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142512.jpgsave_picture_142512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142512.jpg" />
 </div>
 
 

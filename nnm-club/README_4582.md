@@ -6,7 +6,7 @@ XnView MP 1.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143424.jpgsave_picture_143424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143424.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED5F7BE6075B2187A66C795DD48F4645CEE0E535
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143425.jpgsave_picture_143425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143425.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A746BA192675F8A2A92EDEAA3ACB92748C5849A6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143426.jpgsave_picture_143426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143426.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EE408199093304FFDE03642A464C85238D4FA71A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143427.jpgsave_picture_143427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143427.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DD4AE0A963DDD6CAA7C0843E6DFEC294AE66C2D2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143428.jpgsave_picture_143428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143428.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Shakra - The Best (2015) 2CD Compilation  [MP3|320 кб/с] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143429.jpgsave_picture_143429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143429.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Gilrs Wallpaper (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143430.jpgsave_picture_143430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143430.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3FF0016C7315115676DD29B0629D490E8AB14D34
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143431.jpgsave_picture_143431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143431.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143434.jpgsave_picture_143434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143434.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3BA50B516C81C76B8A4C3A22EFB68C37DD3F8480
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143435.jpgsave_picture_143435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143435.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ KLS Backup 2021 Professional 11.0.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143436.jpgsave_picture_143436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143436.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orch
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143438.jpgsave_picture_143438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143438.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Slate Digital - Virtual Mix Rack Complete 2.5.2.1 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143439.jpgsave_picture_143439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143439.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2A88128C7698D979C70FC109B00196756F9E73A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143441.jpgsave_picture_143441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143441.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:512D416D6DB398F3F5A7F5CC3AAB71703CD889E7
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143442.jpgsave_picture_143442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143442.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Tehace - Zipped Noise From Hell (2006) [MP3|320 кб/с]<Technical Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143443.jpgsave_picture_143443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143443.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:3BAD4346468385D0B61CD2A06F04C118FAF1BF6D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143444.jpgsave_picture_143444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143444.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1988E8F551ACE2A9EF1DE0AE444DB32AD7B6B87F
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143446.jpgsave_picture_143446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143446.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:CFFEA1CEEE0AFB0E961B6E7AECDA6E815327222B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143447.jpgsave_picture_143447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143447.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Comedy Woman  (2015.12.18) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143448.jpgsave_picture_143448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143448.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143449.jpgsave_picture_143449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143449.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sexy Girls Wallpapers (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143450.jpgsave_picture_143450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143450.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:B5E4229A75B2BFE01F0A41AB232398D6671E5BBA
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143451.jpgsave_picture_143451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143451.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sexy Girls Pack Wallpapers (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143453.jpgsave_picture_143453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143453.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:F0F49502320ADFF831652562E2BDAD48CBCD8CBE
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143454.jpgsave_picture_143454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143454.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C806975C9A9554AABEAB3ED921056C40652160D1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143455.jpgsave_picture_143455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143455.jpg" />
 </div>
 
 

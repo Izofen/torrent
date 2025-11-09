@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67180.jpgsave_picture_67180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67180.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:548A6D60FC77B7419A936364ECB154CDDE081EB1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67181.jpgsave_picture_67181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67181.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0E596B5FABA9D8800A5EA488A7DB776F54FEFCB1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67182.jpgsave_picture_67182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67182.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67183.jpgsave_picture_67183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67183.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:62B9069ED68D69376A5204F606D264CCD62CD285
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67184.jpgsave_picture_67184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67184.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:92CA5DE00CE526F09C6DAA23F2A0FBD71845D130
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67185.jpgsave_picture_67185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67185.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B7516E21DD764E23B88E0207B3702ED1F565F779
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67186.jpgsave_picture_67186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67186.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Compact Jazz - Best of the Jazz Vocalists (1992) CD, Compilation [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67187.jpgsave_picture_67187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67187.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BB17FA7D86674D69945EF19872ADAA833865B3BA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67188.jpgsave_picture_67188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67188.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Ori Uplift - Uplifting Only Episode 638 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67189.jpgsave_picture_67189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67189.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mal Waldron - Four Classic Albums (1956 - 1959) 2CD, 2024, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67190.jpgsave_picture_67190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67190.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Acephala - Division By Zero (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67191.jpgsave_picture_67191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67191.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Awaken the Night - Total Kommando (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67192.jpgsave_picture_67192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67192.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Ataudes - Tempus Edax Rerum (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67193.jpgsave_picture_67193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67193.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpgsave_picture_67194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpgsave_picture_67195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:2E556FBE75FCDB812ADC7FEA45478886B6ECD8D1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67196.jpgsave_picture_67196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67196.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B21138A10DE3B7785465BA95B3E37F05892B3BFE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67197.jpgsave_picture_67197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67197.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Saori Yano - Little Tiny (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67198.jpgsave_picture_67198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67198.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpgsave_picture_67199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:2683ABF20574B4E61266642B80A626E0F88017E1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67200.jpgsave_picture_67200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67200.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:13485D78EDF8248B5A5D1A34E5D30BCC1DDB3299
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67201.jpgsave_picture_67201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67201.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67202.jpgsave_picture_67202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67202.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Interplay 2024 (Selected By Alexander Popov) (2024) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67203.jpgsave_picture_67203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67203.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:ABCD6D3AD42917388D28C587A0C5ED735AF90437
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67204.jpgsave_picture_67204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67204.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpgsave_picture_67205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpg" />
 </div>
 
 

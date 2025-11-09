@@ -6,7 +6,7 @@ VA - Понемногу отовсюду by Yuridar #G-H (1980-2022) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160903.jpgsave_picture_160903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160903.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:38D3A173D2FE97D91B7135357D68A770F944883B
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160904.jpgsave_picture_160904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160904.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:45BB7266599682599A3849867DD37A60DF9FC0CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160905.jpgsave_picture_160905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160905.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:AA0BF67530165760C20FAFB229D35A6A1F506F67
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160906.jpgsave_picture_160906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160906.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:EABC97D3453D98CB86EB2648465717AF96CD5DAC
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160907.jpgsave_picture_160907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160907.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:714D6E4A322C2138D42F10CD6BDDEA0A533FAFFE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160908.jpgsave_picture_160908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160908.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:65F14F15A33E63D134705407F72BC78200AE8066
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160909.jpgsave_picture_160909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160909.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:BDAE8723BEA2727907BB0A9C94F8C99ABE73DBAF
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160910.jpgsave_picture_160910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160910.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3695C260208147994DDD2D9A4B77ADB67E715AFE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160911.jpgsave_picture_160911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160911.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:058EE9A697E715A5CF53E96CFB96F7EE29DE82FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160912.jpgsave_picture_160912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160912.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:911C4C3B6F93E152DF143895A26EDCE542AEC94A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160913.jpgsave_picture_160913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160913.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160914.jpgsave_picture_160914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160914.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160915.jpgsave_picture_160915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160915.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:79CF2ABF5DE5C8F198595ABCA877F125CC67AD94
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160916.jpgsave_picture_160916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160916.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:FF005BE0AC202C74A5F9208D66F4389FF4AB2576
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160917.jpgsave_picture_160917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160917.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:6F021A933AA0EB008A2B29428BA41BEBE39C0505
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160918.jpgsave_picture_160918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160918.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160919.jpgsave_picture_160919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160919.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160921.jpgsave_picture_160921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160921.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4E56A5D4C422D0E874BFB7A96ED650D7C93114F0
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160922.jpgsave_picture_160922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160922.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:79DDBBB7363352903DBC9DB4E719190167B8C22A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160923.jpgsave_picture_160923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160923.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:39D71D04360E9E7B9562D9F35431C6DA6A63C5D6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160924.jpgsave_picture_160924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160924.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:6777A07524FF342DB26C85AFCA6FBE8B693AAF13
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160925.jpgsave_picture_160925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160925.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Malwarebytes Premium 4.6.6.294 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160926.jpgsave_picture_160926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160926.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:F27BF622BE48B006BB984C4CE958B13B48BA30DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160927.jpgsave_picture_160927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160927.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:67798E066D914213F27FF69582C3C55261C8A454
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160928.jpgsave_picture_160928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160928.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:F4DAB600D17706D47A1736B12D49B8A73A629ABF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160929.jpgsave_picture_160929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160929.jpg" />
 </div>
 
 

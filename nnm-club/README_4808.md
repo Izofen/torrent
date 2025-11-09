@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150473.jpgsave_picture_150473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150473.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:865278E7812BADDFF2B1B284951F07768E5ABB2F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150475.jpgsave_picture_150475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150475.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Hotel, Bar & Restaurant Romantic Background Music (2023) [MP3|320 Kbps] <Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150476.jpgsave_picture_150476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150476.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:811EA6316FCE9F43BC67403593F039A0185C7BEC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150477.jpgsave_picture_150477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150477.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150478.jpgsave_picture_150478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150478.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:FF0A15323D582500499C809AC24B277109DA88BD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150479.jpgsave_picture_150479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150479.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:553CF5D711F7E40E448993D11AF8D9C8D476674B
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150480.jpgsave_picture_150480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150480.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ TweakNow WinSecret Plus! 4.9.16 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150482.jpgsave_picture_150482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150482.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:547F2DE026464403F793AC3572C9B04A471EC602
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150483.jpgsave_picture_150483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150483.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:63861D6B263C1159EEF7277A3D256F3955A30DA9
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150484.jpgsave_picture_150484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150484.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:E2FC16AE75324F01C6801E1702D2306A2B04DB49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150485.jpgsave_picture_150485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150485.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:E6C9BE15582B6C7A77284B21847DEC01E7A9409E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150486.jpgsave_picture_150486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150486.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:844554DC2A921AE286FCC002CB5D9E70D0378612
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150488.jpgsave_picture_150488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150488.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:51441D11CD1BECDD52075A7ED9B1D855F7BF37CA
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150489.jpgsave_picture_150489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150489.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:3BF9CF41AFBEADEA209F56C5E1C58338CF780C5D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150490.jpgsave_picture_150490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150490.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4A1CF6527B1685C373392AD1BDF5076585DA280E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150491.jpgsave_picture_150491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150491.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:9E4373832BD538472BA227F7F3866DDDC4BD35C4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150492.jpgsave_picture_150492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150492.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2B2894579FF5C325C04EAF68475A9AB30E7BD826
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150493.jpgsave_picture_150493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150493.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ NVIDIA GeForce Experience 2.8.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150495.jpgsave_picture_150495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150495.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AAF DCH Optimus Sound 6.0.9075.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150496.jpgsave_picture_150496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150496.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E2A123FC431866EEC4A2B57CF2C6A24B297A8EB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150497.jpgsave_picture_150497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150497.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:BA75A71E0A03A3A72B130631CBB6F3359003EE06
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150498.jpgsave_picture_150498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150498.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150499.jpgsave_picture_150499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150499.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Mandarin Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150500.jpgsave_picture_150500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150500.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Mandarin Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150501.jpgsave_picture_150501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150501.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150502.jpgsave_picture_150502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150502.jpg" />
 </div>
 
 

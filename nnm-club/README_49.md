@@ -6,7 +6,7 @@
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1311.jpgsave_picture_1311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1311.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FL Studio Producer Edition 25.1.6.4997 - All Plugins Edition + Addons (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1312.jpgsave_picture_1312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1312.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0FF334165F58B96772BF88F2BA387C7D2017A0F0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1313.jpgsave_picture_1313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1313.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9B465D4962EF002A7D03E40AEADC322BCF6B97D6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1314.jpgsave_picture_1314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1314.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bandicam 8.2.2.2531 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1315.jpgsave_picture_1315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1315.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpgsave_picture_1316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1317.jpgsave_picture_1317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1317.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1318.jpgsave_picture_1318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1318.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:BF3FBFE28C897CB20938E720FDEDB25D1161B639
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1319.jpgsave_picture_1319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1319.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.3 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1320.jpgsave_picture_1320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1320.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Relax Rain: sleeping sounds v9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1321.jpgsave_picture_1321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1321.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:3B1DC488455EF4CB6427DEA4C46126E7D8FB9626
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1322.jpgsave_picture_1322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1322.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:E29355566FC2B33E87FD9B1B65BC0339BF44ECA1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1323.jpgsave_picture_1323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1323.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Abelssoft HappyCard 4.05 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1324.jpgsave_picture_1324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1324.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1698E9EA26D85827D386CDD2497875914AE1DF92
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1325.jpgsave_picture_1325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1325.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ DVDFab 13.0.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1326.jpgsave_picture_1326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1326.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:374DDB3AACDD6CB2CE2C79B583A10536C69B402E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1327.jpgsave_picture_1327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1327.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:103342881F0A78A39141451ADD6608DA9FBC65BE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1328.jpgsave_picture_1328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1328.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:2097E0D8DE8AA7117A7F2D59CBE89E0ABB5278AD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1329.jpgsave_picture_1329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1329.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:823CFE339E202EA90E037D0DFBCEF1AF327D1D37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1330.jpgsave_picture_1330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1330.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1331.jpgsave_picture_1331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1331.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:BB5D436C5EC7DB3815464902B3839F58FAFE61CD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1332.jpgsave_picture_1332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1332.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Topaz Gigapixel AI Pro 8.4.4 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1333.jpgsave_picture_1333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1333.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpgsave_picture_1334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1335.jpgsave_picture_1335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1335.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1336.jpgsave_picture_1336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1336.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139702.jpgsave_picture_139702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139702.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139703.jpgsave_picture_139703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139703.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:0C7557FE647F3EA9355E11647E337F8F157C6D88
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139704.jpgsave_picture_139704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139704.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E9A1FF97EB09CBEEE1BED235F42541312F10317B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139705.jpgsave_picture_139705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139705.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Helicon Filter 5.1.1.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139707.jpgsave_picture_139707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139707.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Helicon Filter 5.1.1.1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139708.jpgsave_picture_139708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139708.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:D7F630005EC5A66E028F3A6F7188888527E3E3AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139710.jpgsave_picture_139710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139710.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139711.jpgsave_picture_139711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139711.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139712.jpgsave_picture_139712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139712.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139713.jpgsave_picture_139713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139713.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mirillis Action! 4.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139715.jpgsave_picture_139715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139715.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139716.jpgsave_picture_139716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139716.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139720.jpgsave_picture_139720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139720.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139721.jpgsave_picture_139721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139721.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139723.jpgsave_picture_139723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139723.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:798DDDF348AFE27CE7B4648704D9CCBE985CB0CE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139724.jpgsave_picture_139724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139724.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:29D4AAACA6FEA5F94BC7213ABA843D82AD3E0212
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139725.jpgsave_picture_139725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139725.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:C18325FE93A405741C760CC9D81F93BBAB09965C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139726.jpgsave_picture_139726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139726.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139728.jpgsave_picture_139728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139728.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:9EF639EC6D4626D9099A41749DE2578A645A373D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139729.jpgsave_picture_139729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139729.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:2AC18B2243B0FCE2E827435086E86FCA736899FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139730.jpgsave_picture_139730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139730.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:C90EF9573F3AEDE52C6E5F5F4722CB8F5608A5CE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139731.jpgsave_picture_139731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139731.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Kryder - Kryteria Radio 166 (Yearmix 2018) 2018-12-26 [MP3|192 Kbps] <House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139732.jpgsave_picture_139732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139732.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:DADA4EF1C77B41E3DCC33A534C59297B75A2089E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139733.jpgsave_picture_139733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139733.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:0FB86D34D6E15398B0DA4EDD610EBD2D7E62D137
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139734.jpgsave_picture_139734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139734.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:17973BD4C3F82E5B32E6207992BBC3409A11FBAD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139735.jpgsave_picture_139735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139735.jpg" />
 </div>
 
 

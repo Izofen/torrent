@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163467.jpgsave_picture_163467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pasquale Grasso - Pasquale Plays Duke (2021) Sony Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163468.jpgsave_picture_163468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163468.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Extreme Cold Winter - 2 Albums (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163469.jpgsave_picture_163469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163469.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Первый танцевальный, Vol. 19 (2019) [MP3|320 Kbps] <Pop, 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163470.jpgsave_picture_163470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163470.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ HD Video Converter Movavi 22.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163471.jpgsave_picture_163471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163471.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:EC7628C483AAF3F4514D1E67D65AF52B2FB3ECCB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163472.jpgsave_picture_163472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163472.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D499126015C4097D6FF1EC6C7A99D3BCC8D0FA01
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163473.jpgsave_picture_163473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163473.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163474.jpgsave_picture_163474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163474.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:4E0B0D13D18A78F4EDAD215EAA772D42A8DA799E
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163475.jpgsave_picture_163475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163475.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:FED251EF4F19BD482A1308F435CA7C5AC0194A0C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163476.jpgsave_picture_163476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163476.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163477.jpgsave_picture_163477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163477.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:230D26CE9CEBFCEF05EB78F2E2BE0800EDA3CF5F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163478.jpgsave_picture_163478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163478.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Surge for Mac 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163479.jpgsave_picture_163479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163479.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Boz (Bollox Of Zatan) - Fury of Pegana (2022) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163480.jpgsave_picture_163480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163480.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Internet Download Manager 6.35 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163481.jpgsave_picture_163481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163481.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163482.jpgsave_picture_163482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163482.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:A906A51E2B372FA9E99112EFEB687D9F67038FA2
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163483.jpgsave_picture_163483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163483.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:07D0417CA1319C0B9BE18A4429C8B552B05C2F47
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163484.jpgsave_picture_163484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163484.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163485.jpgsave_picture_163485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163485.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:3DED2E526D2062298FB6CC647BC88611539DDF2F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163486.jpgsave_picture_163486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163486.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Chet Baker - Blue Room (1979) 2CD, 2023, Jazz Detective [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163487.jpgsave_picture_163487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163487.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:6FF9DBEC92A11B0986C6D850CFAA7ED9727D2C2B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163488.jpgsave_picture_163488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163488.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FBA1D41FB7E4BBE76BC006BFB4DBD6A8B4F1D3EF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163489.jpgsave_picture_163489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163489.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8B6D7C1093D5FBD702EA059A37F08BBB2BA33BBC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163490.jpgsave_picture_163490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163490.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Native Instruments - Guitar Rig 6 Pro 6.1.1 STANDALONE, VST, AAX (x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163491.jpgsave_picture_163491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163491.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:865E6E0EE34590CDA29CED9B55729B606F01BF87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163492.jpgsave_picture_163492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163492.jpg" />
 </div>
 
 

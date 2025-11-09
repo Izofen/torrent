@@ -6,7 +6,7 @@ Pixelmator Pro 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169769.jpgsave_picture_169769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169769.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:847222F06F601DD76546ADE169294B603DB04B1D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169770.jpgsave_picture_169770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169770.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A5B81384E220A87828F3E5308DB9166BE6136FB0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169771.jpgsave_picture_169771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169771.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:386D1499B2E7093C73D95579536907FD8553D7DB
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169772.jpgsave_picture_169772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169772.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FDB269B21A513A541162F0275AFA930E41205DBF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169773.jpgsave_picture_169773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169773.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169774.jpgsave_picture_169774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169774.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Dropshare 5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169775.jpgsave_picture_169775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169775.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:597152D29838E8D229756F08786CA2FD9FB6BA92
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169776.jpgsave_picture_169776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169776.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7A7EF53E62EFC106774D63B9A72DCEDBA798DEC2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169777.jpgsave_picture_169777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169777.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:BDA5611A31C2459B9099BAADCA1AF4A59C28F83E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169778.jpgsave_picture_169778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169778.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ System Toolkit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169779.jpgsave_picture_169779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169779.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:96243419CDD42A3D6595116C5B75292B4891AF19
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169780.jpgsave_picture_169780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169780.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:06C232B02DF8B6AFE7C7CBADE2D0DB0DFCABE0FA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169781.jpgsave_picture_169781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169781.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169782.jpgsave_picture_169782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169782.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169783.jpgsave_picture_169783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169783.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:7817CD18391C94B2909EFF6D8BAAE9ACF5EB553C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169784.jpgsave_picture_169784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169784.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:D45E21EA2EC26551788F74D973790CA9DB30398A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169785.jpgsave_picture_169785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169785.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:C313EB3DA57BD292CE5608C12E71DE6478CEF785
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169786.jpgsave_picture_169786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169786.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:BDED672DCC6D0D9F9E2D0497683D9AD4C4B5ED5B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169787.jpgsave_picture_169787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169787.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FD043DD5C6B551679C0174D203991095AA7275EE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169788.jpgsave_picture_169788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169788.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:59D330725D19FC9D0AF70F8359977F3924D312E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169789.jpgsave_picture_169789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169789.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:E259CC0DC2C67347A5520773E94AED7E30F93CD6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169790.jpgsave_picture_169790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169790.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Britney Spears - Glory (Deluxe) (2020) [AAC|~333 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169791.jpgsave_picture_169791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169791.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B3E06F784003095D6F74551F8D4F44014FE26265
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169792.jpgsave_picture_169792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169792.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:55BD40CB81FA43F3099DED7D93515FA3B9AE74E7
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169793.jpgsave_picture_169793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169793.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ GoodSync Enterprise 10.10.15.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169794.jpgsave_picture_169794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169794.jpg" />
 </div>
 
 

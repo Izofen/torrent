@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170730.jpgsave_picture_170730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170730.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46410BA81ECBA723EBD72044D732725EA7A8AB3D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170731.jpgsave_picture_170731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170731.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2974B6FCE67F48537EDF3998A5ABE69CA4038E7B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170734.jpgsave_picture_170734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170734.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nik Collection by DxO 5.3.0.0 Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170735.jpgsave_picture_170735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170735.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CrossOver Linux 18.5.0 [x86-x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170736.jpgsave_picture_170736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170736.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D224FEDF0387867E5EA9025A611898BFDDEED14E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170737.jpgsave_picture_170737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170737.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DC4A4F3AA74A364DF09BE8D18A001E9A4272AFDE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170738.jpgsave_picture_170738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170738.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ StartAllBack 3.6.15 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170739.jpgsave_picture_170739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170739.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F8EF24964B1D224FE7F80E8B02E78335BC98FA9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170740.jpgsave_picture_170740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170740.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:1C88F6FE55F2702DB28178D0E7CB68FD04EF3BF2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170741.jpgsave_picture_170741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170741.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8FBCAC2CA2640913E5EA47620610A16D56EFD1FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170742.jpgsave_picture_170742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170742.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:5AB80B0EE8F627E9EB770AF64CB2BBED6CA8BF81
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170743.jpgsave_picture_170743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170743.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:EC1AE3CE2A1C86855C6171D9ED80AC192BD1D16B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170744.jpgsave_picture_170744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170744.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ RollBack Rx Professional 12.5 Build 2708963368 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170745.jpgsave_picture_170745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170745.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:35E817CB3E543A6C6FC01FEFF1987FD05F5DB6F3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170746.jpgsave_picture_170746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170746.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170747.jpgsave_picture_170747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170747.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8D9AD903E319BD260862A63E1D91C488EFD3BBB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170748.jpgsave_picture_170748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170748.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:DF9BE9936A05837E49054B2AC2AC96B24A80C41E
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170749.jpgsave_picture_170749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170749.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:09F789136F4870A545840596931962DF3DFAE1A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170750.jpgsave_picture_170750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170750.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D1FF9D7DAFDDB4A9B5FE90147C8705A72DD1199E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170751.jpgsave_picture_170751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170751.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:DEB8120DCE6F626DABF97E349DA8F520B8C24C9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170752.jpgsave_picture_170752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170752.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170753.jpgsave_picture_170753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170753.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:6492C5CDFD0123B13D50C4C4A9FFD442589E787C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170754.jpgsave_picture_170754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170754.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E451E6629232B46AF7681E7E217922B404461922
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170756.jpgsave_picture_170756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170756.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:676AC08C446648E5D191607FBA6420D898EC56AB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170757.jpgsave_picture_170757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170757.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Wondershare Filmora Х v10.1.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170758.jpgsave_picture_170758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170758.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VN - Video Editor / VN - Видеоредактор v2.1.6 Mod by Alien [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173164.jpgsave_picture_173164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173164.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173165.jpgsave_picture_173165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173166.jpgsave_picture_173166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173166.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - German Top 100 Single Charts 13.10.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173167.jpgsave_picture_173167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173167.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:6369701FC9D591AD8D3C23A810D32BEC065FD767
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173168.jpgsave_picture_173168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173168.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4122EE57CD8C7C27B47F56A422A717A5650E9151
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173169.jpgsave_picture_173169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173169.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ DxO PhotoLab 7 ELITE Edition 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173170.jpgsave_picture_173170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173170.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Electronic compilation part 37 (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173171.jpgsave_picture_173171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173171.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Luminar Neo 1.14.0.12151 (x64) Portable by conservator [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173172.jpgsave_picture_173172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173172.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:353349A734F38FDE9E376B38D5948D04FECA3271
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173173.jpgsave_picture_173173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173173.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Poppy - Zig (2023) [MP3|256 Kbps] <Electro-Industrial / Electropop / Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173174.jpgsave_picture_173174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173174.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173175.jpgsave_picture_173175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173175.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Sumatra PDF 3.5.15711 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173176.jpgsave_picture_173176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173176.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173177.jpgsave_picture_173177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173177.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2FB47D8F27AD1E0A923FB5E77D046581C1123CF1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173178.jpgsave_picture_173178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173178.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Process Lasso Pro 12.4.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173179.jpgsave_picture_173179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173179.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173180.jpgsave_picture_173180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173180.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173181.jpgsave_picture_173181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173181.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:A2CFC96049727587483E11D037144C27B35C2F2B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173182.jpgsave_picture_173182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173182.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Photo Supreme 2023.2.0.5052 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173183.jpgsave_picture_173183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173183.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:4EA58C7CF14EA124323931581438061F4AD770FE
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173184.jpgsave_picture_173184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173184.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173185.jpgsave_picture_173185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173185.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The 9th Creation - Bubble Gum (1975) 2002, P-Vine Records [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173186.jpgsave_picture_173186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173186.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:3A683F7C6539057E0B9ED097523AD31DBB1CCACB
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173187.jpgsave_picture_173187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173187.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173188.jpgsave_picture_173188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173188.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173189.jpgsave_picture_173189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173189.jpg" />
 </div>
 
 

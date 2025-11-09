@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60453.jpgsave_picture_60453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60453.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F481A8D597F4A511FFDB03F152FE1CB01F409848
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60454.jpgsave_picture_60454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:6E5DA50F5B4FDAD51ED0270DC9BCB1B7AD4D93CC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60455.jpgsave_picture_60455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60455.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:D4D6DA0AF1C2B8C01914278FDC8215269800A9E3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60456.jpgsave_picture_60456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60456.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60457.jpgsave_picture_60457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60457.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:75ACE4A14BBB2BB23C1A2DE9CEF4F20B5C5A22C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60458.jpgsave_picture_60458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60458.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:75ACE4A14BBB2BB23C1A2DE9CEF4F20B5C5A22C1
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60459.jpgsave_picture_60459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60459.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:7CFDAA44A5ECEBA328E98CCA04686CF10367A2AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60460.jpgsave_picture_60460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60460.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:8F0CD537E37D247245788165FDD8A1D3C2CE6409
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60461.jpgsave_picture_60461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60461.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60462.jpgsave_picture_60462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60462.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:0F66AFBC23A7D28F75C15FA75C11A93E16321140
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60463.jpgsave_picture_60463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60463.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0BF33072DFECA008ADA299FBB7FBA970E738BB1E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60464.jpgsave_picture_60464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60464.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:93757067CF46F0DD8A48CAE211CE5B443006CAC1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60465.jpgsave_picture_60465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60465.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:171A7C32DCA76E4CF4BDCDF5394A4D3EC3C2C1E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60466.jpgsave_picture_60466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60466.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:42A3CD05754350C5CB3B0C0EEDF03E7F0C420C57
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60467.jpgsave_picture_60467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60467.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Topaz Video AI 4.2.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60468.jpgsave_picture_60468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60468.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C1D332B599F9811D16BD7A9303215A71D9B56858
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60469.jpgsave_picture_60469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60469.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:2B418B526CF5EDCC4E071BEF6D3CD1A21547D6AC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60470.jpgsave_picture_60470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60470.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7DD4F680D7E7486537892FB76A5951770348470A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60471.jpgsave_picture_60471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60471.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60472.jpgsave_picture_60472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60472.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Austin School of Furniture & Design, Philip Morley | Изготовление м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60473.jpgsave_picture_60473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60473.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60474.jpgsave_picture_60474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60474.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:959FF9CE25315A3F99744A9EA6D37E536C332C64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60475.jpgsave_picture_60475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60475.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:959FF9CE25315A3F99744A9EA6D37E536C332C64
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60476.jpgsave_picture_60476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60476.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:AC6590395BA2198FA2C9D1D919170F2D8A746200
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60477.jpgsave_picture_60477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60477.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:0766D18B6BC9F8C12D5CFF6C303A65FB82708569
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60478.jpgsave_picture_60478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60478.jpg" />
 </div>
 
 

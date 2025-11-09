@@ -6,7 +6,7 @@ NIUBI Partition Editor 9.6.3 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233598.jpgsave_picture_233598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233598.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ One Switch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233600.jpgsave_picture_233600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233600.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8DAE31E73EC46379142C29F340448AB67F2A7994
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233601.jpgsave_picture_233601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233601.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4B60FD898199C9E2764B1DFB14229E6ECE061679
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233602.jpgsave_picture_233602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233602.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ X Icon Changer - Change Icons 4.2.7 Mod by Citrus, PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233603.jpgsave_picture_233603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233603.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233604.jpgsave_picture_233604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233604.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Phase One Capture One 23 Enterprise 16.2.0.1367 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233605.jpgsave_picture_233605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233605.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5F89F5B4D1CA5D609BAF6039332141C4E6C04AA4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233606.jpgsave_picture_233606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233606.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:EEF7346F55E09AFB6B68A26231B362CCB56B0A52
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233608.jpgsave_picture_233608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233608.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Black Out 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233609.jpgsave_picture_233609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233609.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:21D2B3AB357FF9D5568151C9842A47545079A243
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233610.jpgsave_picture_233610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233610.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B5EC2A37D69FE3BAEB93763F9C2E93E547C9278A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233611.jpgsave_picture_233611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233611.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:A1CC2988BFE7329F4876A8FD6642DBA4CC495F19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233612.jpgsave_picture_233612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233612.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Daft Punk - Random Access Memories (2013) 2CD, 2023 - 10th Anniversary Edition [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233613.jpgsave_picture_233613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233613.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233614.jpgsave_picture_233614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233614.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:9496558D1FE1F92F55AEA8A03AD1845208280BC5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233615.jpgsave_picture_233615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233615.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233616.jpgsave_picture_233616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233616.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:985083A7AF746E0D3ED8CB4B4D374C78EC1F2FE5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233617.jpgsave_picture_233617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233617.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Opera One 100.0.4815.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233618.jpgsave_picture_233618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233618.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ WSCC (Windows System Control Center) 7.0.6.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233619.jpgsave_picture_233619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233619.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ FastStone Capture 10.1 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233620.jpgsave_picture_233620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233620.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ AmanVPN 2.1.9.0513 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233621.jpgsave_picture_233621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233621.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fort Firewall 3.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233622.jpgsave_picture_233622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233622.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Permute 3 v.3.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233623.jpgsave_picture_233623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233623.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ TG Pro (Temperature Gauge Pro) 2.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233624.jpgsave_picture_233624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233624.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ AAF DCH Optimus Sound 6.2329.9403 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233625.jpgsave_picture_233625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233625.jpg" />
 </div>
 
 

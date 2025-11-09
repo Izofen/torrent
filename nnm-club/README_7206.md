@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246340.jpgsave_picture_246340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2BDF0FAD83E88E68315422EF79B45D74B4F94AD0
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246342.jpgsave_picture_246342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DE6721FD2622112C9FCFC9FE5E8BEE105002168A
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246344.jpgsave_picture_246344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246344.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Top Club Hits Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246345.jpgsave_picture_246345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246345.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:73A768008898ECF1843FE223EFBBCB8A9F48DC16
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246346.jpgsave_picture_246346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246346.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:26B69ED521F2C20A38C7B85EB86CE05E0D30B7EB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246347.jpgsave_picture_246347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246347.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:DE1002E0BE3EF7DF38FA8CCD7981617B5958C51A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246348.jpgsave_picture_246348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246348.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D2E693B96BDF3C89AEA330BE40CFE15088E6E64C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246349.jpgsave_picture_246349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246349.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:8ED8ADFF0FCCB31B1DC1562026ECBF522EF9CD63
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246350.jpgsave_picture_246350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246350.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4A4E356DBB225373100A3787D1327E1723F1B891
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246351.jpgsave_picture_246351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246351.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ it-black, Виктор Черемных | Администрирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246352.jpgsave_picture_246352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246352.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:77E1037835A9B0B3DC9C1CC5E54A3D4EDFF1360B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246353.jpgsave_picture_246353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246353.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246356.jpgsave_picture_246356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246356.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Directory Opus 13.19 Build 9399 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpgsave_picture_246358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DE8711184DF0C0149DA76032A3A598711487F353
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246365.jpgsave_picture_246365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246365.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:620CE3846A3817EEE92F550E9050D598F4E367E5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246366.jpgsave_picture_246366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246366.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kunz & Knobel - Die Suche (2011) [MP3|320 кб/с]<electro-pop, trip-hop, german
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246367.jpgsave_picture_246367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246367.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246371.jpgsave_picture_246371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246371.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Boulou Ferre & Niels Pedersen & Elios Ferre - Trinity (1982) [MP3|320 кб/с]<�
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246373.jpgsave_picture_246373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246373.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:51860D9C20FEEDC9AB30CAC7EB5BF01A6CB2ABC9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246375.jpgsave_picture_246375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246375.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6C985063FB8FE42386E468DEF58BA2740FD9A9E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246376.jpgsave_picture_246376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246376.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8CF69D8C8B19A52A66E07D26A218C69ED2A8FB3F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246384.jpgsave_picture_246384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246384.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Песня мамочке любимой (2012) [MP3|320 кб/с]<Pop,Ша�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246386.jpgsave_picture_246386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246386.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:706A35209D78E42C31BA94AA99C873762D31D61C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246387.jpgsave_picture_246387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246387.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ SLOZHNIE - За шестым слоем (2012) [MP3|320 кб/с]<Underground Rap
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246389.jpgsave_picture_246389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246389.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:696ED0CE977461C5AA171CE6FE458EBEC9DD8F7A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246394.jpgsave_picture_246394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246394.jpg" />
 </div>
 
 

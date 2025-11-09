@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18916.jpgsave_picture_18916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18916.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0F06CF828E572EA65F1EBA13B044DD7785AD015B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18917.jpgsave_picture_18917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18917.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Screenshot touch v2.5.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18918.jpgsave_picture_18918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18918.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WeNote: заметки блокнот планер v6.30 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18919.jpgsave_picture_18919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18919.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A6A389985EA661476F2F8EC1474766153D8843FF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18920.jpgsave_picture_18920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18920.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:099098A4FDE73C564C6BD3FEE9D053218726B414
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18921.jpgsave_picture_18921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18921.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B398BEA30DEC9E6C0E8700AB39B4F1E01A5DCC69
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18922.jpgsave_picture_18922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18922.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Pencil Photo Sketch : Drawing v2.2.20 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18923.jpgsave_picture_18923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18923.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:82B986FD80039A1B051E50A20F6485CC6C074D5E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18924.jpgsave_picture_18924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18924.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ghost - Rite Here Rite Now (Original Motion Picture Soundtrack) (2024) 2 x CD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18925.jpgsave_picture_18925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18925.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18926.jpgsave_picture_18926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18926.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B3A0C5E039C13FCF055F4AA2DD7CC57044DD55CF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18927.jpgsave_picture_18927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18927.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18928.jpgsave_picture_18928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18928.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ TuneIn Radio Pro v38.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18929.jpgsave_picture_18929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18929.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PowerDirector – Video Editor v15.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18930.jpgsave_picture_18930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18930.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Peter Murphy - Silver Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18931.jpgsave_picture_18931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18931.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18932.jpgsave_picture_18932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18932.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:1635D03A5A9B1661B70CF07270408D81EB923821
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18933.jpgsave_picture_18933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18933.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18934.jpgsave_picture_18934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18934.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:D94D04400422EA2E7D8729B840A9D98C59C19EBF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18935.jpgsave_picture_18935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18935.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:56D8EBE2C438BA24BDD25A679AA59040924054BF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18936.jpgsave_picture_18936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18936.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:0D7145EE4CF2F7EA077286A4B2BA90FDA1C4F987
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18937.jpgsave_picture_18937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18937.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ EF Commander 25.08 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18938.jpgsave_picture_18938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18938.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:7B8796E4A9FB1F5A2FCB9BFA124AD5A2E4A5EA77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18939.jpgsave_picture_18939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18939.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:5216DFD6CC6B239B0E3040C14D74AEA44793D823
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18940.jpgsave_picture_18940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18940.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:27AC0C39F2C5B46D6C661CDE35331F6A7B24DF06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18941.jpgsave_picture_18941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18941.jpg" />
 </div>
 
 

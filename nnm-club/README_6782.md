@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpgsave_picture_233418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3F3C2A75F3FCE19E95408A9DF233E6525BC3ACBB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233419.jpgsave_picture_233419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233419.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ YT Downloader 7.26.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233421.jpgsave_picture_233421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233421.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Find Any File (FAF) 2.3.2 b8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233422.jpgsave_picture_233422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233422.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9466CB7EFC3308429659DC7BFE5AE4869867F257
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233423.jpgsave_picture_233423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233423.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A9731F4A26CF0AE486B0FAC3568D8AD713D40D4B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233424.jpgsave_picture_233424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233424.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1B5098029750E3F8521D9FEA614B8A8264745791
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233425.jpgsave_picture_233425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233425.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ The Great Gray Funk - The Great Gray Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233426.jpgsave_picture_233426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233426.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233427.jpgsave_picture_233427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233427.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233429.jpgsave_picture_233429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233429.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Take It to Church, Vol. 3 (2020) [AAC|~351 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233430.jpgsave_picture_233430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233430.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:1565350EFBB27D8CFD35C478314F89B25791F275
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233431.jpgsave_picture_233431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233431.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:87E7EF962BA44977EC2A65804F6C4170D76274BE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233432.jpgsave_picture_233432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233432.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233434.jpgsave_picture_233434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233434.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ RTG. Саблинские пещеры (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233435.jpgsave_picture_233435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233435.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:73800171DE8C5D156C42718A990F7A361A824288
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233436.jpgsave_picture_233436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233436.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Magic Sort List 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233437.jpgsave_picture_233437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233437.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233438.jpgsave_picture_233438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233438.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9C9A5737EF49FFD3BE86D602AF59DA640AE9D29A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233439.jpgsave_picture_233439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233439.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ AnyBurn 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233440.jpgsave_picture_233440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233440.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Armada Music - 20 Years (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233442.jpgsave_picture_233442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233442.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ qBittorrent 4.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233443.jpgsave_picture_233443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233443.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233444.jpgsave_picture_233444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233444.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233445.jpgsave_picture_233445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233445.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:2CC7D20EB1F97019257DDB98367F5C0E2B1FF6C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233446.jpgsave_picture_233446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233446.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MotoGP. Этап 08. Гран-при Нидерландов. Спринт (24.06
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233447.jpgsave_picture_233447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233447.jpg" />
 </div>
 
 

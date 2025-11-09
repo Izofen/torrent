@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101191.jpgsave_picture_101191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101191.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101192.jpgsave_picture_101192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101192.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101193.jpgsave_picture_101193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101193.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101194.jpgsave_picture_101194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101194.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101195.jpgsave_picture_101195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101195.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101196.jpgsave_picture_101196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101196.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101197.jpgsave_picture_101197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101197.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101198.jpgsave_picture_101198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101198.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpgsave_picture_101199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101200.jpgsave_picture_101200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101200.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024)
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101201.jpgsave_picture_101201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101201.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101202.jpgsave_picture_101202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101202.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101203.jpgsave_picture_101203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101203.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:5062C381742251126FA424DB0EA288B47F6A3887
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101204.jpgsave_picture_101204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101204.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Lane 8 - Winter 2024 Mixtape (2024-12-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101205.jpgsave_picture_101205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101205.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:68494378F3AD18B738256B3793D25BC22836B38F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101206.jpgsave_picture_101206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101206.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by NURIK kz [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101207.jpgsave_picture_101207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101207.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:68BFA675A9BE8F733120B7CA3FE3850CF4534712
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101208.jpgsave_picture_101208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101208.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101209.jpgsave_picture_101209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101209.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101210.jpgsave_picture_101210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101210.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - House Disco Funk Vol 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Ho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101211.jpgsave_picture_101211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101211.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Jalapeno Funk, Vol. 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101212.jpgsave_picture_101212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101212.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101213.jpgsave_picture_101213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101213.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpgsave_picture_101214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101215.jpgsave_picture_101215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101215.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:B7F9465466474681C686AECDAB5A63B3C2DC153D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101216.jpgsave_picture_101216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101216.jpg" />
 </div>
 
 

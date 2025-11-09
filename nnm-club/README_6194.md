@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194496.jpgsave_picture_194496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194496.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B6B0F88A90B5A91813F084EC54541D63F1B743F4
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194497.jpgsave_picture_194497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194497.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A59A65A6FAA3625E2B67C8F715BAE89792B2DCA4
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194498.jpgsave_picture_194498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194498.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8C27EB93F456872167E322F9CC489969CCBDB473
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194499.jpgsave_picture_194499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194499.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E5AB6A08267C135CE6298D5878925718F4B30483
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194500.jpgsave_picture_194500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194500.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Macs Fan Control Pro 1.5.15 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194501.jpgsave_picture_194501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194501.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0858D70F5AD22286577F45C131A09CF0F5952A13
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194502.jpgsave_picture_194502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194502.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:36E29B18F04BBD24822F618672CA38788F280E75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194503.jpgsave_picture_194503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194503.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8466C8D82CCAC7EDFA4B29E0D447B0AFACBCBF4D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194504.jpgsave_picture_194504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194504.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194505.jpgsave_picture_194505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194505.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194506.jpgsave_picture_194506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194506.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F755DA0B4EE8DD664CD0A0C05B2A857813E388E1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194508.jpgsave_picture_194508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194508.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7129BC90740F2240807C82782A65C302C0180332
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194509.jpgsave_picture_194509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194509.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D2AE695EB0C4830AC2BD395A8FB12AB2F7724190
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194510.jpgsave_picture_194510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194510.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A1C34C5E3FF3E152377BF31FEC58659E268EBA78
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194511.jpgsave_picture_194511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194511.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpgsave_picture_194512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194513.jpgsave_picture_194513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194513.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:18DCD0670647F0DE20495F96957689FF4E92C4C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194514.jpgsave_picture_194514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194514.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7034587460B71A019C0FB88D9A1825795BDFA319
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194517.jpgsave_picture_194517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194517.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:ECECA31760530EF7456C868526FA01A94B31E4FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194518.jpgsave_picture_194518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194518.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.32919.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194519.jpgsave_picture_194519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194519.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:471FE15E556892F33202B5BC64829ACB277C9132
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194520.jpgsave_picture_194520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194520.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1DB3C8A5D834D558F87C4656F940DF2A8848939A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194521.jpgsave_picture_194521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194521.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:461B2FC4D63C05E3A69493FCA7197CF0EB845556
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194522.jpgsave_picture_194522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194522.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A90191EA2851458451524A56ED0444386D1C9507
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194523.jpgsave_picture_194523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194523.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpgsave_picture_194524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpg" />
 </div>
 
 

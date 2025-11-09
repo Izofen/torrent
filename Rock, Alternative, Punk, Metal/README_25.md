@@ -6,7 +6,7 @@ Paris - Hungry 4 Action (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35927.jpgsave_picture_35927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35927.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Whiskey - Last Temptation (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35928.jpgsave_picture_35928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35928.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fellowship - The Skies Above Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35930.jpgsave_picture_35930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35930.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Uriah Heep - Living The Dream (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35958.jpgsave_picture_35958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35958.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:78496E9C9A2D985B5887CBB6541450E8CBFF6715
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36000.jpgsave_picture_36000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36000.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Rock Women - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36046.jpgsave_picture_36046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36046.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Marillion - This Strange Engine (Deluxe Edition) (1997) 4 x CD, Compilation, Rem
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36048.jpgsave_picture_36048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36048.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Linkin Park - A Thousand Suns (2010) U.S., 525480-2, Best Buy Exclusive [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36140.jpgsave_picture_36140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36140.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - Meteora (2003) Brazil, 936248462-2 [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36147.jpgsave_picture_36147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36147.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Linkin Park - Meteora (2003) China, 7-88018-748-0 [FLAC|Lossless|image + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36150.jpgsave_picture_36150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36150.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EA0C7F2B46FF8766CD065A3EDD00C01FC77F18BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36242.jpgsave_picture_36242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36242.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Linkin Park - A Thousand Suns (2010) Brazil, 9362496333, AA0021000 Pressing, Pro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36246.jpgsave_picture_36246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36246.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2000) 2020, Brazil, 0093
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36253.jpgsave_picture_36253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36253.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mourning of the Heretic - To the Shadows Betrothed (2024) [FLAC|Lossless|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36254.jpgsave_picture_36254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36254.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Linkin Park - Hybrid Theory (Special Edition) (2000) China, JCD-4598, 2002, 2xCD
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36256.jpgsave_picture_36256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36256.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36258.jpgsave_picture_36258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36258.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36266.jpgsave_picture_36266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36266.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Isacaarum - Impregnation (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36360.jpgsave_picture_36360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36360.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rainbow - De Luxe Collection (2002) Compilation, Unofficial Release [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36399.jpgsave_picture_36399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36399.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Die For My Sins - Scream (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36454.jpgsave_picture_36454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36454.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - 21 Winners: Fabulous 50's (2001) [FLAC|Lossless|tracks + .cue] <Rock & Roll
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36458.jpgsave_picture_36458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36458.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Fellowship - 3 Albums (2022-2024) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36460.jpgsave_picture_36460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36460.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dawn Of Destiny - IX (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36462.jpgsave_picture_36462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36462.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Power Tale - Огненный Бог Марранов (2019) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36468.jpgsave_picture_36468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36468.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Samson - Survivors (1979) Japanese Edition, Reissue, 1990, Jimco Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36487.jpgsave_picture_36487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36487.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36489.jpgsave_picture_36489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36489.jpg" />
 </div>
 
 

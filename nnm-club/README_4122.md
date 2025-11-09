@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127747.jpgsave_picture_127747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:45DD75085CE67301FF8BA319027C729FBF870ED4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127748.jpgsave_picture_127748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127748.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:71C0CF9F6F64AB7B578CAE66460EEF5A38760902
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127749.jpgsave_picture_127749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127749.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpgsave_picture_127750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.4 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127751.jpgsave_picture_127751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127751.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CD97EB238F7177DEAEA0B668F5E514AF84F37A70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127752.jpgsave_picture_127752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127752.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5AC6761D2F5014A332899D21DA5AB7E0E64E5B01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127753.jpgsave_picture_127753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127753.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:CEBB367AF91AD683151CE44A6809885ACFCB845E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127754.jpgsave_picture_127754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127754.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B746C2EB5367E86AB8134C681A79DD320A0568E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127755.jpgsave_picture_127755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127755.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:3F97FC7EFAFB7D49E4BC3FA264CBC3567915A54A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127756.jpgsave_picture_127756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127756.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Adobe Photoshop 2024 25.3.1.241 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127757.jpgsave_picture_127757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127757.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:20E7D83B04C48595BE2ED87CE4998481BAB9E402
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127758.jpgsave_picture_127758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127758.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127759.jpgsave_picture_127759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127760.jpgsave_picture_127760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127760.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127761.jpgsave_picture_127761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127761.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4F75F98B6F1C507C7C0A6E6687A385CE9B5D45A6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127762.jpgsave_picture_127762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127762.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:7E618D7389C6E3645499A345D1F112E5A614CCAC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127763.jpgsave_picture_127763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127763.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpgsave_picture_127764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127765.jpgsave_picture_127765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127765.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127766.jpgsave_picture_127766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127766.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:8E1B45C06B7D21B373AAEEAE43E23D6F018DADC2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127767.jpgsave_picture_127767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127767.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:736C07CA9B46AFC8ED9C81F3E6FA271543FC679F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127768.jpgsave_picture_127768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127768.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127769.jpgsave_picture_127769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127769.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127770.jpgsave_picture_127770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127770.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127771.jpgsave_picture_127771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127771.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127772.jpgsave_picture_127772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127772.jpg" />
 </div>
 
 

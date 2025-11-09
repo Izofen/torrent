@@ -6,7 +6,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpgsave_picture_182112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.0.2034.0 RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182117.jpgsave_picture_182117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182117.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0EEB0F932A6B65192BFF6F155FC58B867B39A1CC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182122.jpgsave_picture_182122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182122.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182123.jpgsave_picture_182123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182123.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8C4EB5203069DBEA230780E9F4785B797F25F751
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182126.jpgsave_picture_182126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182126.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpgsave_picture_182129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182130.jpgsave_picture_182130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182130.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera One 102.0.4880.78 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182134.jpgsave_picture_182134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182134.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6E57881572B03200EB709C871F8CB329E1E75C08
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182135.jpgsave_picture_182135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182135.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C5C2CECCBCD24AF4BA89F83534E14C3E496941AF
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182140.jpgsave_picture_182140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182140.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:842D8B41DB5D6029DFA95212786F064B4D516D13
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182142.jpgsave_picture_182142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182142.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:CE3751DAA3263B85434A153A32BC03CCE7EE6320
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182143.jpgsave_picture_182143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182143.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:ADAB5B11591928F63D18C73482E7EBDDFB53258E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182146.jpgsave_picture_182146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182146.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:A8B70F10D8D9203481B41796F68139ECEECF39D7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182148.jpgsave_picture_182148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182148.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Best Of Hands Up & Hardstyle (Die Megashow) (2023) [MP3|320 Kbps] <Hardstyl
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182150.jpgsave_picture_182150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182150.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182152.jpgsave_picture_182152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182152.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182154.jpgsave_picture_182154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182154.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Telegram Desktop 4.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182156.jpgsave_picture_182156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182156.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Music News vol.302 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182158.jpgsave_picture_182158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182158.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:CA3706FCB6329686ADB3772CB186651577FC67A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182163.jpgsave_picture_182163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182163.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:03C9581B5AA76D85E91BEAD7CCC83BF49AEC3055
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182164.jpgsave_picture_182164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182164.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:E63E3348822CC4170D666545D5B37E96D3E083CB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182167.jpgsave_picture_182167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182167.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:B42395E55F58D5E7370A70FD89C58137B4970826
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182172.jpgsave_picture_182172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182172.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:1C3B8BF7677CFAC24B608166B47B6EC3F87E989F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182173.jpgsave_picture_182173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182173.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PyCharm Community Edition 2022.2.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182175.jpgsave_picture_182175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182175.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Within Temptation - Ritual (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182176.jpgsave_picture_182176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182176.jpg" />
 </div>
 
 

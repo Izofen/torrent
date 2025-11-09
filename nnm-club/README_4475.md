@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139942.jpgsave_picture_139942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139942.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DEE261718F2428925869FB52AA79CB1BD0B88CD5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139943.jpgsave_picture_139943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139943.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:761D3DB61DDA9772CDC7BA2589CEBBC8570CBEDD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139944.jpgsave_picture_139944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139944.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139946.jpgsave_picture_139946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139946.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:11C250CA207B9DF432F887662E1811C684BFB7F3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139947.jpgsave_picture_139947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139947.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139948.jpgsave_picture_139948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139948.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:DFEEBC0D1ADE3FDC475DEE40A63F89BBBAA35E96
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139949.jpgsave_picture_139949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139949.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6BC5D619AFFBCDF9A0CB7CA603044F903EC57C78
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139950.jpgsave_picture_139950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139950.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139951.jpgsave_picture_139951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139951.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Acronis Disk Director 12.0.3270 (Bootable ISO WinPE 10) + Acronis Disk Director 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139952.jpgsave_picture_139952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139952.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F2272698202740B95767EAC9F3B5C6589B97EDEF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139954.jpgsave_picture_139954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139954.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:ED83203F3C60C8E6A859D850014C74EA25658BFB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139957.jpgsave_picture_139957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139957.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139958.jpgsave_picture_139958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139958.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sabiwa - Discography 3 Releases (2018-2019) Chinabot [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139959.jpgsave_picture_139959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139959.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpgsave_picture_139961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139963.jpgsave_picture_139963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139963.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft не рекомендует использование програм�
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139964.jpgsave_picture_139964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139964.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:853CD5718E84F090B02B8CE95B0DD1D15EE9A348
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139965.jpgsave_picture_139965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139965.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:EEC701959E53DD7CFCB74C9FE92480803F39FA57
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139966.jpgsave_picture_139966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139966.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A4C2D37809F6D9C01D415EAABC76BF24AB48AABB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139968.jpgsave_picture_139968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139968.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:271224121EDADB125CB062126F438F5590A7E6F3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139969.jpgsave_picture_139969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139969.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - The High Dials (2019) [MP3|320 Kbps] <Indie Pop Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139970.jpgsave_picture_139970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139970.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5660CA1B9D68C282024534930B0B70292D9B550E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139971.jpgsave_picture_139971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139971.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:CB8F6570E94EE5E8F34B12B489B691BCFCED274E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139973.jpgsave_picture_139973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139973.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Universal Media Creation Tool 22.12.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139974.jpgsave_picture_139974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139974.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Arcania: Gothic 4 / Готика 4: Аркания (2010-2011) [Ru/En/Ge] (1.1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139976.jpgsave_picture_139976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139976.jpg" />
 </div>
 
 

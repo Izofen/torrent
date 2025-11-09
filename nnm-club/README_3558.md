@@ -6,7 +6,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpgsave_picture_112883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112884.jpgsave_picture_112884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112884.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Holler - Reborn (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpgsave_picture_112885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:1776BABC7E5963655B4049E8EDBEC6D6AB974B2F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112886.jpgsave_picture_112886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112886.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Cookie 7.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112887.jpgsave_picture_112887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112887.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:3801225D0134B88EFB504C82BB43E1B707ACD372
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112888.jpgsave_picture_112888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112888.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpgsave_picture_112889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112890.jpgsave_picture_112890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112890.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112891.jpgsave_picture_112891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112891.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ BikeComputer Pro v8.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112892.jpgsave_picture_112892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112892.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7D4CF5BCEDBEB6514D4A38AE1CCF86E7D74BC3B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112893.jpgsave_picture_112893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112893.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:836199ECD40751EF5812821CAA66DA572172E283
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112894.jpgsave_picture_112894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112894.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:6C574061C910FF10AFD1E4A98B356B1120446B51
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112895.jpgsave_picture_112895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112895.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4CB05B3F98D9C0241485A327046B52EE065C7BFF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112896.jpgsave_picture_112896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112896.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112897.jpgsave_picture_112897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112897.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112898.jpgsave_picture_112898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112898.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112899.jpgsave_picture_112899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112899.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Deep House Party (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112900.jpgsave_picture_112900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112900.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1AD7FED3AFA33D7BCE381A99995E51A1CA53EEA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112901.jpgsave_picture_112901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112901.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1AD7FED3AFA33D7BCE381A99995E51A1CA53EEA6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpgsave_picture_112902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Duff McKagan - Lighthouse (Expanded Edition)(2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112903.jpgsave_picture_112903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112903.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112904.jpgsave_picture_112904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112904.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112905.jpgsave_picture_112905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112905.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Steel Rath - Steel Rath (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112906.jpgsave_picture_112906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112906.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpgsave_picture_112907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Aktarum - Gang Of Trolls (2010) [FLAC|Lossless|image + .cue] <Black Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112908.jpgsave_picture_112908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112908.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Movavi Video Editor Plus 14.2.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151108.jpgsave_picture_151108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151108.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E8EF56A522809EAF6D9BC5F3B0ADF74D297DE52D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151109.jpgsave_picture_151109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151109.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:33BCB5EC280A50DF2E43C7D669B29F690CCCB4DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151110.jpgsave_picture_151110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151110.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151111.jpgsave_picture_151111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151111.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ReviverSoft PC Reviver 3.12.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151112.jpgsave_picture_151112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151112.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151113.jpgsave_picture_151113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151113.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:54D691F9AD1CC8C6B639B6CDEDA259F2DCE59656
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151114.jpgsave_picture_151114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151114.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:29D60EA4341DAD5DF16754E357C5FC580E0242BF
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151115.jpgsave_picture_151115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151115.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:29D60EA4341DAD5DF16754E357C5FC580E0242BF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151116.jpgsave_picture_151116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151116.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151117.jpgsave_picture_151117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151117.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151118.jpgsave_picture_151118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151118.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:37147A51A7F38BEA4DEA0439D5AAECFB50D14943
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151119.jpgsave_picture_151119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151119.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FF50AF2D290026A2E70F6E08A551111DB9050369
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151120.jpgsave_picture_151120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151120.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:E4515D42F94D910846B2CDAD007E8C308AB8C95D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151121.jpgsave_picture_151121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151121.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AA1349132A6EEF86E2CD094F2F9E3716D198ABB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151122.jpgsave_picture_151122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151122.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151123.jpgsave_picture_151123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151123.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:358750EAA9DCB40917A1A0B19A2F90D6A32E5D14
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151124.jpgsave_picture_151124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151124.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151125.jpgsave_picture_151125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151125.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151126.jpgsave_picture_151126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151126.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:85CE4D33C70D675E6026DE66C42D4622599D4347
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151127.jpgsave_picture_151127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151127.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D7917111CE8902866CE1837AF831E141235C232C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151128.jpgsave_picture_151128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151128.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ AIMP 5.01 Build 2356 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151130.jpgsave_picture_151130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151130.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:BFFA2A99D6818A3CE8AF622970C556A219FA3133
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151131.jpgsave_picture_151131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151131.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:97FA85B56ABC443C94297DCCA95DCE77BCA0074E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151132.jpgsave_picture_151132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151132.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:97FA85B56ABC443C94297DCCA95DCE77BCA0074E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151133.jpgsave_picture_151133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151133.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ AusLogics BoostSpeed 9.1.1.0 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151134.jpgsave_picture_151134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151134.jpg" />
 </div>
 
 

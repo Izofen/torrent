@@ -6,7 +6,7 @@ Way To Stars - Путь К Звёздам (2023) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231747.jpgsave_picture_231747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Superunknown (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231750.jpgsave_picture_231750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231750.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Veonity - Into the Void (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231753.jpgsave_picture_231753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231753.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231756.jpgsave_picture_231756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231759.jpgsave_picture_231759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231759.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Venus - Two-0-One-9 (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231764.jpgsave_picture_231764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231764.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:265D3AAD1DD8BF97CC920B894BB9C121B35483D4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231767.jpgsave_picture_231767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231767.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Unsoulicited - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231770.jpgsave_picture_231770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231770.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231772.jpgsave_picture_231772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231772.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231779.jpgsave_picture_231779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231779.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Midnight Chaser - Rough And Tough (2011) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231780.jpgsave_picture_231780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231780.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rise to the Sky - 3 Albums (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Atmosph
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231782.jpgsave_picture_231782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231782.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Usnea - Portals Into Futility (2017) [FLAC|Lossless|WEB-DL|tracks] <Blackened Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231788.jpgsave_picture_231788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231788.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Veilburner - VLBRNR (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231790.jpgsave_picture_231790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231790.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ross the Boss - Legacy of Blood, Fire & Steel (2023) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231791.jpgsave_picture_231791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231791.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Unfelled - Pall of Endless Perdition (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231794.jpgsave_picture_231794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231794.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock / 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231808.jpgsave_picture_231808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231808.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Vermilion Whiskey - Crimson & Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231819.jpgsave_picture_231819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231819.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231822.jpgsave_picture_231822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231822.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Evile - The Unknown (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231829.jpgsave_picture_231829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231829.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Noturnall - Cosmic Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231833.jpgsave_picture_231833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231833.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bards of Antiquity - The Paladin (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231839.jpgsave_picture_231839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231839.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Within Temptation - Wireless (2023)  [FLAC 2.0|24/96|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231843.jpgsave_picture_231843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231843.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231844.jpgsave_picture_231844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231844.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Three Tremors - Guardians of the Void (2021) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231861.jpgsave_picture_231861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231861.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Morguenstern - 2 Albums (2014-2023) [MP3|320 Kbps] <Horror Gothic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231863.jpgsave_picture_231863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231863.jpg" />
 </div>
 
 

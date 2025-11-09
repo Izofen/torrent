@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146533.jpgsave_picture_146533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2295753CE6AAEA289099425A260D09C73C0EDDDF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146534.jpgsave_picture_146534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146534.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:765EF6B4247382B3FBC73A295E2DD88B9BCD12D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146535.jpgsave_picture_146535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146535.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Minecraft (2011) [Ru/En] (1.7.10/1.10.2/dlc) Repack/Mod Nobi [Java Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146537.jpgsave_picture_146537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146537.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Winter Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146538.jpgsave_picture_146538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146538.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:51F208F535CE590D1ABBDB59CCFEE2109F2982AF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146539.jpgsave_picture_146539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146539.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ashampoo WinOptimizer 12.00.40 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146540.jpgsave_picture_146540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146540.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ableton - Live Suite 11.0.12 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146541.jpgsave_picture_146541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146541.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3F9795E4BA180333D903B69F609568D0A05E8907
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146542.jpgsave_picture_146542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146542.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:56366ACDBDE3AB895C9526055FAC547F1D13020D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146543.jpgsave_picture_146543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146543.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BC1B217DB84C6150B202503F9DD97B0C07720C6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146544.jpgsave_picture_146544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146544.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D2A74AE2D774E63EA6BCF25E083719040394216F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146545.jpgsave_picture_146545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146545.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6D140D98F838100E73CC104F65AD48C8143EC788
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146546.jpgsave_picture_146546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146546.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146547.jpgsave_picture_146547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146547.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C07A5E96AC657FDB92639E9FFFB106223C6C7D6D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146549.jpgsave_picture_146549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146549.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:81114FA2C2216275CCF69F367BCCDA82DD4FB29C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146550.jpgsave_picture_146550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146550.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:BDDEC513743A8A47F1F169EB44E0E092DE365EE8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146552.jpgsave_picture_146552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146552.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8975522A6175BC0147F951594CC9D141A16EECB7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146553.jpgsave_picture_146553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146553.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:68EBE50224377FFB782A95C03DD61777B4B5F8B7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146554.jpgsave_picture_146554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146554.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8C321FC4993D03E9A1429B3D600BAAC01AA0469E
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146555.jpgsave_picture_146555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146555.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Yamb 2.1.0.0 Beta 2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146556.jpgsave_picture_146556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146556.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Bandicam 7.0.1.2132 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146557.jpgsave_picture_146557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146557.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:CE3157A69E29C0F60870119C77D375420BB23ED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146558.jpgsave_picture_146558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146558.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:BB096E61AB2C0933A1CFC1753DD87759270ACD57
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146559.jpgsave_picture_146559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146559.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Hetman Partition Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146561.jpgsave_picture_146561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146561.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:04750C0C463BC8434713171AC5D9385D3E701880
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146562.jpgsave_picture_146562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146562.jpg" />
 </div>
 
 

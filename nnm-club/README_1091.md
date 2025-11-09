@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28721.jpgsave_picture_28721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:70BB3EF86928352FDF862C1DC930E7BA70A5FB5A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28722.jpgsave_picture_28722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Crypto Robotics | Криптовалюты - инструкция по прим�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28723.jpgsave_picture_28723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28723.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6B56C1125551F28EC57C7132F96B5D181556DF1F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28724.jpgsave_picture_28724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28724.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6B56C1125551F28EC57C7132F96B5D181556DF1F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28725.jpgsave_picture_28725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28725.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AA5FCCD7B7F98E1F2F9BC09AD70D8A2FF11C07FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28726.jpgsave_picture_28726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28726.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AA5FCCD7B7F98E1F2F9BC09AD70D8A2FF11C07FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28727.jpgsave_picture_28727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28727.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28728.jpgsave_picture_28728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28728.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpgsave_picture_28729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ v2rayN 7.7.1 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28730.jpgsave_picture_28730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28730.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VSDC Video Editor Pro 9.1.1.516 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28731.jpgsave_picture_28731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28731.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpgsave_picture_28732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28733.jpgsave_picture_28733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28733.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28734.jpgsave_picture_28734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28734.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TreeSize Professional 9.4.0.2000 (x64) RePack (& Portable) by elchupacabra (04.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28735.jpgsave_picture_28735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28735.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Memtest86+ 7.20 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28736.jpgsave_picture_28736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28736.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:ACC4FDB177BFCB394F4C92CD88A7CA6E87E7ECB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28737.jpgsave_picture_28737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28737.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Bruno Simong | Three.js Journey - The ultimate Three.js course (2024) WEB-DL [EN
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28738.jpgsave_picture_28738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28738.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28739.jpgsave_picture_28739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28739.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28740.jpgsave_picture_28740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28740.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eric Burdon (The Animals & War & Jimmy Witherspoon & Brian Auger) - 24 Studio Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28741.jpgsave_picture_28741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28741.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:D176FD2AFBEDCA94FBD4564C0DEDAE9E59BBAE68
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28742.jpgsave_picture_28742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28742.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D9BDEA44B262BA13E35C35ADF24135B99052D29C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28743.jpgsave_picture_28743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28743.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0690B99413DB379831B3D07ACD746CE251C38762
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28744.jpgsave_picture_28744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28744.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpgsave_picture_28745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:F034D43A761D22734FD3E8A43C8ED182A2992B47
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28746.jpgsave_picture_28746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28746.jpg" />
 </div>
 
 

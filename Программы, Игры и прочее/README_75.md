@@ -6,7 +6,7 @@ Jellify - Живые фотографии v1.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191266.jpgsave_picture_191266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191266.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191275.jpgsave_picture_191275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191275.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191430.jpgsave_picture_191430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191430.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191485.jpgsave_picture_191485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191485.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BSPlayer Pro 3.19.247-20230828 Mod by ferhad.necef [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191777.jpgsave_picture_191777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191777.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ibis Paint X 10.2.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191801.jpgsave_picture_191801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191801.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191814.jpgsave_picture_191814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191814.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191851.jpgsave_picture_191851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191851.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192116.jpgsave_picture_192116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192116.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VPN Inf - Security Fast VPN 7.5.824 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192215.jpgsave_picture_192215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192215.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192248.jpgsave_picture_192248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192248.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Unified Remote v3.21.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192250.jpgsave_picture_192250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192250.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192363.jpgsave_picture_192363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192363.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Windy.app: погода и ветер 40.0.6 Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192378.jpgsave_picture_192378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192378.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192489.jpgsave_picture_192489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192489.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192513.jpgsave_picture_192513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192513.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192530.jpgsave_picture_192530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192530.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192543.jpgsave_picture_192543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192543.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192546.jpgsave_picture_192546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192546.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192553.jpgsave_picture_192553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192553.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192569.jpgsave_picture_192569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192569.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192596.jpgsave_picture_192596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192596.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FFmpeg Медиа-кодер v6.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192664.jpgsave_picture_192664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192664.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192762.jpgsave_picture_192762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192762.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192918.jpgsave_picture_192918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192918.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192955.jpgsave_picture_192955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192955.jpg" />
 </div>
 
 

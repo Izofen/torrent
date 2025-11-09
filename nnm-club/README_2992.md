@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89736.jpgsave_picture_89736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89737.jpgsave_picture_89737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89738.jpgsave_picture_89738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89738.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ The Witcher 2: Assassins of Kings [XBOX360] [RUSSOUND] [XGD3] [LT+3.0] [PAL] (20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89742.jpgsave_picture_89742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89742.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89743.jpgsave_picture_89743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89743.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89745.jpgsave_picture_89745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89745.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89747.jpgsave_picture_89747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89747.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89748.jpgsave_picture_89748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89748.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89750.jpgsave_picture_89750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89750.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Mathworks Matlab R2012a 7.14 [x86 + x86_x64] (iso)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89752.jpgsave_picture_89752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89752.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ MATLAB – это высокоуровневый язык технических
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89755.jpgsave_picture_89755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89755.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:9E433FA34D4F6CEE0E01A2A184F5BC61CA550A3C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpgsave_picture_89756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89758.jpgsave_picture_89758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89758.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Botanicula [Ru] (RePack) 2012 l Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89759.jpgsave_picture_89759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89759.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89761.jpgsave_picture_89761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89761.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Various Artists - Temple Of Kilowatts (2000) [mp3|320 kbps] <Industrial, Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89762.jpgsave_picture_89762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89762.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - 100% Автохит Клубный (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89765.jpgsave_picture_89765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89765.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:EDAACBDD1D36BED0B224915919398B236D9A5299
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89773.jpgsave_picture_89773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89773.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Lounge Music Collection - All for love (2010) [MP3]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89774.jpgsave_picture_89774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89774.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89779.jpgsave_picture_89779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89779.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dream Theater - Systematic Chaos (2007) [AC3 5.1|tracks (DVD-Video)]<progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89780.jpgsave_picture_89780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89780.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:9D9BAF0AA08F722528EC4E09E305DC74044BCFBA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89781.jpgsave_picture_89781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89781.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Жаркие Танцы. Europa Plus (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89784.jpgsave_picture_89784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89784.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Плэйлист Love Radio (2012) [PCM|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89789.jpgsave_picture_89789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89789.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:A3A11E539F1BA2D98954C57F7271D1F733118ABE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89790.jpgsave_picture_89790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89790.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ magnet:?xt=urn:btih:2FC2974E56859BEE45B0F010E131CC4655D0E092
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89792.jpgsave_picture_89792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89792.jpg" />
 </div>
 
 

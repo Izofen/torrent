@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146346.jpgsave_picture_146346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146346.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146347.jpgsave_picture_146347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146347.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:73A67BAA158A2108E414C3459DA9D871FA0A55F3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146348.jpgsave_picture_146348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146348.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E5C295F4CC0F8E9BCDFC0EAF5C0D2C68DB514B6D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146349.jpgsave_picture_146349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146349.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DD2926E3B9DCABF7DDAA03F9FE03C07934DAF4A7
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146350.jpgsave_picture_146350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146350.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:487ABB7433962D13B08C42DCDA3BB158456B936F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146351.jpgsave_picture_146351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146351.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3F662836825A05978DB4E995FA3A6B5DAA587629
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146352.jpgsave_picture_146352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146352.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MediaHuman Youtube Downloader 3.9.9.30 (build 2512) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146353.jpgsave_picture_146353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146353.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:844A5ACE677A8BC9EB25F24465D7EDB922914481
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146354.jpgsave_picture_146354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146354.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Adobe Media Encoder CC 2015 (v9.1.0) Multilingual Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146356.jpgsave_picture_146356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146356.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Loathe - 3 Albums / 2 EP (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpgsave_picture_146357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:1EB1876D1FCD64E74196B4D91F221E3CD740E7D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146358.jpgsave_picture_146358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146358.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:054C76825C9522BE39B45552B87D0F5589E77DB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146359.jpgsave_picture_146359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146359.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:25C0ABE5AFEA2199040807DC432CAEEB39E27F5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146360.jpgsave_picture_146360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146360.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:6476CF25C0D08C7DC95BC5EDFA2982F007F42C95
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146362.jpgsave_picture_146362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146362.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CCleaner 5.13.5460 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146363.jpgsave_picture_146363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146363.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D6411ADC5E9FB2D72B5FA27E3C1CB854CF30435A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146364.jpgsave_picture_146364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146364.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:0A16B8CAA87D75FEE9978754B0390770CD5242DD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146365.jpgsave_picture_146365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146365.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:9F074B47DE0B14F7160A46647D7F6E06C26D00B2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146366.jpgsave_picture_146366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146366.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146367.jpgsave_picture_146367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146367.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:E8C4B7C6E34F8C019C32E8929729AE5B46800713
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146368.jpgsave_picture_146368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146368.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146369.jpgsave_picture_146369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146369.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Creative Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146370.jpgsave_picture_146370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146370.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:694F10F1D77C6F526285CAE7B4FCF41D7BCE865B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146371.jpgsave_picture_146371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146371.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E85B242ADBA95EEA254467FE6B80F07E1F8949B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146372.jpgsave_picture_146372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146372.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ PhotoCasa, Arma Gray | Продающий фотограф. От съёмки д
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146373.jpgsave_picture_146373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146373.jpg" />
 </div>
 
 

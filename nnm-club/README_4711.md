@@ -6,7 +6,7 @@ Brave Browser 0.58.17 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147451.jpgsave_picture_147451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lush Tower Defense [Игра] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147452.jpgsave_picture_147452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147452.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lush Tower Defense - игра в стиле обороны башнями. За�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147453.jpgsave_picture_147453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147453.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147454.jpgsave_picture_147454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147454.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147455.jpgsave_picture_147455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147455.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147456.jpgsave_picture_147456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147456.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147457.jpgsave_picture_147457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147457.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hetman FAT Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147458.jpgsave_picture_147458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147458.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Modern Combat 4: Zero Hour [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147459.jpgsave_picture_147459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147459.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ High-Logic FontCreator Professional 15.0.0.2950 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147460.jpgsave_picture_147460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147460.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147461.jpgsave_picture_147461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147461.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147462.jpgsave_picture_147462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147462.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147463.jpgsave_picture_147463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147463.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - The Piano Lounge - Piano Bar Music for Romantic Dinner for Two (2015) [MP3|
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147464.jpgsave_picture_147464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147464.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147465.jpgsave_picture_147465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147465.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Udemy, Mehmet Nuri Yumuşak | Разработка Backend (API) с Python от 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147466.jpgsave_picture_147466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147466.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147467.jpgsave_picture_147467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147467.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147468.jpgsave_picture_147468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147468.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147469.jpgsave_picture_147469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147469.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpgsave_picture_147470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147470.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147471.jpgsave_picture_147471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147471.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147472.jpgsave_picture_147472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147472.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:BA173743F74153F7F93D0D651D18701BF699833C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147474.jpgsave_picture_147474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147474.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Champions of Anteria (2016) [Multi] (1.7.499537.X/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147475.jpgsave_picture_147475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147475.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147476.jpgsave_picture_147476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147476.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147477.jpgsave_picture_147477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147477.jpg" />
 </div>
 
 

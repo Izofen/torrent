@@ -6,7 +6,7 @@ ZWCAD 2023 SP2 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167154.jpgsave_picture_167154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167154.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:35EF435DD166A5A2895BA2F66D1B7FD3BFEED952
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167155.jpgsave_picture_167155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167155.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Loboda - SOLD OUT (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167156.jpgsave_picture_167156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167156.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:3762A21A0B914CE7DF0D9CF30464AE218AF97F0C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167157.jpgsave_picture_167157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167157.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Cocooma - The Best Of Cocooma Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167158.jpgsave_picture_167158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167158.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:7937CE65CFFFA43D2F0341E51DB9C11A54C11B9D
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167159.jpgsave_picture_167159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167159.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:4D9EC8E9DB93AE10FED3550E7D8517D30CDFF0DB
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167160.jpgsave_picture_167160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167160.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:E4DDAF8C97D21A602F5F7789F87A21C48AD0D82C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167161.jpgsave_picture_167161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167161.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ ICQ 10.0 Build 38668 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167163.jpgsave_picture_167163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167163.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:E48029653181E0C5BB323AD561B0E53B4CAB7E83
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167164.jpgsave_picture_167164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167164.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9FE77049A4D554850DA50A1407FD268503011242
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167165.jpgsave_picture_167165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167165.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:4E314ACE0854F7E02D9B447EFFA6C95AE93FA36F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167166.jpgsave_picture_167166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167166.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167167.jpgsave_picture_167167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167167.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9B57E3CFE99B7B82395B1B5620BC0AC73CF01407
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167168.jpgsave_picture_167168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167168.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Eric Clapton - 64 albums, 9 Box sets, 183 CD (1966-2021) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167170.jpgsave_picture_167170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167170.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C225294C77F26B50BED67DEC5DC337C853E4875C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167171.jpgsave_picture_167171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167171.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:79EC4075B864440D0CF9CDAF7FFCD118F29D7F96
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167173.jpgsave_picture_167173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167173.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:78D2A7CD7A8D57C89CADBD3B95D3692735C0AEBD
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167174.jpgsave_picture_167174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167174.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B8D4FCC6AB7BE6F7A70F1881D2421496CAE6D0D7
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167175.jpgsave_picture_167175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167175.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B2B3A69E6B6153E32809D6D3E3EDFCBF5AF4F857
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167176.jpgsave_picture_167176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167176.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Trimble Tekla Structures 2020 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167177.jpgsave_picture_167177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167177.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Antivirus Zap - Virus Scanner for Mac 3.13.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167178.jpgsave_picture_167178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167178.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9AC9A35236DFECC41DDD62FA4932F4B78AA65EA8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167179.jpgsave_picture_167179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167179.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:087276957E01158D130533895E1709E22CBFD2D1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167180.jpgsave_picture_167180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167180.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:B51889E8E276F772F22E78B1D2DD36A8EED8EF56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167181.jpgsave_picture_167181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167181.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ NG: С точки зрения науки: Предотвратить конец
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167182.jpgsave_picture_167182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167182.jpg" />
 </div>
 
 

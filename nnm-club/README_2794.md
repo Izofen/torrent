@@ -6,7 +6,7 @@ Spectra Foo Complete 4.2.3 [English]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79465.jpgsave_picture_79465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79465.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SpectraFoo предоставляет все инструменты звукоа
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79472.jpgsave_picture_79472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79472.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79473.jpgsave_picture_79473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79473.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79488.jpgsave_picture_79488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79488.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79489.jpgsave_picture_79489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79489.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79491.jpgsave_picture_79491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79491.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:2D142932C6C81DC79309BA2DB421FA1A5EB59E5D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79494.jpgsave_picture_79494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79494.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:FA3AC9B454FB9703B3051DD5B4AF32FFA2BAF0BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79500.jpgsave_picture_79500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79500.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:FA3AC9B454FB9703B3051DD5B4AF32FFA2BAF0BF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79502.jpgsave_picture_79502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79502.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:DA0A340571E004D0EC227138C17F589A3C1FCDD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79503.jpgsave_picture_79503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79503.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:AF88EEFD294FA4D87FF17165D23F1A4FB27482A3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79506.jpgsave_picture_79506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79506.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:A99946DE94633DF3BA97FA475CE0659D2ACA9525
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79508.jpgsave_picture_79508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79508.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:519611AC61CDFA2BDD61D73EA0351AFADD925865
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79511.jpgsave_picture_79511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79511.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4116DC2FDF9910FF49C30A21D1E291724848B92E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79513.jpgsave_picture_79513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79513.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Дискотека 90-х Vol.2 (2012) [MP3|320 кб/с]<Dance/EuroDance/Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79514.jpgsave_picture_79514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79514.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5EABB8F5224293F5C2B50F172EDE4E67DCFC0446
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79515.jpgsave_picture_79515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79515.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:DD4ED029CEDEF6D4957417574D331FDFD1943C7A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79518.jpgsave_picture_79518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79518.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:0F170CC83E4C4EDEF4BE19A903FDC2C0DD12E855
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79519.jpgsave_picture_79519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79519.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FB9E3E900C94AED0B80121504ABFC9D0EEB37586
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79521.jpgsave_picture_79521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79521.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Southpaw Swagger - Party With Guns (2010) [MP3|320 кб/с]<Hip-Hop, Rapcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79526.jpgsave_picture_79526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79526.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Atma - Beyond Good And Evil (2006) [APE|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79533.jpgsave_picture_79533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79533.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Almeza MultiSet Pro 8.1.0 Portable [Multi (Русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79534.jpgsave_picture_79534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79534.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Almeza MultiSet - это автоматический установщик пр�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79544.jpgsave_picture_79544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79544.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ferry Corsten - Twice In A Blue Moon (Remixed) (2009) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79545.jpgsave_picture_79545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79545.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Ferry Corsten - Twice In A Blue Moon (Remixed) (2009) [FLAC|Lossless]<Trance>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79546.jpgsave_picture_79546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79546.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 15 (2008-2011) [MP3|320 кб/с]<Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79547.jpgsave_picture_79547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79547.jpg" />
 </div>
 
 

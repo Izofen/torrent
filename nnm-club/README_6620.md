@@ -6,7 +6,7 @@ Decadents - Lost in Translation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213636.jpgsave_picture_213636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213636.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MyFitnessPal: Счетчик калорий 23.15.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213639.jpgsave_picture_213639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213639.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Weather Widget Live Full for Mac 4.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213643.jpgsave_picture_213643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213643.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Nick Moss Band - Get Your Back Into It! (2023) [FLAC|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213663.jpgsave_picture_213663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213663.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpgsave_picture_213667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpgsave_picture_213671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Liverbox - The Great Spirit Of Rock 'n' Roll (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213673.jpgsave_picture_213673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213673.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:753C9EA8777E9B645ACC90980588363ADA3B189A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213678.jpgsave_picture_213678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213678.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Baby Audio-Crystalline for Mac 1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213681.jpgsave_picture_213681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213681.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Tania Kikidi - Wings of Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213685.jpgsave_picture_213685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213685.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Steve Fair - Shades of Blue (Remastered) (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213691.jpgsave_picture_213691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213691.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Shores of Null - Quiet Whispers (Unplugged at Traffic Garden) (2021) Live albom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213694.jpgsave_picture_213694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213694.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213698.jpgsave_picture_213698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213698.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Pulp Project - A Tribute to Robert Johnson (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213701.jpgsave_picture_213701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213701.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213705.jpgsave_picture_213705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213705.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4C7343983F09984A8315DF12294EC69E1C610D90
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213708.jpgsave_picture_213708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213708.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:EB2738B2E42B044B4D02C05A6E61EA397480EB54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213710.jpgsave_picture_213710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213710.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Band Ham - I'll Take That Drink Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213711.jpgsave_picture_213711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213711.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dynamic Wallpaper Engine 15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213712.jpgsave_picture_213712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213712.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ross Cirri - Don't Mean Nothin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213714.jpgsave_picture_213714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213714.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213717.jpgsave_picture_213717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213717.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ PullTube 1.8.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213720.jpgsave_picture_213720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213720.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kristy Lee - The Olive Tree (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213724.jpgsave_picture_213724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213724.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Ascendants of Kings - Ellisius (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213742.jpgsave_picture_213742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213742.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:7D1C8955D6E2D8C8C9A5FCA6998C5AE3F7DAC796
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213747.jpgsave_picture_213747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213747.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Nic Clark - Everybody's Buddy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213750.jpgsave_picture_213750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213750.jpg" />
 </div>
 
 

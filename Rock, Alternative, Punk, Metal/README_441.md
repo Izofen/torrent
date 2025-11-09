@@ -6,7 +6,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239434.jpgsave_picture_239434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239434.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mortician - Shout for Heavy Metal (2014) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239442.jpgsave_picture_239442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239442.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Astro Throne - Tales of the Astro Throne (2022) EP [MP3|320 Kbps] <Heavy Psych, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239454.jpgsave_picture_239454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239454.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yngwie Malmsteen - Odyssey (1988) [FLAC|Lossless|image + .cue] <Neoclassical Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239501.jpgsave_picture_239501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239501.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Huis - Abandoned (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239507.jpgsave_picture_239507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239507.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:CE6F2CEF04E9C0C2D3BB2CF96E8708677F9ACB6D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239520.jpgsave_picture_239520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239520.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lacrimosa - The Anniversary Box (1990-2020) (2021) 3CD, For the 30th anniversary
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239558.jpgsave_picture_239558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239558.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Water From Your Eyes - Everyone's Crushed (2023) [FLAC 24/96|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239577.jpgsave_picture_239577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239577.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E614C6508245F1D7EFA17103BC98A6C6A1B8229B
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239586.jpgsave_picture_239586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239586.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239598.jpgsave_picture_239598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239598.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Macabre - Carnival Of Killers (2020) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239605.jpgsave_picture_239605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239605.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239611.jpgsave_picture_239611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239611.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Alghazanth - The Three-Faced Pilgrim (2014) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239613.jpgsave_picture_239613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239613.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wicked Maraya - Cycles (1994) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239623.jpgsave_picture_239623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239623.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aethernaeum - Naturmystik (2015) [FLAC|Lossless|image + .cue] <Black Metal, Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239629.jpgsave_picture_239629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239629.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mysterium - The Glowering Facades Of Night (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239631.jpgsave_picture_239631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239631.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Swan Valley Heights - Terminal Forest (2023) [MP3|320 Kbps] <Stoner, Doom Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239638.jpgsave_picture_239638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239638.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Crumbsuckers - Beast On My Back (1988) 1998, Century Media / KINGfisher [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239645.jpgsave_picture_239645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239645.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239649.jpgsave_picture_239649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239649.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Black Cats Eye - The Empty Space Between A Seamount And Shock-Headed Julia (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239656.jpgsave_picture_239656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239656.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:76EA0BE293BBD6745DCC219FC13B407088AB01CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239657.jpgsave_picture_239657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239657.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BA470671932AB8C5F6218D40E82600E1E111E421
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239666.jpgsave_picture_239666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239666.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Arcs - Electrophonic Chronic (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Indie Ro
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239669.jpgsave_picture_239669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239669.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Khymera - Hold Your Ground (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239685.jpgsave_picture_239685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239685.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ ReVamp - Wild Card (2013) Limited Edition [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239690.jpgsave_picture_239690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239690.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239702.jpgsave_picture_239702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239702.jpg" />
 </div>
 
 

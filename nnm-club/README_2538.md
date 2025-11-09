@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66738.jpgsave_picture_66738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66738.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66739.jpgsave_picture_66739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66739.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Polarr v6.11.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66740.jpgsave_picture_66740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66740.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TikTok Private Plus v40.0.5 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66741.jpgsave_picture_66741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66741.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AE08E74352DC5BFBEBDE27A6A74F7F62B7FFF7F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66742.jpgsave_picture_66742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66742.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:8B6139F2EDF0C258571AAD41F144CAC315D0B48A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66743.jpgsave_picture_66743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66743.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:43D4E5FAA587F269CEFC6D4C246453819C272446
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66744.jpgsave_picture_66744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66744.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A32BE04938BC0248A586D145D7FB052FA94322CF
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66745.jpgsave_picture_66745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66745.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PicWish: AI Photo Editor v2.0.13 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66746.jpgsave_picture_66746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66746.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:528E91D0ED65D93EFD96E76D8C2572A61AC6FC46
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66747.jpgsave_picture_66747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66747.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PictureThis - Plant Identification v5.2.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66748.jpgsave_picture_66748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66748.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66749.jpgsave_picture_66749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66749.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66750.jpgsave_picture_66750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66750.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Smart AudioBook Player Pro v11.3.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66751.jpgsave_picture_66751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66751.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Rokets - Bad Choices (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Ston
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66752.jpgsave_picture_66752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66752.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Rufige Kru, Goldie & Submotive - Alpha Omega (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66753.jpgsave_picture_66753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66753.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Slow Danse With The Dead - Eternl Mourning (2025) Remastered [MP3|320 Kbps] <Col
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66754.jpgsave_picture_66754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66754.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:0B01CA001BBCDD5AB5DE04F52806C89763091163
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66755.jpgsave_picture_66755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66755.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:6F82678C0328119A8ED8EA7D87C9F281077382F1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66756.jpgsave_picture_66756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66756.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Nytt Land - Songs of the Shaman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66757.jpgsave_picture_66757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66757.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:1680ED7C033909E68EDE3CAA5C7CCB911E5AF895
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66758.jpgsave_picture_66758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66758.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Hundredth - Faded Splendor (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Indi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66759.jpgsave_picture_66759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66759.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66760.jpgsave_picture_66760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66760.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Machine - Take Control (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66761.jpgsave_picture_66761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66761.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66762.jpgsave_picture_66762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66762.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66763.jpgsave_picture_66763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66763.jpg" />
 </div>
 
 

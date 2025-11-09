@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143965.jpgsave_picture_143965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143965.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:842F19B1441F6BA5CA0E65C6C2E8E755DA8CAEF7
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143966.jpgsave_picture_143966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143966.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:06FFC78F535E298CEE21EA23955A885D6E523695
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143968.jpgsave_picture_143968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143968.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Syndicate - The best disco with non-stop sound effects (2002) [FLAC|Lossles
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143970.jpgsave_picture_143970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143970.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ohmwork - In Hindsight (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143971.jpgsave_picture_143971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143971.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:55E3FFEE7200D2E396A93631DD0C553D98CC83FD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143972.jpgsave_picture_143972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143972.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Deep House Collection Vol.102 (2016) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143973.jpgsave_picture_143973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143973.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143974.jpgsave_picture_143974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143974.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ TweakPower 1.167 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143975.jpgsave_picture_143975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143975.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ F-Secure Freedome VPN 2.30.6180 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143976.jpgsave_picture_143976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143976.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ PullTube 1.8.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143977.jpgsave_picture_143977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143977.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6333DAC9DC9AFACAC97F0E7DE9B5A84DDFCEF8FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143979.jpgsave_picture_143979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143979.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:247AF79B5D42CF083CE9EC5EE8D511C3B3C54610
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143980.jpgsave_picture_143980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143980.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Hides 5.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143981.jpgsave_picture_143981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143981.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Adguard 1.5.3 (435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143983.jpgsave_picture_143983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143983.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpgsave_picture_143984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:32F4F2A9F3B123D0A3E2BED392BE7EFD3242F29F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143985.jpgsave_picture_143985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143985.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E902D7665056C911C6B6D1AB8253DF0F893DECBE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143986.jpgsave_picture_143986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143986.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D75138DD04E481D61749DE1A9BB238E87E2607F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143987.jpgsave_picture_143987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143987.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Rebel Cops v1.6 + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143988.jpgsave_picture_143988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143988.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B2D2712DF77454C1647F6C6BB9FFEF9EBB920E26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143990.jpgsave_picture_143990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143990.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Explaindio Platinum 4 v4.011 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143991.jpgsave_picture_143991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143991.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1049D90BB84333D84EDD868B0AF22DA0FEB84FFD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143992.jpgsave_picture_143992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143992.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:3430DF856C8D4A2A48AD2F5061198AF2BC05A90A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143993.jpgsave_picture_143993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143993.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:68F870D142EF5D97ECBE9B831562065DC4F22C2A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143994.jpgsave_picture_143994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143994.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Native Instruments Komplete Kontrol 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143995.jpgsave_picture_143995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143995.jpg" />
 </div>
 
 

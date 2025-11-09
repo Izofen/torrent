@@ -6,7 +6,7 @@ Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpgsave_picture_102991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpgsave_picture_102992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpgsave_picture_102993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpgsave_picture_102994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpgsave_picture_102995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sign Of The Jackal - Heavy Metal Survivors (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpgsave_picture_103001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A21A753F7F82388DBA7B8310EC86FA1C139653E1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpgsave_picture_103004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Isacaarum - Whorecraft (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpgsave_picture_103012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpgsave_picture_103013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Silent Winter - Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpgsave_picture_103015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpgsave_picture_103039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpgsave_picture_103041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpgsave_picture_103047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpgsave_picture_103052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpgsave_picture_103054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpgsave_picture_103055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpgsave_picture_103056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpgsave_picture_103062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpgsave_picture_103063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpgsave_picture_103072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Satyrian - The Dark Gift (2007) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpgsave_picture_103098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpgsave_picture_103100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Voltstorm - Break The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpgsave_picture_103103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Earthcorpse - The Taste Of Sin (1999) [FLAC|Lossless|image + .cue] <Doom Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpgsave_picture_103106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Embrace By Dark - Sculpture Of The Godforsaken Aeons (2003) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpgsave_picture_103109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Extinkt - Postnucleartrip To Nowhere (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpgsave_picture_103111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpg" />
 </div>
 
 

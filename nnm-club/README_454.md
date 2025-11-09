@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12046.jpgsave_picture_12046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12047.jpgsave_picture_12047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12047.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PictureThis - Plant Identification v5.7.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12048.jpgsave_picture_12048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12048.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:59EFACBCC7ECBDA72A07AD766EF05E63CDF335D5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12049.jpgsave_picture_12049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12049.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12050.jpgsave_picture_12050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12050.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A1A3285F738943C14C12E88A250B84B5BF4ACE7D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12051.jpgsave_picture_12051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12051.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8BAC4BDF4F0EF991AF322BB7BA04D76973869EBF
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12052.jpgsave_picture_12052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12052.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Purvpn 7.7 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12053.jpgsave_picture_12053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12053.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 Portable 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12054.jpgsave_picture_12054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12054.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A68C655A2720C1836AC08BFC57A8CE5BFEEC0C64
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12055.jpgsave_picture_12055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12055.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12056.jpgsave_picture_12056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12056.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12057.jpgsave_picture_12057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12057.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A39FDAEC044466A3FEC94F41838146C34FA62433
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12058.jpgsave_picture_12058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12058.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12059.jpgsave_picture_12059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12059.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:33F59356309CF80A3B8F0A2757A56F07853170A9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12060.jpgsave_picture_12060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12060.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Co
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12061.jpgsave_picture_12061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12061.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ eWeather HD - weather app v9.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12062.jpgsave_picture_12062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12062.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VCap Downloader 0.1.34.6653 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12063.jpgsave_picture_12063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12063.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 138.0.7204.101 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12064.jpgsave_picture_12064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12064.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:799C6CA276CF6956E60EA852B6C9397E76450713
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12065.jpgsave_picture_12065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12065.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12066.jpgsave_picture_12066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12066.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5A17B8B0F50F991395096614B7BF544291753A28
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12067.jpgsave_picture_12067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12067.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:2559BA3C3002DD066B71596B63B4AC01E90126E7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12068.jpgsave_picture_12068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12068.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8DA44B0D0F20A4C8D321272A4E401621E50046C4
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12069.jpgsave_picture_12069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12069.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:E511B9F7576A80F7218C4B854F2656097CDCB8E5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12070.jpgsave_picture_12070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12070.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:F72C5D00D9768623978513AF5200657D157A2754
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12071.jpgsave_picture_12071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12071.jpg" />
 </div>
 
 

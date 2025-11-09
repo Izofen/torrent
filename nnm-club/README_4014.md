@@ -6,7 +6,7 @@ Harvard Business Review (HBR) | Эффективные коммуникации 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124919.jpgsave_picture_124919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124919.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C7238E51DFD668589212545669A5B8BF726C9A51
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124920.jpgsave_picture_124920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124920.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9EAEA64D836AAD02A0BE01C5B2F1B32899531E10
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124921.jpgsave_picture_124921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124921.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124922.jpgsave_picture_124922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124922.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8078475E9A39A374741F7C474A70877030CC4AC8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124923.jpgsave_picture_124923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124923.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:220609DD524B6C0539BD72882ED26CB18226F4AF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124924.jpgsave_picture_124924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124924.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:32741961A6ADC8752204A2F5FF2360EB6B3A2092
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124925.jpgsave_picture_124925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124925.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - RelaX (my essence) for You (2023) [MP3|192 Kbps] <Pop, Rock, Relax>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124926.jpgsave_picture_124926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124926.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7CA4A68FC4FCB618799F2857516707140C3DE6EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124927.jpgsave_picture_124927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124927.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:40C6DBBE0930B4BF2F8364508FA5F64BCBDBCBB2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124928.jpgsave_picture_124928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124928.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124929.jpgsave_picture_124929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124929.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:72F5BF4FD4696EEABC539C539720A1CB53F7098D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124930.jpgsave_picture_124930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124930.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124931.jpgsave_picture_124931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124931.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124932.jpgsave_picture_124932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124932.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:22C3F50D275B081F05B2BBF863ABFF1B76DD1921
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124933.jpgsave_picture_124933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124933.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124934.jpgsave_picture_124934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:2DD66C66D781156EB5267E8A4E50CD13F606ADB6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124935.jpgsave_picture_124935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124935.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:5675C37B144C59418C452865D0EE5F65C0843C97
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124936.jpgsave_picture_124936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124936.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124937.jpgsave_picture_124937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124937.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpgsave_picture_124938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:533AA610137E3BEA239D9BC321C08CF6C6C37BD6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124939.jpgsave_picture_124939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124939.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:06F83BA302EE0FD462E0E52EE8179C592DFCCF3F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124940.jpgsave_picture_124940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124940.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ashampoo WinOptimizer 26.00.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124941.jpgsave_picture_124941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124941.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B5F80FA66CA265D8A9994EF9CCD4E8D9E6A1EEE7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124942.jpgsave_picture_124942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124942.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FE7AA51DAC71A7EEBE8FF4249D94251C6E042E64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124943.jpgsave_picture_124943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124943.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:93CEFEC7B24611C9B1EEE2A929395A068362F208
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124944.jpgsave_picture_124944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124944.jpg" />
 </div>
 
 

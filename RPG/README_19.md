@@ -6,7 +6,7 @@ Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29424.jpgsave_picture_29424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29424.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (build 17035252) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29451.jpgsave_picture_29451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29451.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29501.jpgsave_picture_29501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29501.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29525.jpgsave_picture_29525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29525.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29536.jpgsave_picture_29536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29536.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29551.jpgsave_picture_29551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29551.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29618.jpgsave_picture_29618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29618.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29718.jpgsave_picture_29718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29718.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29828.jpgsave_picture_29828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29828.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Persona 4 Golden (2020) [Ru/En] (build 5111251) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29837.jpgsave_picture_29837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29837.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29852.jpgsave_picture_29852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29852.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29868.jpgsave_picture_29868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29868.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpgsave_picture_29942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29975.jpgsave_picture_29975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29975.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30044.jpgsave_picture_30044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30044.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpgsave_picture_30091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30091.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30277.jpgsave_picture_30277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30277.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpgsave_picture_30292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30292.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30460.jpgsave_picture_30460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30460.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30639.jpgsave_picture_30639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30639.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30662.jpgsave_picture_30662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30662.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30685.jpgsave_picture_30685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30685.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30799.jpgsave_picture_30799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30799.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30956.jpgsave_picture_30956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30956.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31087.jpgsave_picture_31087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31087.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31090.jpgsave_picture_31090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31090.jpg" />
 </div>
 
 

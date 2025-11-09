@@ -6,7 +6,7 @@ Geekbench 5 v5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152788.jpgsave_picture_152788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152789.jpgsave_picture_152789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152789.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152791.jpgsave_picture_152791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152791.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A35D57B33B1B3BAECD6D6F750CCB7DBB312C9531
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152792.jpgsave_picture_152792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152792.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PayDay 2 (2013) [Ru/En] (1.92.776/dlc) Repack Mizantrop1337 [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152793.jpgsave_picture_152793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152793.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Xee 3.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152794.jpgsave_picture_152794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152794.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1E4D57E45FE69FD34D1E8D06E9EB12F465EB620D
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152795.jpgsave_picture_152795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152795.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:191C55AF466A848DFB5FF41B2B43B99920EE5DC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152796.jpgsave_picture_152796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152796.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8299DE51868E73E13161790699A770D0105A8BD1
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152798.jpgsave_picture_152798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152798.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F2C7C6F879A9EBB9E2758DD877823E804D163B26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152800.jpgsave_picture_152800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152800.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A00F36EB8AA7360DFBCE41B7B40D1311D2331702
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152801.jpgsave_picture_152801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152801.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9C24F9CE96DAB663D288D8A1D581E3CCEE37C1F1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152802.jpgsave_picture_152802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152802.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3E89AF111CA5CD7670961BF955D1FA1F48C9DBAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152803.jpgsave_picture_152803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152803.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:490DE4FDBFB078D046CB50378E048B66F0067911
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152804.jpgsave_picture_152804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152804.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5BDEFCFC403431A22CA49261CA03E283BBB08E2C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152805.jpgsave_picture_152805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152805.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:FE4AAD736B96EAFC60E278B9AD790EA858791D6E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152806.jpgsave_picture_152806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152806.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E62FA8BA9C2FAE373E9B4B4992484C5639054A90
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152808.jpgsave_picture_152808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152808.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9D938316C9024E23CC1D88437252B8D402DB41BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152809.jpgsave_picture_152809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152809.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:29FB811D64074E75415C3D37D44FAC67C70DD23A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152810.jpgsave_picture_152810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152810.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9E4DBE5CAF15418699E1B25BFA3DE66743AB6205
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152811.jpgsave_picture_152811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152811.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:324BE91855F911B4CBFCC83E28BA3DBC499F8588
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152813.jpgsave_picture_152813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152813.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:891BFA42227A13F956F28EC057FBD48FAA6326AD
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152814.jpgsave_picture_152814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152814.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:7D2B045F8DBF88EC396F8F84266F18F202F415FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152815.jpgsave_picture_152815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152815.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F57A0EFC114AEE1A162710E4654C1D6F7AD5FBAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152816.jpgsave_picture_152816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152816.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eschaton - Universe 3 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152817.jpgsave_picture_152817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152817.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152818.jpgsave_picture_152818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152818.jpg" />
 </div>
 
 

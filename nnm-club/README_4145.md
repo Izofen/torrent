@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128361.jpgsave_picture_128361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128361.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Morbus V - Aura (2022) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, At
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpgsave_picture_128362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:A86B31037480826F4E10E632E6722B94583E3033
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128363.jpgsave_picture_128363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128363.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Helreidh - Fingerprints Of The Gods (2001) Reissued 2002 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128364.jpgsave_picture_128364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128364.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:A5578F90FC492E67C16D84A1C3C2A450F8376634
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128365.jpgsave_picture_128365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128365.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:72B77B7DFADF42E786884E1F2C8DD3C2EACA536D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128366.jpgsave_picture_128366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128366.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Skype 8.110.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128367.jpgsave_picture_128367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128367.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Inthuul - Songs From A Dead Winter (2023) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128368.jpgsave_picture_128368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128368.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0CFD8AE12EEB84A8B4925160FFD2CAE3B4DE06D0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128369.jpgsave_picture_128369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128369.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C690F667334C60E32525C8D74B9727B1BE4DA24A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128370.jpgsave_picture_128370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128370.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:33C0B814F23AB61CF6E94D974B3D8AD97A0C0B75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128371.jpgsave_picture_128371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128371.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Insomnium - Songs Of The Dusk (2023) MCD [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128372.jpgsave_picture_128372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128372.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:D094A0A47BC7F0EEE394C537162ED44BA418349B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128373.jpgsave_picture_128373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128373.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ The Thomas Hardin Trio - Clasicos a ritmo de Jazz (1998) GyC Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128374.jpgsave_picture_128374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128374.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ PhotoRoom v4.7.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128375.jpgsave_picture_128375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128375.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:BC1415DEF2492BE6E8DAC39B9AFFF07B89D066DB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128376.jpgsave_picture_128376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128376.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tim (Thomas) Hardin Trio - Light Intelligence Series 1 (1992) Golden Penguin [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128377.jpgsave_picture_128377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128377.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DBD20DD4FD5B55724F26EA3996C0E1CDB765AB28
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128378.jpgsave_picture_128378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128378.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:F0C89A9AD3DEC5FA97FBECA44B264107B80C5B9B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128379.jpgsave_picture_128379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128379.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:45D10DB0A31E7755493ABDED247E0CFC2D280E5A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128380.jpgsave_picture_128380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128380.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Immortal Synn - The Singles Collection (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128381.jpgsave_picture_128381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128381.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:FB396A8A2444346EE4C0AB6565F0C9A18A641A71
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128382.jpgsave_picture_128382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128382.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C36B9DC6470E98ADF61611207D1E8021D5C58AD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128383.jpgsave_picture_128383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128383.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Under The Scythe - Realms Of The Void (2023) [FLAC|Lossless|image + .cue] <Techn
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpgsave_picture_128384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3E7CCDF3F23DCF7E37AF50C1F5E0BE707196974E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128385.jpgsave_picture_128385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128385.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:B0D70EB6BC43EC4AC174D4E71A9C75CE8044E31C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128386.jpgsave_picture_128386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128386.jpg" />
 </div>
 
 

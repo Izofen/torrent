@@ -6,7 +6,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236420.jpgsave_picture_236420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Forged In Black - Lightning In The Ashes (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236441.jpgsave_picture_236441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236441.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:43738ACC6BA470B505BB9AE72A0F9765AEB2F73A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236446.jpgsave_picture_236446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236446.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236448.jpgsave_picture_236448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236448.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Memorized Dreams - Theater Of Life (2004) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236456.jpgsave_picture_236456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236456.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rainover - NOX (2023) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236494.jpgsave_picture_236494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236494.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpgsave_picture_236504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236504.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melanc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpgsave_picture_236513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236513.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236514.jpgsave_picture_236514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236514.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpgsave_picture_236543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236543.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236547.jpgsave_picture_236547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236547.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236571.jpgsave_picture_236571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236571.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5C9ADBE5DB524F85BCDD9EB64F616FC3913A67FA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236579.jpgsave_picture_236579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236579.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Max Enix - Far From Home (2023) [MP3|320 Kbps] <Cinematic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236581.jpgsave_picture_236581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236581.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Plotnik82 - Не любил (2021) [MP3|320 Kbps] <Rock, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236595.jpgsave_picture_236595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236595.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236606.jpgsave_picture_236606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236606.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236609.jpgsave_picture_236609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236609.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Opera IX - The Gospel (2018) [FLAC|Lossless|image + .cue] <Symphonic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236615.jpgsave_picture_236615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236615.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpgsave_picture_236617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Pos
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236640.jpgsave_picture_236640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236640.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236647.jpgsave_picture_236647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236647.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236663.jpgsave_picture_236663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236663.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eloy - Ocean (1977) Remastered, 2019, Vertigo Berlin [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236675.jpgsave_picture_236675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236675.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236678.jpgsave_picture_236678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236678.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236700.jpgsave_picture_236700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236700.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tonight's Hero - Skeleton Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236711.jpgsave_picture_236711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236711.jpg" />
 </div>
 
 

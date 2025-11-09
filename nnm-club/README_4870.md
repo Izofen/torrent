@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152380.jpgsave_picture_152380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152380.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:3067B7BF80E5CFFF43FE6590BDA587B7A34124C0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152381.jpgsave_picture_152381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152381.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpgsave_picture_152382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152383.jpgsave_picture_152383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152383.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ASCOMP BackUp Maker Pro 8.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpgsave_picture_152384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ James Grant - The Anjunadeep Edition 283 2019-12-19 [MP3|320 Kbps] <Deep House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152385.jpgsave_picture_152385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152385.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - ЕвроХит Топ 40 Europa Plus 21.12.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152386.jpgsave_picture_152386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152386.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152387.jpgsave_picture_152387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152387.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152388.jpgsave_picture_152388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152388.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Phase One Capture One 23 Enterprise 16.3.1.1718 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152389.jpgsave_picture_152389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152389.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:2259E6D0923D8EBDDA28404692E0481A6E921D80
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152390.jpgsave_picture_152390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152390.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152391.jpgsave_picture_152391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152391.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F36B4862F1409AD6FD9015ED78DC2DEFF4DCDCD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152392.jpgsave_picture_152392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152392.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:052134459318938BDAF0ECD466061F89876CFFC8
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152393.jpgsave_picture_152393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152393.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:74F55B1014326CA818A4A1EF9AAAE1C35686E72F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152394.jpgsave_picture_152394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152394.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Wirecast Pro 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152395.jpgsave_picture_152395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152395.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152396.jpgsave_picture_152396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152396.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152397.jpgsave_picture_152397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152397.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Windows 11 Manager 1.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152398.jpgsave_picture_152398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152398.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ UltraSearch 3.0.1.634 Free + Portable & Pro with patch [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152399.jpgsave_picture_152399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152399.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152400.jpgsave_picture_152400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152400.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Duolingo Plus: изучение иностранных языков 5.39.3 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152401.jpgsave_picture_152401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152401.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Coolutils Total PDF Converter 2.1.226 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152402.jpgsave_picture_152402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152402.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152403.jpgsave_picture_152403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152403.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Helloween - Better Than Raw (1998) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152405.jpgsave_picture_152405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152405.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Oc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152406.jpgsave_picture_152406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152406.jpg" />
 </div>
 
 

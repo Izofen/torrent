@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2481.jpgsave_picture_2481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2481.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DBAD4D9E4F115096A1F9C899A895FDA2980A9C03
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2482.jpgsave_picture_2482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2482.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:20489496B36B3884A0FB84B08326769C32EB0943
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2483.jpgsave_picture_2483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2483.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 11 [10.0.22631.5909], Version 23H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2484.jpgsave_picture_2484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2484.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - National Pop Dance Music Vol.120 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2485.jpgsave_picture_2485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2485.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4352377A7BE547161206A7C0E340CB54DB5B5FEA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2486.jpgsave_picture_2486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2486.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6A2E508B2E9CAE8D4A2993E5B37E9EA40BBCEDD8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2487.jpgsave_picture_2487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2487.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B5862E8803CBF9377C26E95EFFFFCD5F44FC6224
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2488.jpgsave_picture_2488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2488.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9BD538F9438614ACE0B0A8E7835CDC9B34F7389F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2489.jpgsave_picture_2489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2489.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2490.jpgsave_picture_2490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2490.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:4D035B89B76B53BC13907232C8A7827798763D5E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2491.jpgsave_picture_2491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2491.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Aiseesoft Video Converter Ultimate 10.9.18 RePack (& Portable) by elchupacabra [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2492.jpgsave_picture_2492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2492.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:BC60B91B93142875AD3FD3BDCB404F850BF64C92
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2493.jpgsave_picture_2493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2493.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Q-Dir 12.34 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2494.jpgsave_picture_2494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2494.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:BF623EFCFE9329DFFEEE5849452340FF4E1659E4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2495.jpgsave_picture_2495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2495.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Windows Server 2022 LTSC [10.0.20348.4171], Version 21H2 (Updated September 2025
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2496.jpgsave_picture_2496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2496.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:E632C0531395DCBAC38896D58F476B95FF34AA4D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2497.jpgsave_picture_2497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2497.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Freemake Video Converter 5.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2498.jpgsave_picture_2498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2498.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Joseph Steinberg | Cybersecurity For Dummies: 3rd Edition (2025) [EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2499.jpgsave_picture_2499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2499.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpgsave_picture_2500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2500.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D5268D380E5D68A8EC82F61CFAE2B35D785D1B01
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2501.jpgsave_picture_2501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2501.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A73F398C0387A68F3524292986FE0ABFF2249E5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2502.jpgsave_picture_2502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2502.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Microsoft Windows 10 [10.0.19045.6332], Version 22H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2503.jpgsave_picture_2503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2503.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:95B62EDA941B122FD8820C4D1F5AC440B068B94C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2504.jpgsave_picture_2504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2504.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ashampoo Music Studio 12.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2505.jpgsave_picture_2505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2505.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:97096CD87C5BAB3C26BE8CA4A9D2832221B95E14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2506.jpgsave_picture_2506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2506.jpg" />
 </div>
 
 

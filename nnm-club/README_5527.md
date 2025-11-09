@@ -6,7 +6,7 @@ Jazz at Lincoln Center Orchestra - Big Band Holidays (2015) Blue Engine Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170675.jpgsave_picture_170675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170675.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170676.jpgsave_picture_170676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170676.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E15A2B6E5F40D65C6EE8441DEEFD3CE1DED7781A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170677.jpgsave_picture_170677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170677.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9BB8446CD9D1E2BE2C8F85ADD80A7304D65CD53B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170678.jpgsave_picture_170678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170678.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F2D777BC1503AFD1E7578277F52B044AF450F823
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170679.jpgsave_picture_170679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170679.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Cheetah3D 7 v7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170680.jpgsave_picture_170680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170680.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля. Web, Mobile, Postman,
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170681.jpgsave_picture_170681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170681.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CAF90B78C7882266190475CD2ECF4892616C7181
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170682.jpgsave_picture_170682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170682.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7F7EDD86ADDF5E801D14DCC8938884D58A0F4CF1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170683.jpgsave_picture_170683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170683.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Jazz at Lincoln Center Orchestra - Handful Of Keys (2017) Blue Engine Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170684.jpgsave_picture_170684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170684.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ FreeFileSync 13.1 (Donation Edition) + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170687.jpgsave_picture_170687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170687.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170688.jpgsave_picture_170688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170688.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170689.jpgsave_picture_170689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170689.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Mel Torme - Encore at Marty's, New York 1982 (1995) DCC Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170690.jpgsave_picture_170690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170690.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:85E408C6C96E6D0B460065B45899E7EA00633942
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170691.jpgsave_picture_170691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170691.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:5B9D83EEFC49E81CF12A1AA6A9A67D07EABC95A0
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170692.jpgsave_picture_170692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170692.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:008F8D9A57DF69803F6ADC22F0E1EFEFACC49FE5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170693.jpgsave_picture_170693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170693.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170694.jpgsave_picture_170694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170694.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170695.jpgsave_picture_170695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170695.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:1B84F17DFAB5C0345978263DEC91BB16D78E86FC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170696.jpgsave_picture_170696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170696.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:8EBE98BCCCFE907D695DFD34809446847C392102
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170697.jpgsave_picture_170697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170697.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170698.jpgsave_picture_170698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170698.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170699.jpgsave_picture_170699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170699.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:8F00E5CE0D87805E69FE6756B1E974A6BA6A9C93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170700.jpgsave_picture_170700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170700.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D7EF47E7AE9BDE907AA66E4BEC2325F26FBB5DB9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170701.jpgsave_picture_170701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170701.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170702.jpgsave_picture_170702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170702.jpg" />
 </div>
 
 

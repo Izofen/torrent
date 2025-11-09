@@ -6,7 +6,7 @@ Balabolka 2.15.0.766 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146248.jpgsave_picture_146248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fortune - 3 альбома Discography (1993-1995) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146250.jpgsave_picture_146250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146250.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Partition Assistant Technician Edition 9.6.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146251.jpgsave_picture_146251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146251.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Emanuele Congeddu - 23 Singles, 13 Remixes (2013 - 2016) [MP3|320 кб/с]<Uplif
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146253.jpgsave_picture_146253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146253.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:C824F7924317CAA4DC2BD0CAC9677B2A12AB313E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146254.jpgsave_picture_146254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146254.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:936A1EC2A78BFDA5D81B476298592A780A13B5AE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146255.jpgsave_picture_146255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146255.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from t
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146256.jpgsave_picture_146256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146256.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146257.jpgsave_picture_146257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146257.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:D7D144937BDB7BF6903CBD5FB3520EAF031D1D88
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146258.jpgsave_picture_146258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146258.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.30 (2612) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146259.jpgsave_picture_146259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146259.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:485FA4997B269E6F36141B2CA4F45E59A80D4601
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146263.jpgsave_picture_146263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146263.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A03F3B0BC97C9D806AC6E3BE830C43B5852E7913
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146264.jpgsave_picture_146264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146264.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Scrutiny 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146265.jpgsave_picture_146265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146265.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Blues Collection 5 (2016) [MP3|320 Kbps] <Blues, Folk, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146266.jpgsave_picture_146266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146266.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:3C0341CE4B5C3280139CFBE24F04588CFCCC27FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146267.jpgsave_picture_146267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146267.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2D241BA972C4D1A0BCB403BEB32FB299D2512821
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146269.jpgsave_picture_146269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146269.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:067DC75CFFC5D9F4D05C3C5A1771504A762DEE0D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146270.jpgsave_picture_146270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146270.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Paul van Dyk - Vonyc Sessions 327 (Maarten de Jong Guestmix) - Vonyc Sessions 32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146271.jpgsave_picture_146271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146271.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0CD64A9F85B1113EB9C294F89889026FA8F71E5A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146272.jpgsave_picture_146272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146272.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:0CD64A9F85B1113EB9C294F89889026FA8F71E5A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146273.jpgsave_picture_146273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146273.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:74D26C6B254842F62CDF1C2EA754DCAFA13B2ED3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146275.jpgsave_picture_146275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146275.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:FC1263A70CC7FEB32CE70475BC6B32AC86500E01
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146276.jpgsave_picture_146276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146276.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Jernlov - Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Christian
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146277.jpgsave_picture_146277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146277.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WinCatalog 2020.2.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146278.jpgsave_picture_146278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146278.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:46CD3E82B8576DAF427323A4349CF2B694C2EFFB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146279.jpgsave_picture_146279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146279.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Patriarchs in Black - My Veneration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146280.jpgsave_picture_146280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146280.jpg" />
 </div>
 
 

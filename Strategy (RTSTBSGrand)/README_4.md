@@ -6,7 +6,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpgsave_picture_34510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpgsave_picture_34560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35182.jpgsave_picture_35182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35182.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35291.jpgsave_picture_35291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35291.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35474.jpgsave_picture_35474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35474.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpgsave_picture_35602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpgsave_picture_35655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Strategic Command WWII: World at War (2018) [Multi] (1.20.00) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36327.jpgsave_picture_36327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36327.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36328.jpgsave_picture_36328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36328.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36437.jpgsave_picture_36437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36437.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37051.jpgsave_picture_37051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37051.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpgsave_picture_37126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37126.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpgsave_picture_37132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37132.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warcraft II (2): Remastered (2024) [Ru/Multi] (1.0.0.2157) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37152.jpgsave_picture_37152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37152.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37433.jpgsave_picture_37433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37433.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37630.jpgsave_picture_37630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37630.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38137.jpgsave_picture_38137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38137.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38142.jpgsave_picture_38142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38142.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38247.jpgsave_picture_38247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38247.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38332.jpgsave_picture_38332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38332.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Run
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpgsave_picture_38552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpgsave_picture_38724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38724.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39436.jpgsave_picture_39436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39436.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Strategic Command: American Civil War (2022) [Multi] (1.10.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39445.jpgsave_picture_39445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39445.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpgsave_picture_40603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41756.jpgsave_picture_41756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41756.jpg" />
 </div>
 
 

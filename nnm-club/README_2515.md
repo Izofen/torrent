@@ -6,7 +6,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66140.jpgsave_picture_66140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66140.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - National Pop Dance Music Vol.110 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66141.jpgsave_picture_66141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66141.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C68A5EEAB9E355D97569C9953282E89996FCB4B8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66142.jpgsave_picture_66142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66142.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B1EB7997A7480B07F5CE5B58E020958AE8898773
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66143.jpgsave_picture_66143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66143.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1BB43272A062A1055EDF84A68E475A0177FF12F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66144.jpgsave_picture_66144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66144.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:30F7FFA46A9721B90B835F107767913B437FD5AD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66145.jpgsave_picture_66145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66145.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0AF608D2788E9C00BB770D6C1A3297C037D6C97C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66146.jpgsave_picture_66146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66146.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpgsave_picture_66147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66147.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:190CE860BB8A48E3B86BB9B169C1F3EEAF543479
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66148.jpgsave_picture_66148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66148.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ STEEZY Studio - Learn To Dance v5.11.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66149.jpgsave_picture_66149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66149.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.3 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66150.jpgsave_picture_66150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66150.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66151.jpgsave_picture_66151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66151.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] Blu-ray 1080p 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66152.jpgsave_picture_66152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66152.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Photo Studio PRO v2.8.2.4354 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66153.jpgsave_picture_66153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66153.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:17F32277A357E66C146E742B378005ED1953919B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66154.jpgsave_picture_66154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66154.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Renee Rosnes - Renee Rosnes (1988, 1989) 1990, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66155.jpgsave_picture_66155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66155.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66156.jpgsave_picture_66156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66156.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adam Douglas - Companions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66157.jpgsave_picture_66157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66157.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Nerascesi - Nerascesi (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66158.jpgsave_picture_66158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66158.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:4C10774D73106E1B88FA30B7ED39E8511013194B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66159.jpgsave_picture_66159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66159.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:4C10774D73106E1B88FA30B7ED39E8511013194B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66160.jpgsave_picture_66160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66160.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4C10774D73106E1B88FA30B7ED39E8511013194B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66161.jpgsave_picture_66161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66161.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F52756A25848022BB401E54F8CC9345BB67A89D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66162.jpgsave_picture_66162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66162.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F52756A25848022BB401E54F8CC9345BB67A89D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66163.jpgsave_picture_66163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66163.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F52756A25848022BB401E54F8CC9345BB67A89D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpgsave_picture_66164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2D087903D2B879CAC56AA53BC3F7630707806E6A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66165.jpgsave_picture_66165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66165.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184259.jpgsave_picture_184259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184259.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:053FDA4EFA56D00EE5F0F8F8BF2705F73F02B3DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184261.jpgsave_picture_184261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184261.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:49C29B44225B524885F2396524C730CDE7BFD4B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184262.jpgsave_picture_184262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184262.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:AF2BCBAD6A4A93B6F8117973BCB64F33C30FD829
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184264.jpgsave_picture_184264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184264.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Rebelway, Corbin Mayne | VEX For Houdini Artists (2020) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184266.jpgsave_picture_184266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184266.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ FEDUK - ЙАЙ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184267.jpgsave_picture_184267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184267.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|image + .cue] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184270.jpgsave_picture_184270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184270.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Sublime Text 4.0 Dev build 4093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184271.jpgsave_picture_184271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184271.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:E7782787E90F7F68E2833B22A85499EA0D302EBE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184272.jpgsave_picture_184272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184272.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184275.jpgsave_picture_184275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184275.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:DF8C570DFA2E0B66904996BE82F74A0B9A2DA407
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184276.jpgsave_picture_184276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184276.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Nox App Player 7.0.5.9000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184277.jpgsave_picture_184277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184277.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:528145B6AFAD1849F97A0D201E7D6B0A40EC9AF7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184279.jpgsave_picture_184279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184279.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ NewFileTime 6.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184281.jpgsave_picture_184281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184281.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184282.jpgsave_picture_184282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184282.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Zampolit | Неверный ленинец (Книга 4). Председате�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184285.jpgsave_picture_184285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184285.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Ocenaudio 3.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184286.jpgsave_picture_184286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184286.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:A4696CCB3CF8B22D82A4E64BAA396BD5262F3724
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184287.jpgsave_picture_184287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184287.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:C76DED165070AF0CDFCCA1C4015A705E741B65CA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184290.jpgsave_picture_184290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184290.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Foxit PDF Editor Pro 2023.2.0.21408 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184291.jpgsave_picture_184291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184291.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:0861D767902B13892AFCBDE7B0852068D6D327E5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184292.jpgsave_picture_184292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184292.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ reaConverter Pro 7.610 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184294.jpgsave_picture_184294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184294.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2011) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184296.jpgsave_picture_184296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184296.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B72D0190EA46FC013B2522CA2F72F12CCA03E3C0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184297.jpgsave_picture_184297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184297.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Bluesy Christmas - Jingle Bell Blues (2022) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184298.jpgsave_picture_184298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184298.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:569AE7A8EF4D5A8A67F02E6BE17D8A4FA31273FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184301.jpgsave_picture_184301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184301.jpg" />
 </div>
 
 

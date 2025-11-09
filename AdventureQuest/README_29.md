@@ -6,7 +6,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42684.jpgsave_picture_42684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpgsave_picture_42763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42792.jpgsave_picture_42792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42792.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpgsave_picture_42795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42795.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpgsave_picture_42805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42805.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42842.jpgsave_picture_42842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42842.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42885.jpgsave_picture_42885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42885.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpgsave_picture_42893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42893.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpgsave_picture_43006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43006.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpgsave_picture_43010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43010.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43023.jpgsave_picture_43023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43023.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpgsave_picture_43099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43099.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43196.jpgsave_picture_43196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43196.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpgsave_picture_43310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43398.jpgsave_picture_43398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43398.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpgsave_picture_43416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43444.jpgsave_picture_43444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43444.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpgsave_picture_43533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43582.jpgsave_picture_43582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43582.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43586.jpgsave_picture_43586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43586.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43638.jpgsave_picture_43638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43638.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpgsave_picture_43697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43709.jpgsave_picture_43709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43709.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44179.jpgsave_picture_44179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44179.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44184.jpgsave_picture_44184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44184.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44250.jpgsave_picture_44250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44250.jpg" />
 </div>
 
 

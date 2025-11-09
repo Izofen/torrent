@@ -6,7 +6,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC|Lossless|WEB-DL|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189187.jpgsave_picture_189187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stratovarius - Darkest Hours (2010) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189188.jpgsave_picture_189188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189188.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Authari - Golden Age (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189189.jpgsave_picture_189189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189189.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B1DB4E67701F2A322D49551516DA972E0BEACAC5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189190.jpgsave_picture_189190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189190.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Northern Parhelion - In Search of Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189191.jpgsave_picture_189191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189191.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:448CF36948706F74A678F0D67E96E6C2E7E6523F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189192.jpgsave_picture_189192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189192.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Merryweather Stark Wackerman - Cosmic Affect (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189193.jpgsave_picture_189193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189193.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:233F322159390BF41B25C88F60BA8076E899F1C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189194.jpgsave_picture_189194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189194.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Faustus - Memoriam (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189195.jpgsave_picture_189195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189195.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Melon VPN - Secure Proxy VPN 7.9.273 Mod By ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189196.jpgsave_picture_189196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189196.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:46801F90E5168A53FA258AAF7B0E59E4ACF2809A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189197.jpgsave_picture_189197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189197.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dead Man's Grief - Embrace Sorrow & Solitude (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189198.jpgsave_picture_189198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189198.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A26330C927886324CFD55EF1D8294E200B66AB73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189199.jpgsave_picture_189199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189199.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D72CEF1CDCA33B67BF58A5B72BCA8F89BC8E2391
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189200.jpgsave_picture_189200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189200.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ He Is Legend - Endless Hallway (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189201.jpgsave_picture_189201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189201.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:FDC384B6555E95C91425C907786E628C6D6DA517
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189202.jpgsave_picture_189202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189202.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Herbstlethargie - Melancholie im Blattfall (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189203.jpgsave_picture_189203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189203.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Human - A New Perception (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189204.jpgsave_picture_189204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189204.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Zeke Sky - Intergalactic Demon King (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189205.jpgsave_picture_189205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189205.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Parish - Parish (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189206.jpgsave_picture_189206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189206.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hornansarvi - Grim Reaper's Greed (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189207.jpgsave_picture_189207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189207.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hussar - All-Consuming Hunger (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189208.jpgsave_picture_189208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189208.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:393400D3CAC6A62685467BE7C2278064DD4FE079
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189209.jpgsave_picture_189209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189209.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:3F73E771AFF63D5F05BAFBA140A94FA2F80C020D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189210.jpgsave_picture_189210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189210.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Duolingo: изучай языки 5.119.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189211.jpgsave_picture_189211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189211.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Staind - Confessions Of The Fallen (2023) [MP3|320 Kbps] <Alt.Metal, Post-Grunge
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189212.jpgsave_picture_189212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189212.jpg" />
 </div>
 
 

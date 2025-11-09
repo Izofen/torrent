@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236382.jpgsave_picture_236382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236382.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Live Performer 1.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236384.jpgsave_picture_236384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236386.jpgsave_picture_236386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236386.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Find Any File (FAF) 2.3.2 b3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236389.jpgsave_picture_236389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236389.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E4A3C5B75F52AC383450177787A08112E1DE2EF1
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236391.jpgsave_picture_236391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236391.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Network & Battery 12.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236392.jpgsave_picture_236392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236392.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Steve Gadd, Eddie Gomez, Ronnie Cuber - Center Stage (2022) Leopard [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236393.jpgsave_picture_236393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236393.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ EazyDraw 10.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236394.jpgsave_picture_236394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236394.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:8DE1DB644E9626E38AA25CD9D2AE9C0FA90E4D3C
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236396.jpgsave_picture_236396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236396.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ BBEdit 13 v13.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236397.jpgsave_picture_236397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236397.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A998C83C4B6E42A1B97958FBFE67CFD7F7C90479
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236398.jpgsave_picture_236398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236398.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236400.jpgsave_picture_236400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236400.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236401.jpgsave_picture_236401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236401.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ GlueMotion 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236403.jpgsave_picture_236403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236403.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Qbserve 1.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236404.jpgsave_picture_236404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236404.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:46C4E2E304424EAA0C93D10425C8BE54DE47C54E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236405.jpgsave_picture_236405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236405.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236407.jpgsave_picture_236407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236407.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DA7507DF7572061DA10D9B2DE3EA6EE124523EE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236408.jpgsave_picture_236408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236408.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6D95A92EE696F83948B99F8F3C060E0BB4BEB4B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236409.jpgsave_picture_236409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236409.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PDF Checkpoint 1.9.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236412.jpgsave_picture_236412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236412.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:5C30BF1EA5156F75F920FE100FB64E0EBA7CB6DC
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236413.jpgsave_picture_236413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236413.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236415.jpgsave_picture_236415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Spooky & Sue - Spooky & Sue (1974) LP [MP3|320 Kbps] <Funk Soul, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236416.jpgsave_picture_236416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236416.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:38A50D852F1C7DE11D2432AE1FC773A918E59300
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236418.jpgsave_picture_236418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236418.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236420.jpgsave_picture_236420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236420.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:C9BA548CCAA6BDB16DB0B6F5D33BFD2A0B45C03B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236422.jpgsave_picture_236422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236422.jpg" />
 </div>
 
 

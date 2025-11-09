@@ -6,7 +6,7 @@ Pencil Photo Sketch : Drawing v2.0.83 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108090.jpgsave_picture_108090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:93D64E9FFFBB0700562C9E4B221209C4419F692F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108217.jpgsave_picture_108217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108217.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108228.jpgsave_picture_108228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108228.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AccuWeather - прогноз погоды 20.3-2-google Mod by LITEAPKS [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108229.jpgsave_picture_108229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108229.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ventusky: Прогноз погоды 35.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108233.jpgsave_picture_108233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108233.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AccuWeather - прогноз погоды 20.3-2-google Lite-Mod by LITEAPKS [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108244.jpgsave_picture_108244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108244.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ EPIK - AI Photo & Video Editor 5.0.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108248.jpgsave_picture_108248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108248.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3725D6EBCF987F17253E2052CD4B111DB1C41BBD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108249.jpgsave_picture_108249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108249.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Soul Browser 1.4.23 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108286.jpgsave_picture_108286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108286.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soul Browser 1.4.23 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108287.jpgsave_picture_108287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108287.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Soul Browser 1.4.23 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108296.jpgsave_picture_108296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108296.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AllTrails: Hike, Bike & Run 19.1.1 Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108298.jpgsave_picture_108298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108298.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:DEFEC6F3F34FA0260E116424E01557C6516A8597
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108300.jpgsave_picture_108300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108300.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lucky Patcher 11.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108308.jpgsave_picture_108308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108308.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Acode - code editor | FOSS 1.10.3 (959) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108355.jpgsave_picture_108355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108355.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ TapScanner v3.0.24 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108507.jpgsave_picture_108507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108507.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpgsave_picture_108584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ PhotoRoom 4.9.7 (b1411) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108791.jpgsave_picture_108791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108791.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ MyFitnessPal: Счетчик калорий 24.18.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108944.jpgsave_picture_108944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108944.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ n7player Music Player 3.2.10-3002010 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108952.jpgsave_picture_108952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108952.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ n7player Music Player 3.2.10-3002010 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108970.jpgsave_picture_108970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108970.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FlipaClip: Create 2D Animation 3.9.1 (ARM64) Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109135.jpgsave_picture_109135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109135.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PhotoDirector - Редактор фото 19.2.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109184.jpgsave_picture_109184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109184.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109208.jpgsave_picture_109208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109208.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109224.jpgsave_picture_109224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109224.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Video Converter Pro 0.2.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109228.jpgsave_picture_109228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109228.jpg" />
 </div>
 
 

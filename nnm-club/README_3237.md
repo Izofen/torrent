@@ -6,7 +6,7 @@ London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104522.jpgsave_picture_104522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104522.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpgsave_picture_104523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpgsave_picture_104524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpgsave_picture_104525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpgsave_picture_104526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpgsave_picture_104527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpgsave_picture_104528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104529.jpgsave_picture_104529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104529.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:493DD44C9A25F3C2CB4AA0D564ACE3105FB5BDA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104530.jpgsave_picture_104530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104530.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ London Grammar - The Greatest Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpgsave_picture_104531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Chaos Unleashed - I Am Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104532.jpgsave_picture_104532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104532.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Witchz - Drugz2feel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpgsave_picture_104533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Big Big Train - A Flare On The Lens (Live in London 2023) (2024) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpgsave_picture_104534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ TooEvil - Lepers and Lace (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104535.jpgsave_picture_104535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104535.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:F54B8EED94CA03E4645A5292DC9990CA090DCE61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104536.jpgsave_picture_104536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104536.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104537.jpgsave_picture_104537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104537.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 2 (1990) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104538.jpgsave_picture_104538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104538.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 1 (1991) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104539.jpgsave_picture_104539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104539.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Skelethal - Within Corrosive Continuums (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104540.jpgsave_picture_104540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104540.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Mourning - Hush (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104541.jpgsave_picture_104541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104541.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104542.jpgsave_picture_104542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104542.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CB669FED220E357672AB604BBA974838C224F5DC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104543.jpgsave_picture_104543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104543.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104544.jpgsave_picture_104544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104544.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104545.jpgsave_picture_104545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104545.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104546.jpgsave_picture_104546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104546.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104547.jpgsave_picture_104547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104547.jpg" />
 </div>
 
 

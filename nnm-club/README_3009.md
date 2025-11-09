@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90907.jpgsave_picture_90907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90908.jpgsave_picture_90908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90908.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90914.jpgsave_picture_90914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90914.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90915.jpgsave_picture_90915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90915.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Kubuntu 12.04 LTS [i386] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90916.jpgsave_picture_90916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90916.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90917.jpgsave_picture_90917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90917.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90919.jpgsave_picture_90919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90919.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E62468E2C9C4874BECBD512C53AA542C2C4913BA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90920.jpgsave_picture_90920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90920.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90922.jpgsave_picture_90922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90922.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90923.jpgsave_picture_90923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90923.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90924.jpgsave_picture_90924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90924.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90928.jpgsave_picture_90928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90928.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90930.jpgsave_picture_90930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90930.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpgsave_picture_90932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90933.jpgsave_picture_90933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90933.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90935.jpgsave_picture_90935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90935.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:78873C05BE4C3C411B630CDB98A34DD8B5C41BBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90936.jpgsave_picture_90936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90936.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:78873C05BE4C3C411B630CDB98A34DD8B5C41BBD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90937.jpgsave_picture_90937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90937.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:78873C05BE4C3C411B630CDB98A34DD8B5C41BBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90938.jpgsave_picture_90938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90938.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Золотые Хиты Кавказа 2 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90941.jpgsave_picture_90941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90941.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:ADF55F50652DEB3D35E78533526CCF7007A08747
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90942.jpgsave_picture_90942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90942.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:ADF55F50652DEB3D35E78533526CCF7007A08747
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90944.jpgsave_picture_90944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90944.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:FAEA47CE460F7499B5D5EE0BC0EBBAD37E9B8A93
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90949.jpgsave_picture_90949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90949.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:849C2A603EF48694A91F42D21CAE5085008BFAD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90950.jpgsave_picture_90950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90950.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Slate Digital - FG-X Mastering Processor v1.1 Build 252 by AIR x86[VST|RTAS][exe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90951.jpgsave_picture_90951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90951.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Slate Digital - FG-X Mastering Processor - программа для масте�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90952.jpgsave_picture_90952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90952.jpg" />
 </div>
 
 

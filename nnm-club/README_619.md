@@ -6,7 +6,7 @@ Ascold Flow | Мертвецкий круиз (Книга 5). Маршируя �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16407.jpgsave_picture_16407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16407.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ascold Flow | Мертвецкий круиз (Книга 4). Бастион (20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16408.jpgsave_picture_16408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16408.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16409.jpgsave_picture_16409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16409.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 9)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16410.jpgsave_picture_16410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16410.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 8)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16411.jpgsave_picture_16411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16411.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 7)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16412.jpgsave_picture_16412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16412.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 6)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16413.jpgsave_picture_16413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16413.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 5)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16414.jpgsave_picture_16414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16414.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 4)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16415.jpgsave_picture_16415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16415.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16416.jpgsave_picture_16416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16416.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16417.jpgsave_picture_16417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16417.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:632378190F3B3C743146E5FF1E1AD9A55BE545F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16418.jpgsave_picture_16418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16418.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:8FF74A9906BAC551D95DF42CFDA45C166B9FB7E6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16419.jpgsave_picture_16419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16419.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:DF34DE6CA26D8321B99A525C5800ADA5C99B2A5E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16420.jpgsave_picture_16420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16420.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:0CEA31F2A4174C56D97568D37C7B80BFB6066EAA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16421.jpgsave_picture_16421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16421.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:17CF70C40BD0BEEA7B2FAFB2818F72BF952507F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16422.jpgsave_picture_16422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16422.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0 Build 49 (x64) Portable by 7997 [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16423.jpgsave_picture_16423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16423.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:11B080566611EED055E93AE51B33D15BAC9921A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16424.jpgsave_picture_16424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16424.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:53814B8DDF5D5987765AE1C8D02019AE5BC07DAD
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16425.jpgsave_picture_16425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16425.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:53814B8DDF5D5987765AE1C8D02019AE5BC07DAD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16426.jpgsave_picture_16426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16426.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:4EB79A8398D747AF9026C2E30985B481FBBC586F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16427.jpgsave_picture_16427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16427.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:5B58B590540DB6BA3C1885EA615F4360AF69993C
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16428.jpgsave_picture_16428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16428.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FFF4918D3C1E8F7E118EE74B39D891712AA77E2D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16429.jpgsave_picture_16429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16429.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EC1510C2F271CCC8FFBEB1A61C18FCB9FF306673
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16430.jpgsave_picture_16430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16430.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9FD41C030CA0BB4951A2359AAD4311D5364AFA9C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16431.jpgsave_picture_16431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16431.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:42080C378C543E290B5B2148CD92673E5D8552F3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16432.jpgsave_picture_16432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16432.jpg" />
 </div>
 
 

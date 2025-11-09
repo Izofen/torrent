@@ -6,7 +6,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169632.jpgsave_picture_169632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169632.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpgsave_picture_169633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Best of Chill Jazz 6 (2020) [AAC|~345 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169634.jpgsave_picture_169634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169634.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1DB634E9693EB685EA0D07C4ED9A416787B51953
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169635.jpgsave_picture_169635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169635.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BC61C1D37E34BA36BFB032FBF1D867BDD8403558
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169636.jpgsave_picture_169636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169636.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Google Chrome 79.0.3945.79 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169637.jpgsave_picture_169637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169637.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BD0836AE38F29288FDFA11F32AC932A2C30E84D6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169638.jpgsave_picture_169638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169638.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A85B781487C9BADA499C905B89C5ACBB482C4E79
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169639.jpgsave_picture_169639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169639.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Exhibeo 2 v2.0.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169640.jpgsave_picture_169640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169640.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Roger Waters - The Lockdown Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169641.jpgsave_picture_169641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169641.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:86D06697F023138BFA94B6ADB37D0AA96BB255B7
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169642.jpgsave_picture_169642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169642.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Winter Magic | Chillout Edition (2021) [AAC|~287 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169643.jpgsave_picture_169643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169643.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ App Cleaner & Uninstaller Pro 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169644.jpgsave_picture_169644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169644.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ FabFilter Total Bundle 2020.12.08 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169645.jpgsave_picture_169645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169645.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F7C8C66313E944CCA33DD1BF75E5ADAC05F8D004
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169646.jpgsave_picture_169646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169646.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Best of Chill Jazz 5 (2020) [AAC|~346 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169647.jpgsave_picture_169647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169647.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:A4A231D45D750D4036B4E8F4DCBA8373C2B66524
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169648.jpgsave_picture_169648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169648.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:59C4D78148185ABCF999BE355C2C1B600CAE0EEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169649.jpgsave_picture_169649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169649.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Smart Shooter 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169650.jpgsave_picture_169650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169650.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:71DB034EFC94D8A98F6082357E3EEAF11DCF4BAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169651.jpgsave_picture_169651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169651.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:10718A6D9C891B661FA48276A7D5ADF0E40D4F07
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169652.jpgsave_picture_169652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169652.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - My Time | My Music (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169653.jpgsave_picture_169653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169653.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Best of Chill Jazz 3 (2019) [AAC|~350 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169654.jpgsave_picture_169654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169654.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:A589009F4A72890C82BD0F321679CF39D8CCC2D1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169655.jpgsave_picture_169655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169655.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169656.jpgsave_picture_169656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169656.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169657.jpgsave_picture_169657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169657.jpg" />
 </div>
 
 

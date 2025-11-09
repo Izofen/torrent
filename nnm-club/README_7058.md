@@ -6,7 +6,7 @@ Billy Taylor Trio - Urban Griot (2001) Soundpost [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241743.jpgsave_picture_241743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241743.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:33D1FAB6F12087E662039F8307846A6BA3A6283C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241744.jpgsave_picture_241744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241744.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mem Reduct 3.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241745.jpgsave_picture_241745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241745.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241746.jpgsave_picture_241746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241746.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3A63DE4E0C690E37386E1011EB7FF449E10A6F8D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241747.jpgsave_picture_241747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241747.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5DDC9A87E6BA227443906BAD3F8004C481991D8F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241748.jpgsave_picture_241748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241748.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:CC93A288C645F72B9F47D8890E9412F8F5FB39A6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241749.jpgsave_picture_241749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241749.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Birds & Monks (1978) 1995, Galaxy [FLAC|Lossless|tracks + .cue] <Bop, Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241750.jpgsave_picture_241750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241750.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Radiant - Written By Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241751.jpgsave_picture_241751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241751.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:DE43E4B9FA581C43A16FF7846C96B2791C3BE3C6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241752.jpgsave_picture_241752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241752.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:70F03197D9771D03C9A45E9CCDDA1E98A03CCE4E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241753.jpgsave_picture_241753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241753.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dinah Washington - In The Land Of Hi-Fi (1956) 1988, EmArcy [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241754.jpgsave_picture_241754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241754.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Billy Taylor - Dr. T (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241755.jpgsave_picture_241755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241755.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:9320DD0428CD3D8D93010160BC98E45137D9414B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241756.jpgsave_picture_241756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241756.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241757.jpgsave_picture_241757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241757.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:CD7DEDF2517728577701B0AC382E81FDC3CF24DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241758.jpgsave_picture_241758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241758.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:A82BCC52A3B1AC871A57AC652050F668552D6F3C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241759.jpgsave_picture_241759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241759.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Exclusive Nightclub Vibes Party (2021) [MP3|320 Kbps] <Dance, Clud, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241760.jpgsave_picture_241760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241760.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Abysmal Dawn - Nightmare Frontier (2022) EP [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241761.jpgsave_picture_241761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241761.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C10A064925CCB9F803E42744ABF1CDEE3839D4CC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241762.jpgsave_picture_241762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241762.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F218972A1C9603029C9766727D39B823646415BD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241763.jpgsave_picture_241763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241763.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Throwdown - Take Cover (2020) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241764.jpgsave_picture_241764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241764.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D672B89B800133510D8C2E91C13D735CF63C31C9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241765.jpgsave_picture_241765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241765.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Smogg - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241766.jpgsave_picture_241766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241766.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Beatport Disco House: Sound Pack #267 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241767.jpgsave_picture_241767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241767.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Adversor - Portrait of a Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241768.jpgsave_picture_241768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241768.jpg" />
 </div>
 
 

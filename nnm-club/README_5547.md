@@ -6,7 +6,7 @@ Lucky Patcher 10.9.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171207.jpgsave_picture_171207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:948B7332FA7B43E063AB7C610A66CA872AA4B6F4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171208.jpgsave_picture_171208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171208.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5ADA91EE7013AC3487796774081A80E704C6E320
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171209.jpgsave_picture_171209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171209.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9418F1C9A38A63A18BB020E4B2E810F7992AFD7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171210.jpgsave_picture_171210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171210.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ O&O DiskImage Professional 18.4 Build 335 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171211.jpgsave_picture_171211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171211.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E47FA83E90DEFBB9CBF2AE936F4614D4665BA6DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171212.jpgsave_picture_171212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171212.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171213.jpgsave_picture_171213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171213.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ JetBrains DataSpell for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171214.jpgsave_picture_171214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171214.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Money Pro - Personal Finance 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171215.jpgsave_picture_171215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171215.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VueScan Pro 9.8.19 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171216.jpgsave_picture_171216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171216.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - 33 Relaxing Healing Jazz Vibes Chilly Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171217.jpgsave_picture_171217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171217.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Nova 11.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171218.jpgsave_picture_171218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171218.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:806030A8A8887D345B2F6171121DD670BAF78A36
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171219.jpgsave_picture_171219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171219.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rykarda Parasol - Tuesday Morning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171220.jpgsave_picture_171220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171220.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171221.jpgsave_picture_171221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171221.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Speedtest от Ookla 5.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171222.jpgsave_picture_171222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171222.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Vitalines - Wheels Within Wheels (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171223.jpgsave_picture_171223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171223.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8DE869A77BEFA3A9FD0E4B6F5CC4856620C87C32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171224.jpgsave_picture_171224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171224.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171225.jpgsave_picture_171225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171225.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ iA Writer 6.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171226.jpgsave_picture_171226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171226.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Autumn Slow Chill-out Jams to Relax and Unwind (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171227.jpgsave_picture_171227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171227.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ JetBrains GoLand for Mac 2023.2.2 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171228.jpgsave_picture_171228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171228.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:42B1C95E8C2F75E90725E366D707C266FC14A6B7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171229.jpgsave_picture_171229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171229.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:4768D9E7ABD3DF96B1F4E8C07A1CCD7A9CC53817
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171230.jpgsave_picture_171230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171230.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Speedtest от Ookla 5.2.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171231.jpgsave_picture_171231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171231.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Lord Vampyr - Gothika Vampyrika Heretika (2013) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171232.jpgsave_picture_171232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171232.jpg" />
 </div>
 
 

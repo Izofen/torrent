@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 16.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139275.jpgsave_picture_139275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Benvista PhotoZoom Pro 5.0.4 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139278.jpgsave_picture_139278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139278.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoZoom Professional - программа является лучшей из �
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139279.jpgsave_picture_139279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139279.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:05A026BD3EECB443919C60859972C04D5BD07F5D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139280.jpgsave_picture_139280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139280.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:310048073E8BC0C7DC77A0A07E5E82C8E978BE18
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139281.jpgsave_picture_139281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139281.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139282.jpgsave_picture_139282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139282.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Best of 2020 Desert Hearts Black (2021) [AAC|~312 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139283.jpgsave_picture_139283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139283.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:6FB9924DF35BD441A0558F66E17C83F9F68EF2D2
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139284.jpgsave_picture_139284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139284.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:87AE3403CEB8F987C6CF2508BCF1B851F2F16958
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139285.jpgsave_picture_139285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139285.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0897ECC6CE4263EDFEE783113B322542408BC463
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139287.jpgsave_picture_139287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139287.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E0587E6174331B1A6D66BA3464D2A5BA956E51B4
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139289.jpgsave_picture_139289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139289.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:4AC53AB77252970D137DD5AC2212E66AB4E16826
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139290.jpgsave_picture_139290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139290.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2DB1ED8A594C204D7E5D04745DDC33A2CAE64A25
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139291.jpgsave_picture_139291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139291.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0289662B040DBE2E275101A45F5D47B73E0958BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139292.jpgsave_picture_139292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139292.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B129245DFC5EB968526087ABA2334F05EACA602A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139293.jpgsave_picture_139293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139293.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Total Commander 11.02 (23.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139294.jpgsave_picture_139294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139294.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E9D1F1859D81B43A283D3AF50709B20F3FC4B5B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139295.jpgsave_picture_139295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139295.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E9DA01D9D1A8243B87607677484D888ED8361C86
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139296.jpgsave_picture_139296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139296.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:4F1650D1335BFC53EBBB1F6DEE4B5A28A1361F23
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139297.jpgsave_picture_139297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139297.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:476E443861001CA7A45F490FE55B40697DAEC51F
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139298.jpgsave_picture_139298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139298.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Chromium 73.0.3654.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139299.jpgsave_picture_139299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139299.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Faderhead - Years Of The Serpent (2021) [AAC|~330 Kbps] <EBM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139301.jpgsave_picture_139301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139301.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Psiphon 3 build 180 (23.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139303.jpgsave_picture_139303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139303.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D925EC525B9AFD869374022844301C7CDDFDFAAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139305.jpgsave_picture_139305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139305.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F827B1F7D11A9F929CCEC1C53AE7E6B12D843D0A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139306.jpgsave_picture_139306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139306.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A027B7FEAEA9EC3917B1F7B5B5CE8D9A3059AEC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139307.jpgsave_picture_139307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139307.jpg" />
 </div>
 
 

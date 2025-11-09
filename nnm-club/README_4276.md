@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132685.jpgsave_picture_132685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B45595B101718DA5398A889D0776A509438278A3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132687.jpgsave_picture_132687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132687.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F1EE2B16E6975707472767A1022971D61D319F92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132689.jpgsave_picture_132689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132689.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Listen Audiobook Player v5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132691.jpgsave_picture_132691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132691.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132693.jpgsave_picture_132693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132693.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132695.jpgsave_picture_132695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132695.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132696.jpgsave_picture_132696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132696.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4D6090B3206023E2CBBD9D77C6CBAFFBDC6C4A65
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132698.jpgsave_picture_132698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132698.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132699.jpgsave_picture_132699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132699.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Photo Studio PRO v2.7.1.2163 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132700.jpgsave_picture_132700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132700.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C14ED50EF78D7DF73D42CBE87061239099F52451
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132701.jpgsave_picture_132701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132701.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132702.jpgsave_picture_132702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132702.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Sandboxie plus 1.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132703.jpgsave_picture_132703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132703.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ PictureThis - Plant Identification v3.71 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132704.jpgsave_picture_132704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132704.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:7BC68C491EDFAFCF9EAB007BE2D5EE84CB169BC1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132705.jpgsave_picture_132705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132705.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:E5AF8F1B911085DDFCFB6833D3044C6049A41615
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132706.jpgsave_picture_132706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132706.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132707.jpgsave_picture_132707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132707.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Suffocation - Hymns From The Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132709.jpgsave_picture_132709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132709.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:514F6FAB10A2F06E95BEB81CDB17D62A7A89374B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132710.jpgsave_picture_132710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132710.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132711.jpgsave_picture_132711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132711.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132713.jpgsave_picture_132713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132713.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Sandboxie 5.67.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132715.jpgsave_picture_132715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132715.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132716.jpgsave_picture_132716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132716.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Deacon Street Project - One + Two (2023) 2 x CD, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132717.jpgsave_picture_132717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132717.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132719.jpgsave_picture_132719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132719.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpgsave_picture_132720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpg" />
 </div>
 
 

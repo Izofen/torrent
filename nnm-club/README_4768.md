@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149208.jpgsave_picture_149208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149208.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6036E368921BCA8F725DF965AE8C584A4D26A226
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149209.jpgsave_picture_149209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149209.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149210.jpgsave_picture_149210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149210.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:90CC5BE157083BBBA69683B13CA70F36D762E6A6
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149212.jpgsave_picture_149212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149212.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:848D4B4D9A6D526583C6EA9BE12A7B8248BAAB04
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149213.jpgsave_picture_149213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149213.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:79DCF829D35D31561CA40A88D7ECCC4D58943C7A
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149214.jpgsave_picture_149214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149214.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:949D3B9FC897E367BDDC64AEB01E18D6DED9B01F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149215.jpgsave_picture_149215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149215.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149216.jpgsave_picture_149216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149216.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149217.jpgsave_picture_149217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149217.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3E06C54EA030478A6D03F8DA544D48570D73F4D7
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149218.jpgsave_picture_149218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149218.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:DCDEB921729EA3E36E90DC9D574579528C48A935
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149220.jpgsave_picture_149220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149220.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:D8F71DA4CFC7C6F911451872BEB1DD32389B94F7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149223.jpgsave_picture_149223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149223.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4DD6D23F47E4C79EA4472257F35DFBE064E927ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149225.jpgsave_picture_149225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149225.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ACDSee Ultimate 10.2 Build 878 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149226.jpgsave_picture_149226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149226.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5396726C751909E4639CD1700E4047DFC0A420BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149227.jpgsave_picture_149227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149227.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149228.jpgsave_picture_149228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149228.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149229.jpgsave_picture_149229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149229.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:50252FBB93A901D982B8FB4B852F177B56226696
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149230.jpgsave_picture_149230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149230.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Зайцев.нет Новогодняя вечеринка (2020) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149231.jpgsave_picture_149231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149231.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149232.jpgsave_picture_149232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149232.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:C4973FD644B4FB0CA6D81F4B1CC7820F48683A67
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149234.jpgsave_picture_149234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149234.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:3F99050B320C68CFF389357692CCAD3F9F13A54A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149235.jpgsave_picture_149235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149235.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:2ED3098337F966E24112BE54A5E6366E4EF544BB
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149236.jpgsave_picture_149236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149236.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:52B435C92F71D2A316F3227109B9FEF00AC221D4
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149238.jpgsave_picture_149238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149238.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - 100 Greatest Rap (2020) Explicit [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149239.jpgsave_picture_149239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149239.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Enigma Virtual Box 9.90 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149241.jpgsave_picture_149241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149241.jpg" />
 </div>
 
 

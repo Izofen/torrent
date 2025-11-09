@@ -6,7 +6,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22109.jpgsave_picture_22109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22204.jpgsave_picture_22204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22204.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22293.jpgsave_picture_22293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kun'tewiktuk: A Mi'kmaw Adventure (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22386.jpgsave_picture_22386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22386.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22403.jpgsave_picture_22403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22403.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22406.jpgsave_picture_22406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22406.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22433.jpgsave_picture_22433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22433.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22436.jpgsave_picture_22436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22436.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22453.jpgsave_picture_22453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpgsave_picture_22502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22502.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpgsave_picture_22509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22509.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mars Vice (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpgsave_picture_22536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22536.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpgsave_picture_22617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpgsave_picture_22728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22728.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpgsave_picture_22748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22748.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22848.jpgsave_picture_22848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22848.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22930.jpgsave_picture_22930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22930.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpgsave_picture_22939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22939.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22969.jpgsave_picture_22969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22969.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23039.jpgsave_picture_23039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23039.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23055.jpgsave_picture_23055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23055.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23169.jpgsave_picture_23169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23169.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23272.jpgsave_picture_23272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23272.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23340.jpgsave_picture_23340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23340.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23506.jpgsave_picture_23506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23561.jpgsave_picture_23561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23561.jpg" />
 </div>
 
 

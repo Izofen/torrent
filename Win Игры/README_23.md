@@ -6,7 +6,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6521.jpgsave_picture_6521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6541.jpgsave_picture_6541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6541.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpgsave_picture_6546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6546.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6550.jpgsave_picture_6550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6550.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6559.jpgsave_picture_6559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6559.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6569.jpgsave_picture_6569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6569.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6570.jpgsave_picture_6570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6570.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10837) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6571.jpgsave_picture_6571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6571.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) Repack Let's�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6573.jpgsave_picture_6573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6573.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpgsave_picture_6574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6576.jpgsave_picture_6576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6576.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.42.1-114) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6579.jpgsave_picture_6579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6579.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ inZOI (2025) [Ru/Multi] (20250820.6849.W/dlc) Repack dixen18 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6692.jpgsave_picture_6692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6692.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6699.jpgsave_picture_6699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6699.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6700.jpgsave_picture_6700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6700.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6702.jpgsave_picture_6702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6702.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6704.jpgsave_picture_6704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6704.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.4-d.8679/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6714.jpgsave_picture_6714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6714.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6718.jpgsave_picture_6718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6718.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6719.jpgsave_picture_6719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6719.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6726.jpgsave_picture_6726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6726.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6794.jpgsave_picture_6794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6794.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6815.jpgsave_picture_6815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6815.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6842.jpgsave_picture_6842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6842.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6856.jpgsave_picture_6856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6856.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6861.jpgsave_picture_6861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6861.jpg" />
 </div>
 
 

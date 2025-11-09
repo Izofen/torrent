@@ -6,7 +6,7 @@ Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpgsave_picture_69130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69131.jpgsave_picture_69131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69131.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:54E1287946C9099EDC77DF2A86F5AAE529D7E911
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69132.jpgsave_picture_69132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69132.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Vivaldi 7.2.3621.63 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69133.jpgsave_picture_69133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69133.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69134.jpgsave_picture_69134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69134.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CC9880F60797E43B457D3BE5D87AABE2998A3B36
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69135.jpgsave_picture_69135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69135.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B4D33DCBDB2DA511AFC5EFC4BDB2BB20CDD91ABE
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69136.jpgsave_picture_69136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69136.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DF31DB78D0CF9FC4848F7C2DEB5F7BC561060D23
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69137.jpgsave_picture_69137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69137.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Coastal Calm: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69138.jpgsave_picture_69138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69138.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ W.A.S.P. - The Last Command (1985) [DSD128|24/44,1|tracks|Vinyl-Rip] <Heavy Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69139.jpgsave_picture_69139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69139.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Stryper - Fallen (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69140.jpgsave_picture_69140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69140.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:D4B4184C332B75A87363D905EEADFBEA15723C57
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69141.jpgsave_picture_69141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69141.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:DE4D010BA5DE02E41584AED0CB3F4FD5987485AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69142.jpgsave_picture_69142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69142.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:4CC67B9A25D18F7CB4FE852F798150486CD384F5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69143.jpgsave_picture_69143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69143.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Hot Summer Vibes - Ibiza Session Volume 1 (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69144.jpgsave_picture_69144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69144.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Parabellum - Behold a Pale Horse (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69145.jpgsave_picture_69145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69145.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Tiktaalika - Gods of Pangaea (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69146.jpgsave_picture_69146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69146.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ An Evening With Knives - End of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69147.jpgsave_picture_69147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69147.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Balance Breach - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69148.jpgsave_picture_69148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69148.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Imminence - The Return of The Black (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69149.jpgsave_picture_69149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69149.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Sentenced - The Funeral Album (2005) Reissue, 2016, Century Media [FLAC|24/96|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69150.jpgsave_picture_69150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69150.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Combust - Belly of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69151.jpgsave_picture_69151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69151.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:5B57921F990836FC5B496AB6896B4301B8F965D0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69152.jpgsave_picture_69152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69152.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:C38CBF89E921E157253F45FCDD14B02FEB5988F3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69153.jpgsave_picture_69153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69153.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ MotoGP. Этап 02 из 22. Гран-при Аргентины. Гонка (16.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69154.jpgsave_picture_69154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69154.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69155.jpgsave_picture_69155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69155.jpg" />
 </div>
 
 

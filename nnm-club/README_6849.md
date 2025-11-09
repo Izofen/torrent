@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235350.jpgsave_picture_235350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235350.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shotcut 23.05.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235351.jpgsave_picture_235351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235351.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:665A35DC8412EDADD3295028FDE9029ADD50A85E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235352.jpgsave_picture_235352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235352.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Dropzone 4 Pro v4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235353.jpgsave_picture_235353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235353.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Old Dirty Buzzard - What a Weird Hill to Die On (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235354.jpgsave_picture_235354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235354.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235355.jpgsave_picture_235355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235355.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:2419A7A6743593099A04BF4203A1A7E5EB881A18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235356.jpgsave_picture_235356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235356.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lumnia - Humanity Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235357.jpgsave_picture_235357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235357.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Temple Of Riff - Rock Tone (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235358.jpgsave_picture_235358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235358.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:7D268FC8A7E8CC1A257257E5E3B487F85E145AF3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235359.jpgsave_picture_235359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235359.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:13E85A0CF8E9F7D1C38638F748C4A6D1091DEE72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235360.jpgsave_picture_235360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235360.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Peter Skandera & Dave Maybee - "blue grit & rhyme" (2023) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235361.jpgsave_picture_235361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235361.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ghost Buster Pro 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235362.jpgsave_picture_235362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235362.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:BDF8645D7042D8254B52BB09C63ECBF80203091E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235363.jpgsave_picture_235363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235363.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Lounge Tribute, Vol. 1 (2010) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235364.jpgsave_picture_235364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235364.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2E167AE0FFC5F7EF91E9A6BDCA2B81895963F057
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235365.jpgsave_picture_235365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235365.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:DA521EDF6C7555BD4006E92485F59B7C3D9E31D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235366.jpgsave_picture_235366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235366.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Magic Disk Cleaner 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235367.jpgsave_picture_235367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235367.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:8BC1D35972474E7834A03546BB6EDD0973862463
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235368.jpgsave_picture_235368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235368.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Chet Baker - As Time Goes By (1986) 2020, Solid Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235369.jpgsave_picture_235369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235369.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Balletto di Bronzo - Lemures (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235370.jpgsave_picture_235370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235370.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:1432338789F76C109D670542D3F8F32BE5FFE289
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235371.jpgsave_picture_235371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235371.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Battery Indicator for Mac 2.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235372.jpgsave_picture_235372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235372.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Transcend SSD Scope 4.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235373.jpgsave_picture_235373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235373.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:DD8FB58AD161728DC1B6A4D9FA721AF3477DBC10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235374.jpgsave_picture_235374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235374.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wirecast Pro 15.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235375.jpgsave_picture_235375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235375.jpg" />
 </div>
 
 

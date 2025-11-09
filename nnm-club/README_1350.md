@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35455.jpgsave_picture_35455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7EB41E08CFD54185FBC5DD01931E014946325C7B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35456.jpgsave_picture_35456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35456.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steinberg - HALion 7 7.1.20 STANDALONE, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35457.jpgsave_picture_35457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35457.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35458.jpgsave_picture_35458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35458.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B5AA4EEB3A17A48ECE60B8B0250223B16F8B2F35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35459.jpgsave_picture_35459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35459.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Unfiltered Audio - Silo 1.1.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35460.jpgsave_picture_35460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35460.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ ToneBoosters Plugin Bundle 1.8.9 STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x6
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35461.jpgsave_picture_35461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35461.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3192FA54C4AA8B01AD6F46CF691F47E9A03C4AB0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35462.jpgsave_picture_35462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35462.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3192FA54C4AA8B01AD6F46CF691F47E9A03C4AB0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35463.jpgsave_picture_35463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35463.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E3408B52B01A8CD8BC6A660CAF47C73CE8AFDA25
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35464.jpgsave_picture_35464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35464.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35465.jpgsave_picture_35465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35465.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D9F6D19E3ECA1A9CED592DC1B92A50AE07F3C603
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35466.jpgsave_picture_35466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35466.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35467.jpgsave_picture_35467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:AD9A4F16B19E164BBE3DCDB4DAA5BEE4B119BA98
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35468.jpgsave_picture_35468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35468.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C6C772086ED31C8852007C675C1C4C01221117FD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35469.jpgsave_picture_35469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35469.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35470.jpgsave_picture_35470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35470.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8E7E47508F26EA69C02B0A7C9AC0033992D7366E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35471.jpgsave_picture_35471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35471.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:046EEF708B81100263FEDBC23106460163C67C47
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35472.jpgsave_picture_35472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35472.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5C1FECB15CFF0FA96AE266AF9C4BFEE16640BD28
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35473.jpgsave_picture_35473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35473.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35474.jpgsave_picture_35474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35474.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ NewPipe v0.27.4 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35475.jpgsave_picture_35475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35475.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Scene Rune [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35476.jpgsave_picture_35476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35476.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E9565CDA7337AAE7EC455C75EF3ED1EA3929CC60
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35477.jpgsave_picture_35477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35477.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:8F018D636165465936518A603CA54638EF9139A0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35478.jpgsave_picture_35478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35478.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:644C2CEC03EC439DC53473054FF7D5ED628238E5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35479.jpgsave_picture_35479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35479.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:C66FA023BDD6496A0F080643F7DE9B8267A98BF5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35480.jpgsave_picture_35480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35480.jpg" />
 </div>
 
 

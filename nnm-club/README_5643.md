@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173727.jpgsave_picture_173727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173727.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:729DF4990DE44A681271059DA212CC40EC14FF84
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173728.jpgsave_picture_173728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173728.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:942811E6F0C4FD8396935A71DC2B6FE2E21928AA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173729.jpgsave_picture_173729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173729.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173730.jpgsave_picture_173730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173730.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173731.jpgsave_picture_173731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173731.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - NME House Mix: Progressive Edition (2017) [MP3|320 Kbps] <Electro, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173732.jpgsave_picture_173732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173732.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173733.jpgsave_picture_173733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173733.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173734.jpgsave_picture_173734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173734.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173735.jpgsave_picture_173735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173735.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173736.jpgsave_picture_173736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173736.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cakewalk SONAR Platinum 22.12.0 Build 12 (2016.12) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173737.jpgsave_picture_173737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173737.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173738.jpgsave_picture_173738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173738.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173739.jpgsave_picture_173739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173739.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Vov Sticky Notes 8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173740.jpgsave_picture_173740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173740.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BlackArch Linux 2016.12.20 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173741.jpgsave_picture_173741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173741.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Christmas Wonderland 10 / Рождество. Страна Чудес 10 (2019) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173742.jpgsave_picture_173742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173742.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D352F94D34F0A8CCD28B142BDD1617CA3F8DB088
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173743.jpgsave_picture_173743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173743.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:151F47317889F4E34A0262A6062174E1316169A7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173744.jpgsave_picture_173744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173744.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:52E69675BEEE623D9D2F0820266E5FB711DEC0BC
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173745.jpgsave_picture_173745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173745.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:4AA554B5C834A036EA6AC5679915A9627221F5BC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173746.jpgsave_picture_173746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173746.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ LilyView 1.6 [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173747.jpgsave_picture_173747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173747.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173748.jpgsave_picture_173748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173748.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:69D903E67E9E0CAA347ECCD24E94672C5B177886
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173749.jpgsave_picture_173749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173749.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.31 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173750.jpgsave_picture_173750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173750.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:CE72D3C7491CA4015E6B9BBEE0DC60363E9160D9
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173751.jpgsave_picture_173751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173751.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:295DA2BF6F7EAF24EB5DF8AB2B4D2B5998D1A437
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173752.jpgsave_picture_173752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173752.jpg" />
 </div>
 
 

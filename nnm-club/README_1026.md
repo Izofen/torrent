@@ -6,7 +6,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27026.jpgsave_picture_27026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27026.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:37AF03555550D12C5B6CDCF12A8F507AC09C96D7
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27027.jpgsave_picture_27027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27027.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:82654DF94F6DE175DB549C9D90F790235E1DF656
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27028.jpgsave_picture_27028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27028.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Wise Care 365 Pro 7.2.2.695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27029.jpgsave_picture_27029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27029.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27030.jpgsave_picture_27030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27030.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27031.jpgsave_picture_27031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27031.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27032.jpgsave_picture_27032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27032.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27033.jpgsave_picture_27033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27033.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2A8170ACBBD3FA77706A6B470AD8FE357A852A76
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27034.jpgsave_picture_27034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27034.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Figment 2: Creed Valley v1.0.56 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27035.jpgsave_picture_27035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27035.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27036.jpgsave_picture_27036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27036.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AFCC459D7A419FF44942B3C10FAEC246AF737CEF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27037.jpgsave_picture_27037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27037.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CCleaner 6.33.11465 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27038.jpgsave_picture_27038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27038.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27039.jpgsave_picture_27039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27039.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27040.jpgsave_picture_27040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27040.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27041.jpgsave_picture_27041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27041.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27042.jpgsave_picture_27042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27042.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27043.jpgsave_picture_27043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27043.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ LazyMedia Deluxe v3.359 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27044.jpgsave_picture_27044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27044.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27045.jpgsave_picture_27045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27045.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:914571A04F9A236FDFB70A5F6BE20A0E1BEAEE09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27046.jpgsave_picture_27046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27046.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A4F9A42545E053EF3EA193EE60B017888453D26D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27047.jpgsave_picture_27047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27047.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:F58BB2638F9E5951AAA5F6F8CE0A683E7402E1D8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27048.jpgsave_picture_27048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27048.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27049.jpgsave_picture_27049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27049.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Topaz Gigapixel AI 8.2.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27050.jpgsave_picture_27050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27050.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:BBA220276EB9639E7DEAC6BF7BF99931F47DEB23
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27051.jpgsave_picture_27051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27051.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39954.jpgsave_picture_39954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39954.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A8853746E5BF0FD8D5FD12142A19A91C85BF7BCE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39955.jpgsave_picture_39955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39955.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BAE097D5AAC5DAE7BD0E827CE8085EDDF3FE3CBC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39956.jpgsave_picture_39956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39956.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:27E414FB0190B7E4BBA2B8CC56D6CAC08B178C3D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39957.jpgsave_picture_39957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39957.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DB41E8B3D3EED611086A7E6D20A72F84570E38E1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39958.jpgsave_picture_39958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39958.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:428B314EA9A4D594EE71F71A3015E77EA6D5E54E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39959.jpgsave_picture_39959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39959.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ The Blessed Madonna - Godspeed (2024) [MP3|320 Kbps] <House, Dance-pop, Disco, T
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39960.jpgsave_picture_39960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39960.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:C182D24201A2FC38024D98FECE872A0C063F8BAB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39961.jpgsave_picture_39961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39961.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ u-he - Twangstorm 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39962.jpgsave_picture_39962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39962.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ The Blessed Madonna - Godspeed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <House
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39963.jpgsave_picture_39963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39963.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:4B690272983418E003D3DB915E7A4E622CBB78FB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39964.jpgsave_picture_39964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39964.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Little Richard - The Best Songs of Little Richard (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39965.jpgsave_picture_39965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39965.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Nat King Cole - The Complete Capitol Recordings Of The Nat King Cole Trio (1942 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39966.jpgsave_picture_39966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39966.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F25374D742862AB69F9FE46447A784FF99673BCC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39967.jpgsave_picture_39967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39967.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39968.jpgsave_picture_39968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39968.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:E544644CE28A95BAFC029A4D0D6554767F45EC71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39969.jpgsave_picture_39969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39969.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ u-he - MFM2 2.5.1 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39970.jpgsave_picture_39970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39970.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ NIUBI Partition Editor 10.0.0 Technician Edition RePack (& Portable) by elchupac
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39971.jpgsave_picture_39971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39971.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:0CBC67EA263BA5369BEA3D8EE5A0EE8B0CBAB6D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39972.jpgsave_picture_39972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39972.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:B9DD1C680EF275C7B72DE5AA663C5A33911B1978
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39973.jpgsave_picture_39973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39973.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:10FAFBA044C2D4D62FDFCF8E897F4328A2B8C470
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39974.jpgsave_picture_39974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39974.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39975.jpgsave_picture_39975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39975.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:E4D40E16D6498A4D79E1105B2DBFC9FD66DCF90E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39976.jpgsave_picture_39976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39976.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B18ACFDACCA96E49F822464864099A1743468838
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39977.jpgsave_picture_39977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39977.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:3F24C185EFFB5128A0D864C66767F5D7425162C8
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39978.jpgsave_picture_39978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39978.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:6684F3F1E8D9D05BD0768F91546F65C45898AFFB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39979.jpgsave_picture_39979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39979.jpg" />
 </div>
 
 

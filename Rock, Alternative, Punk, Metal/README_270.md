@@ -6,7 +6,7 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166365.jpgsave_picture_166365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166365.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166382.jpgsave_picture_166382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166382.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Garden Of Delight - Darkest Hour (2007) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166393.jpgsave_picture_166393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166393.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fleshworks - Engine of Perdition (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166415.jpgsave_picture_166415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Garden Of Delight - Lutherion I (2005) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166418.jpgsave_picture_166418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166418.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ A.C.T - Silence (2006) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166421.jpgsave_picture_166421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166421.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Asinhell - Impii Hora (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166427.jpgsave_picture_166427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166427.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ A.C.T - Last Epic (2003) Special Edition [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166430.jpgsave_picture_166430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166430.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Garden Of Delight - Lutherion III (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166448.jpgsave_picture_166448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166448.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Autopsy - Ashes, Organs, Blood and Crypts (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166454.jpgsave_picture_166454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166454.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Baring Teeth - The Path Narrows (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166465.jpgsave_picture_166465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166465.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Garden Of Delight - Lutherion II (2006) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166480.jpgsave_picture_166480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166480.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ A.C.T - Today's Report (1999) Special Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166492.jpgsave_picture_166492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166492.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:9ED3DB5EB6B40E4D2E0EB039974355A44439C0EF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166602.jpgsave_picture_166602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166602.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:C49E8769F0B8AEC9C5D497468B9B5E417F9B0702
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166618.jpgsave_picture_166618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166618.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ V8Wankers - Hell On Wheels (2007) [FLAC|Lossless|image + .cue] <Rock 'n' Roll, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166627.jpgsave_picture_166627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166627.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A3D6594335E058BCA29CA65360CD562325D7C71C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166694.jpgsave_picture_166694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166694.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166695.jpgsave_picture_166695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166695.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166696.jpgsave_picture_166696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166696.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166723.jpgsave_picture_166723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166723.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D1D39D81CF01B1D350563636C9E98D462E1003D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166766.jpgsave_picture_166766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166766.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Porcupine Tree - Closure / Continuation (2022) 2xCD, Deluxe Edition, Limited Edi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166771.jpgsave_picture_166771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166771.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Soilwork - A Whisp of the Atlantic (2021) EP [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166799.jpgsave_picture_166799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166799.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166812.jpgsave_picture_166812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166812.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Buffy 85 - Машина смерти (2022) [MP3|320 Kbps] <Hard Rock, Punk Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166824.jpgsave_picture_166824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166824.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:F8F96A265D5938940A8BFE7B6758933C580E1A7A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166836.jpgsave_picture_166836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166836.jpg" />
 </div>
 
 

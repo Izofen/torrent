@@ -6,7 +6,7 @@ Slayer - 2 альбома (1986 - 1988) Japanese Edition [FLAC|Lossless]<Thrash 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88640.jpgsave_picture_88640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88640.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Slayer - известная американская группа, играющ�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88644.jpgsave_picture_88644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88644.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:67394D969509746C76A817749A2C2F873D2773F1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88652.jpgsave_picture_88652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88652.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:021B6D2C7698CDCEE91C94A8D88C1E2115C63CF4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88653.jpgsave_picture_88653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88653.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:FC99AF0987B697C35F9E8FDA53D1A4F61F89F176
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88654.jpgsave_picture_88654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88654.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:CC97C58F13DCB3D30E9BE64FBB9D71E838C1315F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88655.jpgsave_picture_88655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88655.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:CC97C58F13DCB3D30E9BE64FBB9D71E838C1315F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88656.jpgsave_picture_88656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88656.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:CC97C58F13DCB3D30E9BE64FBB9D71E838C1315F
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88657.jpgsave_picture_88657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88657.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:D6C1F2A76AD028DB35BCD0A38F7CF9B9DA0F55A3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88660.jpgsave_picture_88660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88660.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:1F67E02FBDFC71CFFF1230825CEE58B8814473AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88661.jpgsave_picture_88661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88661.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88662.jpgsave_picture_88662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88662.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Busou Shinki: Moon Angel / Шинки - боевой Лунный Ангел [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88664.jpgsave_picture_88664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88664.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:1B06798FBEDF4B665F4BDC0A5136A5112166A129
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88665.jpgsave_picture_88665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88665.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:B44AD95427DE7F1FD78086D307768611B9957A70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88666.jpgsave_picture_88666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88666.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B44AD95427DE7F1FD78086D307768611B9957A70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88667.jpgsave_picture_88667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88667.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B442DD8687E286B28B33C22E71F6D7A668B297F6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88669.jpgsave_picture_88669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88669.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:07F4CEFB556871BE832F6E84D4D33E1396AA00D2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88670.jpgsave_picture_88670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88670.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:48458476016BBF05552E1E47180690A7BE493019
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88673.jpgsave_picture_88673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88673.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:7514B16197BD887F3289A775A538CFABAB0C7799
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88674.jpgsave_picture_88674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88674.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7514B16197BD887F3289A775A538CFABAB0C7799
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88676.jpgsave_picture_88676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88676.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C774D6E3B7629AA67F4096C1042F76EB5542CA88
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88678.jpgsave_picture_88678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88678.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88680.jpgsave_picture_88680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88680.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88681.jpgsave_picture_88681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88681.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88683.jpgsave_picture_88683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88683.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88684.jpgsave_picture_88684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88684.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88685.jpgsave_picture_88685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88685.jpg" />
 </div>
 
 

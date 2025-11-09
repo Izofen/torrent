@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245737.jpgsave_picture_245737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245737.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245738.jpgsave_picture_245738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ aText 2.40.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245739.jpgsave_picture_245739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245739.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D7F4091D38DB16308F3E5B0593015AA549656AEF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245740.jpgsave_picture_245740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245740.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245741.jpgsave_picture_245741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245741.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D3199C6445FEB41218A43F49D35AB03CC10F76F2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245742.jpgsave_picture_245742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245742.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Defleshed - Abrah Kadavrah / Ma Belle Scalpelle (1996 / 1994) Compilation, Relea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245743.jpgsave_picture_245743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245743.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:66D6FD1AA2A1B8E7BA49CCB69C2F73B528EF1EFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245744.jpgsave_picture_245744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245744.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Skype 8.95.0.408 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245745.jpgsave_picture_245745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245745.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Piano Moods Collection, Vol. 2 (2020) [AAC|~264 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245746.jpgsave_picture_245746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245746.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:2B52045DBD52DE23C9AD7B8B31E0819BDFA6E5F4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245747.jpgsave_picture_245747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245747.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:02200CE5E47682E89C92474EB1CAC1CEEEA29972
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245748.jpgsave_picture_245748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245748.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Ravenia - Beyond The Walls Of Death (2016) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245749.jpgsave_picture_245749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245749.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ ImageRanger Pro Edition 1.9.1.1841 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245750.jpgsave_picture_245750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245750.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:02625BC807D9F2D2779A2DFE72B8EE5DA3D172FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245751.jpgsave_picture_245751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245751.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Elena Maque - Feel Again (2021) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245752.jpgsave_picture_245752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245752.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:CE5589A0F6B3EE9102963FA3A3112CE955528396
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245753.jpgsave_picture_245753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245753.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ IconFly 3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245754.jpgsave_picture_245754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245754.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Internet Download Manager 6.41 Build 8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245755.jpgsave_picture_245755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245755.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:BC1D09BC9978EFE628DE92E448F488580C7E40A8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245756.jpgsave_picture_245756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245756.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - The Rock Collection: Rock Heroes (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245757.jpgsave_picture_245757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245757.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Corporate Packs for Pages 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245758.jpgsave_picture_245758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245758.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Visceral Evisceration - 2 Albums (1994-2019) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245759.jpgsave_picture_245759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245759.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sensei 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245760.jpgsave_picture_245760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245760.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245761.jpgsave_picture_245761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245761.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 4 (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245762.jpgsave_picture_245762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245762.jpg" />
 </div>
 
 

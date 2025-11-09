@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149522.jpgsave_picture_149522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149522.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DownShift - One in the Chamber (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149523.jpgsave_picture_149523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149523.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DownShift - One in the Chamber (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149524.jpgsave_picture_149524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149524.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DownShift - One in the Chamber (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149525.jpgsave_picture_149525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149525.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ David B McLaughlin - The Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149526.jpgsave_picture_149526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149526.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ David B McLaughlin - The Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149527.jpgsave_picture_149527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149527.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Winter Card - это анимированная рождественская о�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149528.jpgsave_picture_149528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149528.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Clifford Jordan - Soul Fountain (1966) 2008, Wounded Bird Records [FLAC|Lossless
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149529.jpgsave_picture_149529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149529.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Clifford Jordan - Soul Fountain (1966) 2008, Wounded Bird Records [FLAC|Lossless
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149530.jpgsave_picture_149530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149530.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Clifford Jordan - Soul Fountain (1966) 2008, Wounded Bird Records [FLAC|Lossless
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149531.jpgsave_picture_149531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149531.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Volume Ace v3.4.5 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149532.jpgsave_picture_149532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149532.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149533.jpgsave_picture_149533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149533.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149534.jpgsave_picture_149534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149534.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149535.jpgsave_picture_149535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149535.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149536.jpgsave_picture_149536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149536.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149537.jpgsave_picture_149537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149537.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Volume Ace - именно то приложение по настройке зв
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149539.jpgsave_picture_149539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149539.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ball & Chain - The Appalachian Hammer (2012) [MP3|320 кб/с]<Hard Rock / South
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149540.jpgsave_picture_149540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149540.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Ball & Chain - The Appalachian Hammer (2012) [MP3|320 кб/с]<Hard Rock / South
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149541.jpgsave_picture_149541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149541.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Thomas Heppell - Thomas Heppell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149542.jpgsave_picture_149542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149542.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Thomas Heppell - Thomas Heppell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149543.jpgsave_picture_149543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149543.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Sexy Women Wallpapers (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149544.jpgsave_picture_149544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149544.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149546.jpgsave_picture_149546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149546.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149547.jpgsave_picture_149547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149547.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Music News vol.59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149549.jpgsave_picture_149549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149549.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Zeno Jones - Disillusion Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Electrified
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149551.jpgsave_picture_149551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149551.jpg" />
 </div>
 
 

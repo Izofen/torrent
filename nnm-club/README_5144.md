@@ -6,7 +6,7 @@ Jeremy Pelt - Insight (2002) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160480.jpgsave_picture_160480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ QLab 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160481.jpgsave_picture_160481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160481.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Need for Speed: Most Wanted HQ (2005-2020) [Ru/En] (1.3/1.19.6) Repack/Mod Vasy@
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160482.jpgsave_picture_160482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160482.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.31j/dlc) Repack Other s [Anniversary Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160483.jpgsave_picture_160483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160483.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A7302D94F6F5CF84614F208F84C0D7B6005CF70B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160484.jpgsave_picture_160484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160484.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2058.0 (26.10.2023) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160485.jpgsave_picture_160485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160485.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7F4FAB004BEA3E90E41C3630879E9322CF5C180C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160486.jpgsave_picture_160486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160486.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160487.jpgsave_picture_160487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160487.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Frederic Chopin - Chopin Complete Edition (1999) 17CD [APE|Lossless|image + .cue
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160488.jpgsave_picture_160488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160488.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160489.jpgsave_picture_160489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160489.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160490.jpgsave_picture_160490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160490.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160491.jpgsave_picture_160491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160491.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160493.jpgsave_picture_160493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160493.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:F57BBD9F5AD8CB18F46162A583B16778750A4626
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160494.jpgsave_picture_160494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160494.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:CAD3EEE4F7D3F9542438AB2E2C079C551F36D0E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160495.jpgsave_picture_160495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160495.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:6A7ECC34D02827B2958DB648C58E084F626BB075
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160496.jpgsave_picture_160496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160496.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:DB589C99C1E80BD59E30D2EEBE8BE1AC779B1A35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160497.jpgsave_picture_160497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160497.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8E79CA4620F1391188DD91B4A4A239AD0FD51C75
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160498.jpgsave_picture_160498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160498.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:50EF5E4DB8D9419EF87FB36D8FB3A313EAF0D02A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160499.jpgsave_picture_160499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160499.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ DefenderKiller 1.4/11.0.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160500.jpgsave_picture_160500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160500.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160501.jpgsave_picture_160501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160501.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:EF807A4168E2DD042A8544B9B84162210CCE37D2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160502.jpgsave_picture_160502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160502.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:5A89781616028C2C5D5D0816AF8D8955B8200C63
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160503.jpgsave_picture_160503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160503.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:CE5AB26D29BC998FD90A7C2CDF29CC3041079782
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160504.jpgsave_picture_160504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160504.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:43D91E72FD777ADCCBAD507F6D7CDF1874C2A748
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160505.jpgsave_picture_160505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160505.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AOMEI Backupper Technician Plus 7.3.3 (06.11.2023) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160506.jpgsave_picture_160506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160506.jpg" />
 </div>
 
 

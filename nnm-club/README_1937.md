@@ -6,7 +6,7 @@ XviD4PSP 8.1.84 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50719.jpgsave_picture_50719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50719.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpgsave_picture_50720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50720.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StartAllBack 3.7.11 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50721.jpgsave_picture_50721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50721.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (06.2024) [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50722.jpgsave_picture_50722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50722.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack di
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50723.jpgsave_picture_50723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50723.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack di
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50724.jpgsave_picture_50724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50724.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack dixen1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50725.jpgsave_picture_50725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50725.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50726.jpgsave_picture_50726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50726.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:556BA42F7FB64A6DECB65FC97C82C56215F6C8F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50727.jpgsave_picture_50727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50727.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50728.jpgsave_picture_50728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50728.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Brock Van Wey (bvdub, East Of Oceans, Earth House Hold) - Discography 69 Release
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50729.jpgsave_picture_50729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50729.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50730.jpgsave_picture_50730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50730.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:35B49CFF28B4B6BA1EE6D48405328D60D2B92BCF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50731.jpgsave_picture_50731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50731.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9A844FA0BB47F5AE21E75A7A5F7DD6DF6B48EE3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50732.jpgsave_picture_50732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50732.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B7F68957C5BD0DAB44ABF427BA5849CBE3D9E2E6
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50733.jpgsave_picture_50733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50733.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:41DE600708373D3058674199D4952C3A885D9661
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50734.jpgsave_picture_50734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50734.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:2E24148CFA74510FED02619192444D0F636698DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50735.jpgsave_picture_50735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50735.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E1B126E481723F8DB32C900F475AAAE3782120DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50736.jpgsave_picture_50736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50736.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:DADA6152A4059B93C8FB00ABEF61061B9BA9AEEB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50737.jpgsave_picture_50737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50737.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:9DB8C053A202627087AE289EBF11D45152435235
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50738.jpgsave_picture_50738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50738.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:C03B17F13870971D052415F20B03A9E6819DB99A
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50739.jpgsave_picture_50739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50739.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:68ED0DB4102CF854185A21B4C9EBAFC53ED50283
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50740.jpgsave_picture_50740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50740.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:0819C160F48B5ED8E6E27E1DBCC435CCA80E24FA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50741.jpgsave_picture_50741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50741.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Atlantis Word Processor 4.4.0.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50742.jpgsave_picture_50742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50742.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Steinberg - SpectraLayers Pro 11 11.0.10 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50743.jpgsave_picture_50743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50743.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Music News vol.396 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50744.jpgsave_picture_50744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50744.jpg" />
 </div>
 
 

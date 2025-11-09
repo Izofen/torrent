@@ -6,7 +6,7 @@ Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpgsave_picture_107383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Roaring Halloween (Electro Swing 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107384.jpgsave_picture_107384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107384.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:293FE2D19C3C4AE128602B4367DCD7F89701BBF7
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107385.jpgsave_picture_107385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107385.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1968FF542963E74B4D0B53E059288B0ABFB38391
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107386.jpgsave_picture_107386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107386.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Fabulous Thunderbirds - Struck Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107387.jpgsave_picture_107387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107387.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:276909FB902F226A899A80E7853B5BC3A8BE6DE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107388.jpgsave_picture_107388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107388.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:AB6D8DC894EFFC2C3DEFEC3F40310057AC998EA5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107389.jpgsave_picture_107389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107389.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Peter Hammill - Been Alone So Long (2024) The Naked Songs - Tour, Bremen 1985 [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpgsave_picture_107390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - DJ Hits Vol. 112 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107391.jpgsave_picture_107391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107391.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nothing More - Carnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107392.jpgsave_picture_107392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107392.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Deus Vult - Wege Dieser Welt (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107393.jpgsave_picture_107393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107393.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Death Bed Confessions Collective - DBC, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107394.jpgsave_picture_107394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107394.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dolly Baker - All Waves (1993) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107395.jpgsave_picture_107395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107395.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sammy Kershaw - Cross Road Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107396.jpgsave_picture_107396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107396.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|image + .cue] <Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107397.jpgsave_picture_107397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107397.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Orquesta del Desierto - Dos (2003) Remastered, 2023, Heavy Psych Sounds [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107398.jpgsave_picture_107398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107398.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:508AF64EAB17147B2DCD3248B5DCE66F57FE87D5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107399.jpgsave_picture_107399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107399.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D548EA0F6E0B3CC9E65734886CBF011E5C5765FF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107400.jpgsave_picture_107400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107400.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MusicBrainz Picard 2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107401.jpgsave_picture_107401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107401.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E0761194E1285565F3A5AAFDC1ACE43660D3DA2B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107402.jpgsave_picture_107402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107402.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:4418880ED29F1D8369211C70F8CB7583E72B8D4F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107403.jpgsave_picture_107403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107403.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:A7F80C326D73A22574800FB3DAD10089B3C5E105
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107404.jpgsave_picture_107404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107404.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Quique Gomez and Little Charlie Baty featuring Kid Andersen and Alex Pettersen -
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107405.jpgsave_picture_107405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107405.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Borne of Ash - From the Dark, They Came (2024) [MP3|320 Kbps] <Atmospheric Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107406.jpgsave_picture_107406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107406.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:300AFFC14A610B428666F456F54D8C63C6656974
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107407.jpgsave_picture_107407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107407.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:6635657A32CF0268736A52F77449319951C4A458
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107408.jpgsave_picture_107408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107408.jpg" />
 </div>
 
 

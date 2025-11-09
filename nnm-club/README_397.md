@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10496.jpgsave_picture_10496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10496.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PictureThis - Plant Identification v5.8.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10497.jpgsave_picture_10497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10497.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA1867574FAD20B9BB48BBAC958B79AD42793161
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10498.jpgsave_picture_10498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10498.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:987234430AAD750F954D9D3BA195FCFCB59464F1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10499.jpgsave_picture_10499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10499.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Process Lasso Pro 16.0.0.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10500.jpgsave_picture_10500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10500.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6804F3948BF309D39ED27A2197AB649109E8A464
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10501.jpgsave_picture_10501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10501.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:17DCDDC7459FBA229625CD15C10D9D61EBB0B414
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10502.jpgsave_picture_10502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10502.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10503.jpgsave_picture_10503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10503.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Irix HDR Pro 2.3.47 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10504.jpgsave_picture_10504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10504.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BB942738CDC03C874FF2677A59C828F26B29C6FC
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10505.jpgsave_picture_10505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10505.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10506.jpgsave_picture_10506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10506.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10507.jpgsave_picture_10507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10507.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7F063495E649A31D41A6E56202AD8976A68CFECB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10508.jpgsave_picture_10508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10508.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ RustDesk 1.4.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10509.jpgsave_picture_10509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10509.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:606BD57382FA45308D19EDB0E759A2AC48421861
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10510.jpgsave_picture_10510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10510.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:606BD57382FA45308D19EDB0E759A2AC48421861
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10511.jpgsave_picture_10511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10511.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:DC2DBFD3CD6F1B03967371F186F2CE688952EFFA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10512.jpgsave_picture_10512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10512.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10513.jpgsave_picture_10513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10513.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ CyberLink PowerDVD Ultra 24.0.0716.62 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10514.jpgsave_picture_10514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10514.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:3E2DA7E0EEFFD274331AC0BD0A5CAE0D4A2005FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10515.jpgsave_picture_10515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10515.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ GPU-Z 2.67.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10516.jpgsave_picture_10516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10516.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ iTubeGo YouTube Downloader 10.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10517.jpgsave_picture_10517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10517.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10518.jpgsave_picture_10518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10518.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Wise Registry Cleaner Pro 11.2.3.728 RePack (& portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpgsave_picture_10519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10520.jpgsave_picture_10520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10520.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ FolderView 2.2 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10521.jpgsave_picture_10521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10521.jpg" />
 </div>
 
 

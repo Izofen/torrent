@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2065.jpgsave_picture_2065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2065.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:096AC658CCBA5B4F2ED078E6D5EF79636C838BA5
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2066.jpgsave_picture_2066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2066.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B77A9BE86B99C7F1E7660753FD30E482626AF4A5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2067.jpgsave_picture_2067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2067.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Opera One 122.0.5643.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2068.jpgsave_picture_2068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2068.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4CA8360DE63950B26032D114640DFB675CB245A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2069.jpgsave_picture_2069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2069.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A21293F722B4E965FD9295B08C8350DD2B92C38A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2070.jpgsave_picture_2070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2070.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2071.jpgsave_picture_2071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2071.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:B9BAAC16F181DFE70AF1B54261ECB8891DE04EF0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2072.jpgsave_picture_2072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2072.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:62D78331C8C3E4843E55DCCC060D79B7AF028B06
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2073.jpgsave_picture_2073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2073.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5BF30C2382E923C2BA426B7F97E91888B880C967
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2074.jpgsave_picture_2074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2074.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:E7B7960E916CFAB9A838D9D4937EE69A5D50F14F
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2075.jpgsave_picture_2075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2075.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:795D9A1753D13112EE705770734D959778ACD9D2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2076.jpgsave_picture_2076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2076.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpgsave_picture_2077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2077.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2078.jpgsave_picture_2078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2078.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7E843E2C54FC28B521DC27B32ECED6300239A2E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2079.jpgsave_picture_2079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2079.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A1ABBD89BFE033DFCA608E3F5DB5FC1EC1D5DD8B
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2080.jpgsave_picture_2080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2080.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpgsave_picture_2081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2081.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2082.jpgsave_picture_2082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2082.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2083.jpgsave_picture_2083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2083.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3DE6E0CE0E954BDFEBB961DAC5DA4B3631C214F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2084.jpgsave_picture_2084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2084.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A5F5763128AB1392996268175574E48146F6C1E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2085.jpgsave_picture_2085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2085.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ PotPlayer 250909 (1.7.22619) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2086.jpgsave_picture_2086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2086.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2087.jpgsave_picture_2087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2087.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2088.jpgsave_picture_2088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2088.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2089.jpgsave_picture_2089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2089.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MiniTool Partition Wizard Technician 13.0 RePack (& Portable) by elchupacabra [M
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2090.jpgsave_picture_2090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2090.jpg" />
 </div>
 
 

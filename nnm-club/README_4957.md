@@ -6,7 +6,7 @@ Ocenaudio 3.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154915.jpgsave_picture_154915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:279B323DFE10D66828D95639B943A89129388843
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154916.jpgsave_picture_154916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154916.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:04E56BAC00FB8CFB7F3022FB1284DC6343A1F877
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154917.jpgsave_picture_154917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154917.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Iris.Fall (2018) [Ru/Multi] (1.0.00024) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154918.jpgsave_picture_154918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154918.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154919.jpgsave_picture_154919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154919.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154920.jpgsave_picture_154920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154920.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154922.jpgsave_picture_154922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154922.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:84F06FAA434E361E2BBC8E07A04284546974F595
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154924.jpgsave_picture_154924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154924.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B7EC1E7D7A84F628F120FD584BA2869334186FCE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154925.jpgsave_picture_154925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154925.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154926.jpgsave_picture_154926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154926.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Понемногу отовсюду by Yuridar #E-F (1956-2022) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154927.jpgsave_picture_154927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154927.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ AusLogics BoostSpeed 10.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154928.jpgsave_picture_154928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154928.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154929.jpgsave_picture_154929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154929.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:18F228EC72606A17A1162DA5C6F16B2F26EFE5AC
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154930.jpgsave_picture_154930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154930.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7F58427DD6FDA6C236308516B8D8F2A26C997A37
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154931.jpgsave_picture_154931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154931.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154932.jpgsave_picture_154932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154932.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154933.jpgsave_picture_154933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154933.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:26A192467CDADB620BEF5E60E31E30798932F262
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154934.jpgsave_picture_154934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154934.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D9E12F6B3A47C3FC76073CC6D27C2B091B6A4AEA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154935.jpgsave_picture_154935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154935.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154936.jpgsave_picture_154936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154936.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:ADD16079202A7B42F6506FF0B4F8A9BEDC84795B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154937.jpgsave_picture_154937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154937.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F0ECA0D7EA65775C8EAA5B02ECFEA6985354E16F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154938.jpgsave_picture_154938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154938.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:EB71F605E5C49C948B708AE74F7A128D65F8DE16
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154939.jpgsave_picture_154939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154939.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154940.jpgsave_picture_154940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Scorpions - Best Of Scorpions (1979) Remastered, 2017, Audio Fidelity [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154941.jpgsave_picture_154941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154941.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:076C50B4C1B1B0A60BB6368A7C916B82008B5A62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154942.jpgsave_picture_154942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154942.jpg" />
 </div>
 
 

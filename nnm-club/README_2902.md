@@ -6,7 +6,7 @@ Organic Loops - Acoustic Blues Guitar (WAV,REX2,SAMPLER PATCHES)[английс�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85359.jpgsave_picture_85359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85359.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ SAMPLER PATCHES(EXS24,HALION,KONTAKT,NNXT,SFZ)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85360.jpgsave_picture_85360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85360.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D1B7C6202645D32319E82C24048C8C37A7DFE7B8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85364.jpgsave_picture_85364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85364.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:929E48A8F13AADB3BB98898C1B3F45DECA174426
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85365.jpgsave_picture_85365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:929E48A8F13AADB3BB98898C1B3F45DECA174426
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85366.jpgsave_picture_85366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85366.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D07ABB4477F1EA56FBBD625A64E0BCC7CDA8630B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85368.jpgsave_picture_85368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85368.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:96AFE058E9FE98A3C649703AB3484A65622B5030
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85369.jpgsave_picture_85369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85369.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:96AFE058E9FE98A3C649703AB3484A65622B5030
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85372.jpgsave_picture_85372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85372.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85375.jpgsave_picture_85375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85375.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85376.jpgsave_picture_85376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85376.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85377.jpgsave_picture_85377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85377.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:56410A0160210CFB9A2378BF257EB53CEDD52FB5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85379.jpgsave_picture_85379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85379.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A3370073BB4BE72173E7DBC669BAE4CA0F8C6733
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85381.jpgsave_picture_85381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85381.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A3370073BB4BE72173E7DBC669BAE4CA0F8C6733
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85383.jpgsave_picture_85383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85383.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Vertigo Sound - VSC-2 v1.1.1 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85392.jpgsave_picture_85392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85392.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VSC-2 - это первая программная эмуляция компре
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85393.jpgsave_picture_85393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85393.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85394.jpgsave_picture_85394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85394.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85395.jpgsave_picture_85395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85395.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85396.jpgsave_picture_85396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85396.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:0608E5CF0B9D52BD38C949F67C5D5F3E3BA0CCED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85397.jpgsave_picture_85397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85397.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0608E5CF0B9D52BD38C949F67C5D5F3E3BA0CCED
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85398.jpgsave_picture_85398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85398.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0608E5CF0B9D52BD38C949F67C5D5F3E3BA0CCED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85399.jpgsave_picture_85399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85399.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0608E5CF0B9D52BD38C949F67C5D5F3E3BA0CCED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85400.jpgsave_picture_85400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85400.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:0608E5CF0B9D52BD38C949F67C5D5F3E3BA0CCED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85401.jpgsave_picture_85401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85401.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4F914B90AB7B37B7245FAF8F7DEC2B343ED48EBB
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85403.jpgsave_picture_85403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85403.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:2F2E546BC8637C7FA7F64F1B034A4E45167F69D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85404.jpgsave_picture_85404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85404.jpg" />
 </div>
 
 

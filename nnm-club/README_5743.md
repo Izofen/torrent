@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177648.jpgsave_picture_177648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177648.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FiLMiC Pro 6.20.5 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177649.jpgsave_picture_177649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177649.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Partition Assistant Standard Edition 9.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177651.jpgsave_picture_177651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177651.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E5060B0171CF1108F8B53BCFBEDE4D461A915B6C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177652.jpgsave_picture_177652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177652.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bone Pixie - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177654.jpgsave_picture_177654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177654.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FB1523DC57E0656DA768F6BED7171435A2861328
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177656.jpgsave_picture_177656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177656.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:3A2309EC1A10311088D73306DB00BBA655B54B3D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177659.jpgsave_picture_177659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177659.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Gothminister - Happiness In Darkness (2008) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177661.jpgsave_picture_177661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177661.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177665.jpgsave_picture_177665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177665.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:041DCBC30FFE7C74F4C959369A95CF206AB36B5C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177667.jpgsave_picture_177667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177667.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A2341228E0C0A323547E47837E796523BD664E70
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177669.jpgsave_picture_177669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177669.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Enid - An Alternative History Volume One (1994) Remaster, Compilation, 2023,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177671.jpgsave_picture_177671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177671.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:FC433673E61A872E82B56A12EC74478733440C55
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177673.jpgsave_picture_177673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177673.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dusk - Wheels of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177675.jpgsave_picture_177675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177675.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177677.jpgsave_picture_177677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177677.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D5692CCBBF923C5A4A78EFCAE7C759A0D7E33D26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177679.jpgsave_picture_177679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177679.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ SolNegre - The Spiral Labyrinth (2023) [FLAC|Lossless|WEB-DL|tracks] <doom death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177681.jpgsave_picture_177681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177681.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Keening - Little Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177684.jpgsave_picture_177684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177684.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9709E80C32792C5075FEE3440CE3628950436539
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177685.jpgsave_picture_177685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177685.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:E62884F7B7DCDAE488D0B80A8E0BA86E9320BA1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177688.jpgsave_picture_177688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177688.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ As The Structure Fails - In Vain (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177689.jpgsave_picture_177689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177689.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:DC5838C2BD2379D0869DF5F048A4298272964EAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177691.jpgsave_picture_177691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177691.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Primal Fear - Apocalypse (2018) Bonus Track Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177693.jpgsave_picture_177693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177693.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:83C9DE479D01BE8333E137BED4786AFC5E8BA238
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177695.jpgsave_picture_177695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177695.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ NewPipe 0.24.1 Mod by ItzSetnex [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177696.jpgsave_picture_177696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177696.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Kadabra - Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <psychedelic rock, stoner r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177699.jpgsave_picture_177699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177699.jpg" />
 </div>
 
 

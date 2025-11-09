@@ -6,7 +6,7 @@ Vanir - Sagas (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking, Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191076.jpgsave_picture_191076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191076.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lari Basilio - Your Love (2022) [FLAC|Lossless|image + .cue] <Instrumental Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191078.jpgsave_picture_191078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191078.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A559F2D37E473D887887A49DE2248B48E9378714
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191081.jpgsave_picture_191081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191081.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1D1E8E4650D6CC0D5657F5852B1DC83E5DE237A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191087.jpgsave_picture_191087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191087.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Headway - Headway (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191095.jpgsave_picture_191095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191095.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Perfect Plan - Brace For Impact (2022) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191098.jpgsave_picture_191098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191098.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191101.jpgsave_picture_191101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191101.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Jimi Jamison - Rock Hard (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191108.jpgsave_picture_191108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191108.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191110.jpgsave_picture_191110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191110.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpgsave_picture_191111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpgsave_picture_191117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Dragonhammer - Second Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191119.jpgsave_picture_191119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191119.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ C.O.P - Enemy (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191127.jpgsave_picture_191127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191127.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Master - Master (1990) [WavPack|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191128.jpgsave_picture_191128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191128.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:B19B51EB8981AA246960A7807F91AA306E23866F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpgsave_picture_191136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ All-Black Day - 3 Albums (2022) [MP3|320 Kbps] <Alternative, Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191137.jpgsave_picture_191137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191137.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Drallion - New Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191139.jpgsave_picture_191139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191139.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cathartic - Through The Abysmal Gates Of Subconscious (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191141.jpgsave_picture_191141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191141.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Beneath the Embers - Condemned (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191144.jpgsave_picture_191144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191144.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Praetorian - Furialis (2022) [FLAC|Lossless|WEB-DL|tracks] <Punch Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191147.jpgsave_picture_191147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191147.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lik - Mass Funeral Evocation (2015) Limited edition, Reissue 2019 [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191149.jpgsave_picture_191149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191149.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Stash - Through Rose Coloured Glasses (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191151.jpgsave_picture_191151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191151.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F5ECD9440D70B5046A59DEA0D57F0133FB5E9447
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191197.jpgsave_picture_191197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191197.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:6994073917E94F5DC178B46A31A5A632DCF077DE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191244.jpgsave_picture_191244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191244.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ The Dark Side Of The Moon - Metamorphosis (2023) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191282.jpgsave_picture_191282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191282.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ OOMPH! - Richter und Henker (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191285.jpgsave_picture_191285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191285.jpg" />
 </div>
 
 

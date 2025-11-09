@@ -6,7 +6,7 @@ The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144770.jpgsave_picture_144770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144770.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144771.jpgsave_picture_144771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144771.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Resolutiion v1.3.0.1 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144772.jpgsave_picture_144772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144772.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sumatra PDF 3.2.11801 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144773.jpgsave_picture_144773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144773.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2216B5E85B558A5E5EABFA1F18E1E0C9EB3766CE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144775.jpgsave_picture_144775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144775.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Holes / Клад (2003) WEB-DL [H.264/1080p-LQ]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144776.jpgsave_picture_144776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144776.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:DAF5CE2B133E07BD228B0866BECB9E9B945E7C38
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144777.jpgsave_picture_144777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144777.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Andy Griggs - The Good Life (2008) [FLAC|Lossless|image + .cue] <Country, Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144779.jpgsave_picture_144779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144779.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Meditative Mind v2.96  [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144780.jpgsave_picture_144780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144780.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpgsave_picture_144781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ PowerRun v1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144782.jpgsave_picture_144782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144782.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:AE0E67C4162471036BB7B2A2DF67CB31F182FA7C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144783.jpgsave_picture_144783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144783.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144784.jpgsave_picture_144784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144784.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:C4E41C1575026D2BEADDE52AF3D9C3BC9AED860B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144785.jpgsave_picture_144785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144785.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144786.jpgsave_picture_144786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144786.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4D6DDC7ED32D8F80249038E233C5F2F57E7A2001
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144787.jpgsave_picture_144787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144787.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:97D4F32FD61EEADA89E02E5EEBEB6395658AE9D2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144788.jpgsave_picture_144788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144788.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144790.jpgsave_picture_144790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144790.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0upd4/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144791.jpgsave_picture_144791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144791.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Xliff Editor 2.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144792.jpgsave_picture_144792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144792.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:86CD9E8C9204A235799FDCD8D93A841DD754F14C
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144793.jpgsave_picture_144793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144793.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:1156A1239F1E8066E93C6FEFFFD410FEE9B984B1
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144795.jpgsave_picture_144795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144795.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:9931B5638A45A1E4A39D1131B5147BAB9F57F92F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144796.jpgsave_picture_144796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144796.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144797.jpgsave_picture_144797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144797.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144798.jpgsave_picture_144798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144798.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144800.jpgsave_picture_144800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144800.jpg" />
 </div>
 
 
